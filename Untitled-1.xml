@@ -1,0 +1,208 @@
+p { width: 10em; border: solid aqua; }
+span { float: left; width: 5em; height: 5em; border: solid blue; }
+
+
+We also assume that B2 is not below F, i.e., we are in the situation described in the spec where we need to add clearance. That means:
+
+max(M1,M2) < M1 + H
+
+We need to compute clearance C twice, C1 and C2, and keep the greater of the two: C = max(C1,C2). The first way is to put the top of B2 flush with the bottom of F, i.e., at y = M1 + H. That means, because the margins no longer collapse with a clearance between them:
+
+bottom of F	= top border edge of B2	⇔
+
+M1 + H	= M1 + C1 + M2	⇔
+
+C1	= M1 + H - M1 - M2
+
+= H - M2
+
+The second computation is to keep the top of B2 where it is, i.e., at y = max(M1,M2). That means:
+
+max(M1,M2)	= M1 + C2 + M2	⇔
+
+C2	= max(M1,M2) - M1 - M2
+
+We assumed that max(M1,M2) < M1 + H, which implies
+
+C2 = max(M1,M2) - M1 - M2	< M1 + H - M1 - M2 = H - M2	⇒
+
+C2	< H - M2
+
+And, as C1 = H - M2, it follows that
+
+C2 < C1
+
+and hence
+
+C = max(C1,C2) = C1
+
+Example 2. An example of negative clearance is this situation, in which the clearance is -1em. (Assume none of the elements have borders or padding):
+
+<p style="margin-bottom: 4em">
+  First paragraph.
+
+<p style="float: left; height: 2em; margin: 0">
+  Floating paragraph.
+
+<p style="clear: left; margin-top: 3em">
+  Last paragraph.
+
+</BODY>
+<!DOCTYPE HTML PUBLIC "-//W3C//DTD HTML 4.01//EN">
+<HTML>
+  <HEAD>
+    <TITLE>Comparison of positioning schemes</TITLE>
+  </HEAD>
+  <BODY>
+    <P>Beginning of body contents.
+      <SPAN id="outer"> Start of outer contents.
+      <SPAN id="inner"> Inner contents.</SPAN>
+      End of outer contents.</SPAN>
+      End of body contents.
+    </P>
+  </BODY>
+</HTML>
+<!DOCTYPE HTML PUBLIC "-//W3C//DTD HTML 4.01//EN">
+<HTML>
+  <HEAD>
+    <TITLE>A frame document with CSS 2.1</TITLE>
+    <STYLE type="text/css" media="screen">
+      BODY { height: 8.5in } /* Required for percentage heights below */
+      #header {
+        position: fixed;
+        width: 100%;
+        height: 15%;
+        top: 0;
+        right: 0;
+        bottom: auto;
+        left: 0;
+      }
+      #sidebar {
+        position: fixed;
+        width: 10em;
+        height: auto;
+        top: 15%;
+        right: auto;
+        bottom: 100px;
+        left: 0;
+      }
+      #main {
+        position: fixed;
+        width: auto;
+        height: auto;
+        top: 15%;
+        right: 0;
+        bottom: 100px;
+        left: 10em;
+      }
+      #footer {
+        position: fixed;
+        width: 100%;
+        height: 100px;
+        top: auto;
+        right: 0;
+        bottom: 0;
+        left: 0;
+      }
+    </STYLE>
+  </HEAD>
+  <BODY>
+    <DIV id="header"> ...  </DIV>
+    <DIV id="sidebar"> ...  </DIV>
+    <DIV id="main"> ...  </DIV>
+    <DIV id="footer"> ...  </DIV>
+  </BODY>
+</HTML>
+<?xml version="1.0" standalone="no"?>
+<!DOCTYPE SomeParentXMLGrammar PUBLIC "-//SomeParent" "http://SomeParentXMLGrammar.dtd">
+<ParentXML>
+  <!-- Elements from ParentXML go here -->
+  <!-- The following is not conforming -->
+  <z:rect xmlns:z="http://www.w3.org/2000/svg"
+          x="0" y="0" width="10" height="10" />
+  <!-- More elements from ParentXML go here -->
+</ParentXML>
+<?xml version="1.0" standalone="no"?>
+<!DOCTYPE SomeParentXMLGrammar PUBLIC "-//SomeParent" "http://SomeParentXMLGrammar.dtd">
+<ParentXML>
+  <!-- Elements from ParentXML go here -->
+  <!-- The following is conforming -->
+  <z:svg xmlns:z="http://www.w3.org/2000/svg"
+         width="100px" height="100px">
+    <z:rect x="0" y="0" width="10" height="10"/>
+  </z:svg>
+  <!-- More elements from ParentXML go here -->
+</ParentXML>
+
+<!DOCTYPE HTML PUBLIC "-//W3C//DTD HTML 4.01//EN">
+<HTML>
+  <HEAD>
+    <TITLE>Example of inline flow on several lines</TITLE>
+    <STYLE type="text/css">
+      EM {
+        padding: 2px; 
+        margin: 1em;
+        border-width: medium;
+        border-style: dashed;
+        line-height: 2.4em;
+      }
+    </STYLE>
+  </HEAD>
+  <BODY>
+    <P>Several <EM>emphasized words</EM> appear here.</P>
+  </BODY>
+</HTML>
+<p>
+  <span> </span>
+  Supercalifragilisticexpialidocious
+</p>
+<!DOCTYPE HTML PUBLIC "-//W3C//DTD HTML 4.01//EN">
+<HTML>
+  <HEAD>
+    <TITLE>Float example</TITLE>
+    <STYLE type="text/css">
+      IMG { float: left }
+      BODY, P, IMG { margin: 2em }
+    </STYLE>
+  </HEAD>
+  <BODY>
+    <P><IMG src=img.png alt="This image will illustrate floats">
+       Some sample text that has no other...
+  </BODY>
+</HTML>
+<BODY>
+  <P>Some sample text 
+  <IMG src=img.png alt="This image will illustrate floats">
+           that has no other...
+<HEBREW>
+  <PAR>HEBREW1 HEBREW2 english3 HEBREW4 HEBREW5</PAR>
+  <PAR>HEBREW6 <EMPH>HEBREW7</EMPH> HEBREW8</PAR>
+</HEBREW>
+<ENGLISH>
+  <PAR>english9 english10 english11 HEBREW12 HEBREW13</PAR>
+  <PAR>english14 english15 english16</PAR>
+  <PAR>english17 <HE-QUO>HEBREW18 english19 HEBREW20</HE-QUO></PAR>
+</ENGLISH>
+/* Rules for bidi */
+HEBREW, HE-QUO  {direction: rtl; unicode-bidi: embed}
+ENGLISH         {direction: ltr; unicode-bidi: embed} 
+
+/* Rules for presentation */
+HEBREW, ENGLISH, PAR  {display: block}
+EMPH                  {font-weight: bold}
+ 2WERBEH 1WERBEH
+  -EH 4WERBEH english3
+                 5WERB
+
+   -EH 7WERBEH 6WERBEH
+                 8WERB
+
+english9 english10 en-
+glish11 12WERBEH
+13WERBEH
+
+english14 english15
+english16
+
+english17 18WERBEH
+20WERBEH english19
