@@ -1,0 +1,1 @@
+document.querySelector("#shreddit-media-lightbox > div > div > gallery-carousel > ul > li:nth-child(1) > figure > img")

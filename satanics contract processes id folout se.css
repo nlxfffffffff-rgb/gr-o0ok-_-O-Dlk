@@ -1,0 +1,17842 @@
+<//::first-line ::cue-region ::highlight events cronograme invalide frame process truste a event ::-webkit-validation-bubble-heading::-webkit-validation-bubble-heading>
+:host-context not valide a frame information or find a function noscript contain address to :target-current ::view-transition-new
+and create a statistics feColorMatrix true a colgroup event feConvolveMatrix and :corner-present ::-ms-fill-lower results in anulation this contract event confusion
+address alldfill inport container valide code a gorup poll time ::-webkit-meter-even-less-good-value :only-of-type build a format contract anulation base grupe
+not found as portable in process :-ms-input-placeholder portable ::-webkit-progress-inner-element a programe ::backdrop ::-webkit-validation-bubble-heading
+in trust event not fill all :user-invalid and stop a creew contents disclassi_faill hud id :active-view-transition-type :-webkit-any 
+:any-link set a condition this contract conples a version this programin and not complain ::-webkit-search-results-button
+haw id:transaction * (#lkasnOI Okke K ><M>SPOKdpo_ ÇÇQLçxm><M> osdk oww´-0o-pr ´çl~l~s dmOI3) protocolls
+creat sub base ::backdrop summary collections not group noz_fill a colapse programing survival ::-moz-progress-bar not ::-webkit-meter-suboptimum-value
+nothing rise corporation incorporate as statistics not found as conpleate in .inc    RELOG A :read-only BRAIN CONTSK BOULY BOOG WOOG ::-webkit-search-decoration
+::-webkit-validation-bubble-text-block NITH A ADRESS BUFER A CONTROOL AS CONTRACT :user-valid #fff feFloo::-webkit-validation-bubble-heading pig :active-view-transition-type
+:playing :in-range{"ScreenID":0,"ScreenSizePercent":25,"WindowOrientation":0,"Apps":null
+"AppDataSource":[{"AppPath":"C:\\Users\\nix0f\\Desktop\\Tor Browser.lnk","AppIcon":null}
+{"AppPath":"C:\\Users\\nix0f\\Desktop\\Stremio.lnk","AppIcon":null}
+{"AppPath":"C:\\Users\\nix0f\\Desktop\\CrystalMark Retro Shizuku Edition.lnk","AppIcon":null}
+{"AppPath":"C:\\Users\\Public\\Desktop\\Microsoft Edge.lnk","AppIcon":null}
+{"AppPath":"C:\\Users\\Public\\Desktop\\Steam.lnk","AppIcon":null}
+{"AppPath":"C:\\Users\\nix0f\\Desktop\\Supermarket Together.url","AppIcon":null}
+{"AppPath":"C:\\Users\\nix0f\\Desktop\\Discord.lnk","AppIcon":null}
+{"AppPath":"C:\\Users\\Public\\Desktop\\TLauncher.lnk","AppIcon":null}
+{"AppPath":"C:\\Users\\nix0f\\Desktop\\Tor Browser","AppIcon":null}
+{"AppPath":"C:\\Users\\nix0f\\Desktop\\com.apple.recovery.boot","AppIcon":null}
+{"AppPath":"C:\\Users\\nix0f\\Desktop\\Nova pasta (2)","AppIcon":null}
+{"AppPath":"C:\\Users\\nix0f\\Desktop\\Nova pasta","AppIcon":null}]
+
+        
+        <satanics>
+  …
+    <contract>
+      contract processes id folout seather contains praragrafs no full controll ideals a ideologie to parts a reward formats descrite a statistics
+to progress a satanics corporation swap a ideologie or not mateins a formate information controlls ideals a foundation corporatio relogs 
+proguess id _real contract for a user to ::view-transition-image-pair ellipse radialGradient mountain a consentiment as party ::-webkit-meter-even-less-good-value
+:-moz-loading dos a ::-webkit-textfield-decoration-container serveres as statistics is noscript or omplementary lunar efects  address article default board ::view-transition-group 
+and ::-webkit-validation-bubble-arrow-clipper for a viwer tralate a documet on docie feComponentTransfer here feDisplacementMap 
+feDiffuseLighting rupture a structure on map ::-moz-progress-bar noiz function not controll a device and set a controll id:protocoll.dat
+das first :corner-present or a paraments online :increment_in radialGradient ::-webkit-search-results-decoration feSpecularLighting
+feDiffuseLighting not :user-invalid noz_x :user-invalid and nox id :user-invalid at use desableat trust event_
+all organologs events not consult log ::spelling-error id error_protocoll error shut :future comparations and creat a function 
+        <processes>
+         #svflytc{--flyout-bg-clr:#fff;--flyout-lnk-clr:#2169eb;--flyout-txt-clr:#444}#svflytc,#svflytc .scflyt{background:var(--flyout-bg-clr);color:var(--flyout-txt-clr)}
+            .b_svcitm:hover{cursor:pointer;background-color:#f5f5f5}#svctrllnk{color:var(--flyout-lnk-clr)}.b_dark .sclnk,.b_dark .sclnk span,
+            .b_dark .sclnk:visited{color:#82c7ff}#svctrlinlineform{background:var(--flyout-bg-clr)}
+            .b_scactive #svctrlhvrbtn:hover
+            .b_scactive #svctrlhvrpnlbtn:hover{cursor:pointer;background-color:#f4f4f4}
+            .b_dark 
+            .b_scactive #svctrlhvrbtn:hover
+            .b_dark 
+            .b_scactive #svctrlhvrpnlbtn:hover{background-color:#3b3a39}
+            .b_scactive #svctrlhvrbtn:focus{cursor:pointer;background-color:#f4f4f4}.b_svcitm[data-svd="1"] 
+            .b_svcimg::after{background-image:var(--svicn-colpck)}.b_svcitm:not([data-svd="1"]):hover 
+            .b_svcimg::after{background-image:var(--unsvicn-colpck)}
+            <id>
+              …
+                <folout>
+                  …
+                    <seather>
+                      …
+                        <contains>
+                          …
+                            <praragrafs>
+                              …
+                                <no>
+                                  …
+                                    <full>
+                                      …
+                                        <controll>
+                                          …
+                                            <ideals>
+                                              …
+                                                <a>
+                                                  …
+                                                    <ideologie>
+                                                      …
+                                                        <to>
+                                                          …
+                                                            <parts>
+                                                              …
+                                                                <a>
+                                                                  …
+                                                                    <reward>
+                                                                      …
+                                                                        <formats>
+                                                                          …
+                                                                            <descrite>
+                                                                              …
+                                                                                <a>
+                                                                                  …
+                                                                                    <statistics>
+                                                                                      …
+                                                                                        <to>
+                                                                                          …
+                                                                                            <progress>
+                                                                                              …
+                                                                                                <a>
+                                                                                                  …
+                                                                                                    <satanics>
+                                                                                                      …
+                                                                                                        <corporation>
+                                                                                                          …
+                                                                                                            <swap>
+                                                                                                              …
+                                                                                                                <a>
+                                                                                                                  …
+                                                                                                                    <ideologie>
+                                                                                                                      …
+                                                                                                                        <or>
+                                                                                                                          …
+                                                                                                                            <not>
+                                                                                                                              …
+                                                                                                                                <mateins>
+                                                                                                                                  …
+                                                                                                                                    <a>
+                                                                                                                                      …
+                                                                                                                                        <formate>
+                                                                                                                                          …
+                                                                                                                                            <information>
+                                                                                                                                              …
+                                                                                                                                                <controlls>
+                                                                                                                                                  …
+                                                                                                                                                    <ideals>
+                                                                                                                                                      …
+                                                                                                                                                        <a>
+                                                                                                                                                          …
+                                                                                                                                                            <foundation>
+                                                                                                                                                              …
+                                                                                                                                                                <corporatio>
+                                                                                                                                                                  …
+                                                                                                                                                                    <relogs>
+                                                                                                                                                                      …
+                                                                                                                                                                        <proguess>
+                                                                                                                                                                          …
+                                                                                                                                                                            <id>
+                                                                                                                                                                              …
+                                                                                                                                                                                <_real>
+                                                                                                                                                                                  …
+                                                                                                                                                                                    <contract>
+                                                                                                                                                                                      …
+                                                                                                                                                                                        <for>
+                                                                                                                                                                                          …
+                                                                                                                                                                                            <a>
+                                                                                                                                                                                              …
+                                                                                                                                                                                                <user>
+                                                                                                                                                                                                  …
+                                                                                                                                                                                                    <to>
+                                                                                                                                                                                                      …
+                                                                                                                                                                                                        <element ::view-transition-image-pair>
+                       SML.di("./icon-79808e09.js", import.meta.url, "icon79808e09");
+SML.dm("shell380358ce", ["icon79808e09"], (async e => {
+    function t(e, t, i, n) {
+        var o, r = arguments.length, a = r < 3 ? t : null === n ? n = Object.getOwnPropertyDescriptor(t, i) : n;
+        if ("object" == typeof Reflect && "function" == typeof Reflect.decorate)
+            a = Reflect.decorate(e, t, i, n);
+        else
+            for (var s = e.length - 1; s >= 0; s--)
+                (o = e[s]) && (a = (r < 3 ? o(a) : r > 3 ? o(t, i, a) : o(t, i)) || a);
+        return r > 3 && a && Object.defineProperty(t, i, a),
+        a
+    }
+    function i(e) {
+        var t = "function" == typeof Symbol && Symbol.iterator
+          , i = t && e[t]
+          , n = 0;
+        if (i)
+            return i.call(e);
+        if (e && "number" == typeof e.length)
+            return {
+                next: function() {
+                    return e && n >= e.length && (e = void 0),
+                    {
+                        value: e && e[n++],
+                        done: !e
+                    }
+                }
+            };
+        throw new TypeError(t ? "Object is not iterable." : "Symbol.iterator is not defined.")
+    }
+    function n(e) {
+        return this instanceof n ? (this.v = e,
+        this) : new n(e)
+    }
+    function o(e, t, i) {
+        if (!Symbol.asyncIterator)
+            throw new TypeError("Symbol.asyncIterator is not defined.");
+        var o, r = i.apply(e, t || []), a = [];
+        return o = {},
+        s("next"),
+        s("throw"),
+        s("return"),
+        o[Symbol.asyncIterator] = function() {
+            return this
+        }
+        ,
+        o;
+        function s(e) {
+            r[e] && (o[e] = function(t) {
+                return new Promise((function(i, n) {
+                    a.push([e, t, i, n]) > 1 || d(e, t)
+                }
+                ))
+            }
+            )
+        }
+        function d(e, t) {
+            try {
+                !function(e) {
+                    e.value instanceof n ? Promise.resolve(e.value.v).then(l, c) : u(a[0][2], e)
+                }(r[e](t))
+            } catch (e) {
+                u(a[0][3], e)
+            }
+        }
+        function l(e) {
+            d("next", e)
+        }
+        function c(e) {
+            d("throw", e)
+        }
+        function u(e, t) {
+            e(t),
+            a.shift(),
+            a.length && d(a[0][0], a[0][1])
+        }
+    }
+    function r(e) {
+        if (!Symbol.asyncIterator)
+            throw new TypeError("Symbol.asyncIterator is not defined.");
+        var t, n = e[Symbol.asyncIterator];
+        return n ? n.call(e) : (e = i(e),
+        t = {},
+        o("next"),
+        o("throw"),
+        o("return"),
+        t[Symbol.asyncIterator] = function() {
+            return this
+        }
+        ,
+        t);
+        function o(i) {
+            t[i] = e[i] && function(t) {
+                return new Promise((function(n, o) {
+                    (function(e, t, i, n) {
+                        Promise.resolve(n).then((function(t) {
+                            e({
+                                value: t,
+                                done: i
+                            })
+                        }
+                        ), t)
+                    }
+                    )(n, o, (t = e[i](t)).done, t.value)
+                }
+                ))
+            }
+        }
+    }
+    const a = e => t => "function" == typeof t ? ( (e, t) => (customElements.define(e, t),
+    t))(e, t) : ( (e, t) => {
+        const {kind: i, elements: n} = t;
+        return {
+            kind: i,
+            elements: n,
+            finisher(t) {
+                customElements.define(e, t)
+            }
+        }
+    }
+    )(e, t)
+      , s = (e, t) => "method" === t.kind && t.descriptor && !("value"in t.descriptor) ? {
+        ...t,
+        finisher(i) {
+            i.createProperty(t.key, e)
+        }
+    } : {
+        kind: "field",
+        key: Symbol(),
+        placement: "own",
+        descriptor: {},
+        originalKey: t.key,
+        initializer() {
+            "function" == typeof t.initializer && (this[t.key] = t.initializer.call(this))
+        },
+        finisher(i) {
+            i.createProperty(t.key, e)
+        }
+    };
+    function d(e) {
+        return (t, i) => void 0 !== i ? ( (e, t, i) => {
+            t.constructor.createProperty(i, e)
+        }
+        )(e, t, i) : s(e, t)
+    }
+    function l(e) {
+        return d({
+            ...e,
+            state: !0
+        })
+    }
+    const c = ({finisher: e, descriptor: t}) => (i, n) => {
+        var o;
+        if (void 0 === n) {
+            const n = null !== (o = i.originalKey) && void 0 !== o ? o : i.key
+              , r = null != t ? {
+                kind: "method",
+                placement: "prototype",
+                key: n,
+                descriptor: t(i.key)
+            } : {
+                ...i,
+                key: n
+            };
+            return null != e && (r.finisher = function(t) {
+                e(t, n)
+            }
+            ),
+            r
+        }
+        {
+            const o = i.constructor;
+            void 0 !== t && Object.defineProperty(i, n, t(n)),
+            null == e || e(o, n)
+        }
+    }
+    ;
+    var u;
+    const h = null != (null === (u = window.HTMLSlotElement) || void 0 === u ? void 0 : u.prototype.assignedElements) ? (e, t) => e.assignedElements(t) : (e, t) => e.assignedNodes(t).filter((e => e.nodeType === Node.ELEMENT_NODE));
+    function p(e) {
+        const {slot: t, selector: i} = null != e ? e : {};
+        return c({
+            descriptor: n => ({
+                get() {
+                    var n;
+                    const o = "slot" + (t ? `[name=${t}]` : ":not([name])")
+                      , r = null === (n = this.renderRoot) || void 0 === n ? void 0 : n.querySelector(o)
+                      , a = null != r ? h(r, e) : [];
+                    return i ? a.filter((e => e.matches(i))) : a
+                },
+                enumerable: !0,
+                configurable: !0
+            })
+        })
+    }
+    function m(e, t, i) {
+        let n, o = e;
+        return "object" == typeof e ? (o = e.slot,
+        n = e) : n = {
+            flatten: t
+        },
+        i ? p({
+            slot: o,
+            flatten: t,
+            selector: i
+        }) : c({
+            descriptor: e => ({
+                get() {
+                    var e, t;
+                    const i = "slot" + (o ? `[name=${o}]` : ":not([name])")
+                      , r = null === (e = this.renderRoot) || void 0 === e ? void 0 : e.querySelector(i);
+                    return null !== (t = null == r ? void 0 : r.assignedNodes(n)) && void 0 !== t ? t : []
+                },
+                enumerable: !0,
+                configurable: !0
+            })
+        })
+    }
+    class g {
+        constructor(e, t) {
+            this._events = new Map,
+            this._isConnected = !1,
+            e.addController(this),
+            this._host = e,
+            this._getTarget = t
+        }
+        _getEventTarget() {
+            return this._getTarget ? this._getTarget() : this._host
+        }
+        hostConnected() {
+            const e = this._getEventTarget();
+            for (const [t,i] of this._events)
+                Array.isArray(i) ? e.addEventListener(t, i[0], i[1]) : e.addEventListener(t, i);
+            this._isConnected = !0
+        }
+        hostDisconnected() {
+            const e = this._getEventTarget();
+            for (const [t,i] of this._events)
+                Array.isArray(i) ? e.removeEventListener(t, i[0], i[1]) : e.removeEventListener(t, i);
+            this._isConnected = !1
+        }
+        define(e, t, i) {
+            const n = e.toString();
+            if (this._events.has(n))
+                throw new Error(`Event ${n} already defined.`);
+            if (i ? this._events.set(n, [t, i]) : this._events.set(n, t),
+            this._isConnected) {
+                const e = this._getEventTarget();
+                e && e.addEventListener(n, t, i)
+            }
+            return t
+        }
+    }
+    let _ = e => e;
+    function f() {
+        const e = new WeakMap;
+        let t = !1;
+        return {
+            get isDirty() {
+                return t
+            },
+            register(i, n) {
+                const o = e.get(i);
+                o && !o.has(n) ? o.add(n) : o || e.set(i, new Set([n])),
+                t = !0
+            },
+            unregister(i, n) {
+                const o = e.get(i);
+                o && o.has(n) && (o.delete(n),
+                t = !0)
+            },
+            getRegisteredElements(i) {
+                const n = e.get(i);
+                return t = !1,
+                n
+            },
+            unregisterAll(i) {
+                e.delete(i),
+                t = !0
+            }
+        }
+    }
+    function E(e) {
+        window.FACEPLATE_CONNECTORS = window.FACEPLATE_CONNECTORS || {},
+        window.FACEPLATE_CONNECTORS[e] = window.FACEPLATE_CONNECTORS[e] || new Set;
+        const t = t => {
+            var i, n;
+            return !0 === (null === (n = null === (i = window.FACEPLATE_CONNECTORS) || void 0 === i ? void 0 : i[e]) || void 0 === n ? void 0 : n.has(t.constructor))
+        }
+        ;
+        return {
+            registerAncestorClass(t) {
+                var i, n;
+                null === (n = null === (i = window.FACEPLATE_CONNECTORS) || void 0 === i ? void 0 : i[e]) || void 0 === n || n.add(t)
+            },
+            connectToAncestor: e => (async function(e, t) {
+                let i = e;
+                for (; i.parentElement; ) {
+                    if (i = i.parentElement,
+                    !i.tagName.includes("-"))
+                        continue;
+                    const e = i.tagName.toLowerCase();
+                    if (customElements.get(e) || (await customElements.whenDefined(e)),
+                    t(i))
+                        return i
+                }
+            }
+            )(e, t)
+        };
+    }
+    function v(e, t, i=!0) {
+        return new CustomEvent(e,{
+            composed: !0,
+            bubbles: i,
+            cancelable: !0,
+            detail: t
+        })
+    }
+    var S;
+    !function(e) {
+        e.ExtraSmall = "xs",
+        e.Small = "sm",
+        e.Medium = "md",
+        e.Large = "lg"
+    }(S || (S = {}));
+    const b = {
+        [S.Small]: {
+            label: "ps-[var(--rem10)] pe-[var(--rem6)]",
+            icon: "ps-[var(--rem10)] pe-[var(--rem6)]",
+            iconLabel: "ps-[var(--rem10)] pe-[var(--rem6)]"
+        },
+        [S.Medium]: {
+            label: "ps-[var(--rem14)] pe-[var(--rem10)]",
+            icon: "ps-[var(--rem10)] pe-[var(--rem6)]",
+            iconLabel: "px-[var(--rem10)]"
+        },
+        [S.Large]: {
+            label: "ps-[var(--rem14)] pe-[var(--rem10)]",
+            icon: "px-[var(--rem14)]",
+            iconLabel: "ps-[var(--rem14)] pe-[var(--rem10)]"
+        }
+    }
+      , T = {
+        [S.ExtraSmall]: {
+            label: "px-[var(--rem10)]",
+            icon: "px-[var(--rem6)]",
+            iconLabel: "px-[var(--rem10)]"
+        },
+        [S.Small]: {
+            label: "px-[var(--rem10)]",
+            icon: "px-[var(--rem6)]",
+            iconLabel: "px-[var(--rem10)]"
+        },
+        [S.Medium]: {
+            label: "px-[var(--rem14)]",
+            icon: "px-[var(--rem8)]",
+            iconLabel: "ps-[var(--rem10)] pe-[var(--rem14)]"
+        },
+        [S.Large]: {
+            label: "px-[var(--rem14)]",
+            icon: "px-[var(--rem12)]",
+            iconLabel: "ps-[var(--rem10)] pe-[var(--rem14)]"
+        }
+    }
+      , y = {
+        xs: "button-x-small",
+        sm: "button-small",
+        md: "button-medium",
+        lg: "button-large"
+    }
+      , I = {
+        primary: "button-primary",
+        secondary: "button-secondary",
+        tertiary: "button-tertiary",
+        plain: "button-plain",
+        bordered: "button-bordered",
+        destructive: "button-destructive",
+        media: "button-media",
+        brand: "button-brand",
+        success: "button-success",
+        plainInverted: "button-plain-inverted",
+        favorite: "button-favorite",
+        favoriteToggled: "button-favorite-toggled",
+        secondaryToggled: "button-secondary-toggled",
+        caution: "button-caution",
+        tab: "button-tab"
+    }
+      , C = ({attributes: e, size: t=S.Medium, appearance: i, shape: n, leadingIcon: o, trailingIcon: r, children: a, selected: s}) => {
+        let d = "label";
+        o && a ? d = "iconLabel" : a || (d = "icon");
+        const l = r ? b : T;
+        return `${e?.className || ""}\n${t ? `${y[t]} ${l[t]?.[d]}` : ""}\n ${i ? I[i] : ""}\n ${s ? "button-activated" : ""}\n ${"square" === n ? "rounded-2" : ""}\n ${"icon" === d ? "icon" : ""}\n ${"tab" === i ? "flex-col" : "items-center justify-center"}\nbutton inline-flex`
+    }
+      , A = t => {
+        const {createElement: i} = e.g()
+          , {attributes: n, selected: o, role: r} = t
+          , a = n?.href
+          , s = n?.disabled
+          , d = ( ({hideChildrenOverflow: t, children: i, screenReaderContent: n, trailingIcon: o, leadingIcon: r, dropdown: a, appearance: s, selected: d, size: l}) => {
+            let c = "flex";
+            (i || a) && (c += " me-xs");
+            const {html: u} = e.g()
+              , h = u`<span class="flex items-center justify-center${t ? " overflow-hidden" : ""}"> ${r ? u`<span class="${c}">${r}</span>` : void 0} ${i ? u`<span class="${"flex items-center gap-xs" + (t ? " overflow-hidden" : "")}">${i}</span>` : void 0} </span> ${o}`;
+            return ["tab" === s ? u` <span class="inline-flex items-center justify-center gap-xs">${h}</span> ${d ? u` <span class="w-100 ${l === S.Small || l === S.ExtraSmall ? "h-[2px] -mt-[2px]" : "h-2xs -mt-2xs"} pointer-events-none bg-primary rounded-full"></span>` : ""} ` : h, n ? u`<faceplate-screen-reader-content>${n}</faceplate-screen-reader-content>` : ""]
+        }
+        )({
+            ...t
+        })
+          , l = null != a;
+        return i(l ? "a" : "button", {
+            rpl: !0,
+            role: r,
+            ...n,
+            className: `${C(t)} ${s && l ? "anchor-disabled" : ""}`,
+            rplSelected: o
+        }, d)
+    }
+      , R = ({size: e=S.Medium, ...t}) => A({
+        ...t,
+        size: e
+    })
+      , P = "lit-localize-status";
+    class N {
+        constructor(e) {
+            this.__litLocalizeEventHandler = e => {
+                "ready" === e.detail.status && this.host.requestUpdate()
+            }
+            ,
+            this.host = e
+        }
+        hostConnected() {
+            window.addEventListener(P, this.__litLocalizeEventHandler)
+        }
+        hostDisconnected() {
+            window.removeEventListener(P, this.__litLocalizeEventHandler)
+        }
+    }
+    const O = e => e.addController(new N(e));
+    for (let e = 0; e < 256; e++)
+        (e >> 4 & 15).toString(16),
+        (15 & e).toString(16);
+    var w, D, M;
+    (new (class {
+        constructor() {
+            this.settled = !1,
+            this.promise = new Promise(( (e, t) => {
+                this._resolve = e,
+                this._reject = t
+            }
+            ))
+        }
+        resolve(e) {
+            this.settled = !0,
+            this._resolve(e)
+        }
+        reject(e) {
+            this.settled = !0,
+            this._reject(e)
+        }
+    }
+    )).resolve(),
+    function(e) {
+        e.App = "app",
+        e.Embed = "embed",
+        e.EmbedHeartbeat = "embed-heartbeat",
+        e.Event = "event",
+        e.EventBatch = "event_batch",
+        e.Heartbeat = "heartbeat",
+        e.HighlightMenu = "highlight_menu",
+        e.Screen = "screen",
+        e.SnippetEmbed = "snippet_embed"
+    }(w || (w = {})),
+    function(e) {
+        e.Global = "global",
+        e.Share = "share"
+    }(D || (D = {})),
+    function(e) {
+        e.Click = "click",
+        e.Drop = "drop",
+        e.Leave = "leave",
+        e.Load = "load",
+        e.View = "view"
+    }(M || (M = {}));
+    const k = "x-verified-res"
+      , L = "join"
+      , U = "report";
+    var F, B;
+    !function(e) {
+        e.RichText = "richText",
+        e.Markdown = "markdown"
+    }(F || (F = {})),
+    function(e) {
+        e.Small = "small",
+        e.Large = "large",
+        e.XLarge = "xlarge"
+    }(B || (B = {}));
+    const V = "post_composer";
+    var x, G;
+    !function(e) {
+        e.Type = "type",
+        e.DraftId = "draft",
+        e.Title = "title",
+        e.CrosspostSourceId = "source_id",
+        e.CrosspostTarget = "crosspost_target",
+        e.Url = "url",
+        e.ScheduledPostId = "scheduled_post_id",
+        e.PostId = "post_id",
+        e.CrosspostExperimentReferral = "crosspost_experiment_referral",
+        e.FlairId = "flair_id"
+    }(x || (x = {})),
+    function(e) {
+        e.Draft = "draft",
+        e.Schedule = "schedule",
+        e.Submit = "submit",
+        e.UpdateDraft = "updateDraft",
+        e.UpdateScheduledPost = "updateScheduledPost"
+    }(G || (G = {}));
+    var H, W, z, j;
+    !function(e) {
+        e.Upvote = "upvote",
+        e.Downvote = "downvote",
+        e.Reply = "reply",
+        e.Follow = "follow",
+        e.Awards = "awards",
+        e.Join = "join",
+        e.Report = "report",
+        e.CommunityValue = "community-value",
+        e.Unknown = "unknown",
+        e.RecentCommunitiesCreateAccount = "recent_communities_create_account",
+        e.AuthPrompt = "auth_prompt"
+    }(H || (H = {})),
+    function(e) {
+        e.UpvoteComment = "upvote_comment",
+        e.DownvoteComment = "downvote_comment",
+        e.ReplyComment = "reply_comment",
+        e.Report = "report"
+    }(W || (W = {})),
+    function(e) {
+        e.Follow = "follow",
+        e.FollowSignupCTA = "follow_signup_cta",
+        e.Unfollow = "unfollow",
+        e.Chat = "chat",
+        e.ChatSignupCTA = "chat_signup_cta",
+        e.Share = "share",
+        e.Message = "send_message",
+        e.GivePremium = "give_premium",
+        e.BlockUser = "block_user",
+        e.UnblockUser = "unblock_user",
+        e.GetHelp = "get_help",
+        e.Report = "report",
+        e.AddToCustomFeed = "add_to_custom_feed"
+    }(z || (z = {})),
+    function(e) {
+        e.Post = "post",
+        e.Comment = "comment"
+    }(j || (j = {}));
+    const K = "faceplate-track"
+      , $ = "track-event"
+      , q = "devvit-action"
+      , Y = {
+        upvote: "upvote",
+        downvote: "downvote",
+        upvoteTry: "upvote_try",
+        downvoteTry: "downvote_try",
+        reply: "reply",
+        [L]: L,
+        signup: "signup",
+        save: "save",
+        follow: "follow",
+        awards: "awards",
+        purchaseProduct: "purchase_product",
+        vaultLogin: "vault_login",
+        [U]: "report",
+        [K]: K,
+        [$]: $,
+        [q]: q
+    }
+      , Q = ["nav/click/login", "user_drawer/click/login", "reddit_pro_onboarding/click/login", "xpromo/click/auth_header_login"]
+      , J = ["premium_marketing/click/price", "community_hovercard/click/join_signup_cta", "community/click/subscribe", "community/click/unsubscribe", `post_detail/click/${W.UpvoteComment}`, `post_detail/click/${W.DownvoteComment}`, `post_detail/click/${W.ReplyComment}`, `${V}/click/create_post`, "comment_composer/click/login_to_comment", `user_hovercard/click/${z.Follow}`, `user_hovercard/click/${z.FollowSignupCTA}`, `user_hovercard/click/${z.Chat}`, `user_hovercard/click/${z.ChatSignupCTA}`, "post/click/vote", `post/click/${H.Report}`, `post_detail/click/${H.Report}`, `profile/click/${W.DownvoteComment}`, `comment/click/${W.Report}`, `comment/click/${W.UpvoteComment}`, `comment/click/${W.DownvoteComment}`, "comment/click/reply", `profile/click/${W.UpvoteComment}`, `profile/click/${z.Follow}`, `profile/click/${z.FollowSignupCTA}`, `profile/click/${z.Chat}`, `profile/click/${z.ChatSignupCTA}`, `profile/click/${z.Message}`, `profile/click/${z.GivePremium}`, `profile/click/${z.BlockUser}`, `profile/click/${z.GetHelp}`, `profile/click/${z.Report}`, `profile/click/${z.AddToCustomFeed}`, "nav/click/recap_logged_out", "subreddit/click/recap_logged_out", "recap/click/recap_logged_out", "xpromo/click/nsfw_blur:login", "reddit_pro_onboarding/click/signup", "new_awards/click/report", ...Q];
+    function X(t) {
+        const i = [t];
+        return i.raw = i,
+        e.i(i)
+    }
+    const Z = document.querySelector("#tailwind")?.textContent ?? "";
+    Z || console.warn("Tailwind style tag not found - cannot build constructed stylesheet");
+    const ee = X(Z)
+      , te = e.e(class extends e.a {
+        constructor(t) {
+            var i;
+            if (super(t),
+            t.type !== e.t.ATTRIBUTE || "class" !== t.name || (null === (i = t.strings) || void 0 === i ? void 0 : i.length) > 2)
+                throw Error("`classMap()` can only be used in the `class` attribute and must be the only part in the attribute.")
+        }
+        render(e) {
+            return " " + Object.keys(e).filter((t => e[t])).join(" ") + " "
+        }
+        update(t, [i]) {
+            var n, o;
+            if (void 0 === this.it) {
+                this.it = new Set,
+                void 0 !== t.strings && (this.nt = new Set(t.strings.join(" ").split(/\s/).filter((e => "" !== e))));
+                for (const e in i)
+                    i[e] && !(null === (n = this.nt) || void 0 === n ? void 0 : n.has(e)) && this.it.add(e);
+                return this.render(i)
+            }
+            const r = t.element.classList;
+            this.it.forEach((e => {
+                e in i || (r.remove(e),
+                this.it.delete(e))
+            }
+            ));
+            for (const e in i) {
+                const t = !!i[e];
+                t === this.it.has(e) || (null === (o = this.nt) || void 0 === o ? void 0 : o.has(e)) || (t ? (r.add(e),
+                this.it.add(e)) : (r.remove(e),
+                this.it.delete(e)))
+            }
+            return e.T
+        }
+    }
+    );
+    function ie(e, t, i=!0) {
+        return e ? e instanceof ShadowRoot ? ie(e.host, t, i) : e instanceof HTMLElement ? e.matches(t) ? e : i && e.querySelector(t) ? e.querySelector(t) : ie(e.parentNode, t, i) : ie(e.parentNode, t, i) : null
+    }
+    window.ALL_ELEMENTS ?? (window.ALL_ELEMENTS = new Map);
+    const ne = new Set(["faceplate-json", "reddit-debug-panel", "shreddit-debug-ad-display", "shreddit-debug-dev-override", "shreddit-debug-feature-timeline", "shreddit-debug-v2-events", "shreddit-perf-debugger"])
+      , oe = {};
+    function re() {
+        if (window.renderTimes)
+            return;
+        window.renderTimes = {},
+        window.adoptedStylesheetByComponent = new Map;
+        const t = e.s.prototype.update;
+        e.s.prototype.update = function(...e) {
+            const i = this.nodeName.toLowerCase()
+              , n = performance.now();
+            t.apply(this, e);
+            const o = performance.now() - n;
+            ne.has(i) || (window.renderTimes[i] = window.renderTimes[i] ?? {
+                cumulativeRenderTime: 0,
+                numRenders: 0,
+                numInstances: 0
+            },
+            window.renderTimes[i].numRenders++,
+            window.renderTimes[i].cumulativeRenderTime += o,
+            oe[i] = oe[i] ?? new WeakSet,
+            oe[i].has(this) || (window.renderTimes[i].numInstances++,
+            oe[i].add(this)));
+            try {
+                const e = this.shadowRoot?.adoptedStyleSheets[0];
+                e && window.adoptedStylesheetByComponent.set(this.constructor, e)
+            } catch {}
+        }
+        ,
+        window.printRenderReport = (e=20) => {
+            console.log(Object.entries(window.renderTimes).sort(( ([,e], [,t]) => t.cumulativeRenderTime - e.cumulativeRenderTime)).slice(0, e).map(( ([e,{cumulativeRenderTime: t, numInstances: i, numRenders: n}]) => `<${e}> ${t.toFixed(1)}ms, \n            ${n} renders from ${i} instances`)).join("\n"))
+        }
+    }
+    let ae = new Set;
+    function se() {
+        const e = new Set([...window.ALL_ELEMENTS.keys()])
+          , t = new Set(de("*").filter((e => e.tagName.includes("-"))).map((e => e.tagName.toLowerCase())));
+        return ae = ae.union?.(t) ?? [],
+        [...(e.difference?.(ae) ?? [])];
+    }
+    function de(e, t=document.documentElement) {
+        return [...t.querySelectorAll(e)].flatMap((t => {
+            const i = [t];
+            return t.shadowRoot && i.push(...de(e, t.shadowRoot)),
+            i
+        }
+        ))
+    }
+    const le = "[data-expected-lcp]";
+    function ce() {
+        return de("*", document.body).some((e => e.matches(le)))
+    }
+    function ue(e, t=ce) {
+        return e ? ie(e, le, !1) ? "true" : t() ? "false" : "unknown" : "unknown"
+    }
+    const he = e.e(class extends e.a {
+        constructor(t) {
+            if (super(t),
+            t.type !== e.t.CHILD)
+                throw Error("templateContent can only be used in child bindings")
+        }
+        render(t) {
+            return this.vt === t ? e.T : (this.vt = t,
+            document.importNode(t.content, !0))
+        }
+    }
+    )
+      , pe = {
+        rootMargin: "200px"
+    }
+      , me = new Map;
+    function ge(e, t) {
+        return !me.has(e) && t && me.set(e, function(e) {
+            return new IntersectionObserver((e => {
+                for (const t of e) {
+                    const e = t.target
+                      , i = t.isIntersecting ? v("faceplate-enter", t, !1) : v("faceplate-leave", t, !1);
+                    e.dispatchEvent(i)
+                }
+            }
+            ),e)
+        }(t)),
+        me.get(e)
+    }
+    class _e {
+        constructor(e=pe) {
+            this._observer = ge(JSON.stringify(e), e)
+        }
+        observe(e) {
+            this._observer.observe(e)
+        }
+        unobserve(e) {
+            this._observer.unobserve(e)
+        }
+    }
+    const fe = Symbol("mixins/observer");
+    function Ee(e) {
+        if (fe in e)
+            return e;
+        class t extends e {
+            constructor() {
+                super(...arguments),
+                this._observer = null,
+                this._handleEnter = e => {
+                    this.observerIsIntersectingCallback(e.detail)
+                }
+                ,
+                this._handleLeave = e => {
+                    this.observerIsNotIntersectingCallback(e.detail)
+                }
+            }
+            get isObserved() {
+                return !!this._observer
+            }
+            enableObserver(e) {
+                this._observer || (this._observer = new _e(e),
+                this._observer.observe(this),
+                this.addEventListener("faceplate-enter", this._handleEnter),
+                this.addEventListener("faceplate-leave", this._handleLeave))
+            }
+            disableObserver() {
+                this._observer && (this._observer.unobserve(this),
+                this._observer = null,
+                this.removeEventListener("faceplate-enter", this._handleEnter),
+                this.removeEventListener("faceplate-leave", this._handleLeave))
+            }
+            observerIsIntersectingCallback(e) {}
+            observerIsNotIntersectingCallback(e) {}
+        }
+        return t[fe] = !0,
+        t
+    }
+    var ve, Se, be, Te, ye, Ie, Ce;
+    !function(e) {
+        e[e.emergency = 0] = "emergency",
+        e[e.alert = 1] = "alert",
+        e[e.critical = 2] = "critical",
+        e[e.error = 3] = "error",
+        e[e.warning = 4] = "warning",
+        e[e.notice = 5] = "notice",
+        e[e.info = 6] = "info",
+        e[e.success = 7] = "success",
+        e[e.debug = 8] = "debug",
+        e[e.none = 9] = "none"
+    }(ve || (ve = {})),
+    function(e) {
+        e.Programmatic = "programmatic",
+        e.Eager = "eager",
+        e.Action = "action",
+        e.Intent = "intent",
+        e.Lazy = "lazy",
+        e.Preload = "preload"
+    }(Se || (Se = {})),
+    function(e) {
+        e.Once = "once",
+        e.Always = "always"
+    }(be || (be = {})),
+    function(e) {
+        e.Get = "get",
+        e.Post = "post",
+        e.Dialog = "dialog",
+        e.Log = "log"
+    }(Te || (Te = {})),
+    function(e) {
+        e.Append = "append",
+        e.Prepend = "prepend",
+        e.After = "after",
+        e.Before = "before",
+        e.Replace = "replace",
+        e.Contents = "contents"
+    }(ye || (ye = {})),
+    function(e) {
+        e.XPromo = "xpromo"
+    }(Ie || (Ie = {}));
+    const Ae = new Set;
+    let Re = Ce = class extends (Ee(e.s)) {
+        constructor() {
+            super(...arguments),
+            this.content = null,
+            this.slotState = "pending"
+        }
+        connectedCallback() {
+            switch (super.connectedCallback(),
+            this.shouldRenderWithPaintGroup = this.paintGroup && (!this.loading || this.loading === Se.Eager),
+            this.loading) {
+            case Se.Programmatic:
+                break;
+            case Se.Lazy:
+                this.enableObserver();
+                break;
+            case Se.Eager:
+            default:
+                this.load()
+            }
+        }
+        disconnectedCallback() {
+            this.disableObserver(),
+            super.disconnectedCallback()
+        }
+        renderAsSlot() {
+            switch (this.slotState) {
+            case "pending":
+                return e.x`<slot></slot>`;
+            case "ready":
+                return e.x`<slot name="${Ce.READY_SLOT}"></slot>`;
+            case "error":
+                return e.x`<slot name="${Ce.ERROR_SLOT}"></slot>`
+            }
+        }
+        render() {
+            return this.shouldRenderAsSlot ? this.renderAsSlot() : null != this.content ? this.content : e.x` <slot></slot> <slot name="${Ce.READY_SLOT}"></slot> <slot name="${Ce.ERROR_SLOT}"></slot> `
+        }
+        observerIsIntersectingCallback() {
+            this.disableObserver(),
+            this.load()
+        }
+        async load() {
+            try {
+                if (!this.bundleName)
+                    throw new Error("Unspecified bundle.");
+                Ae.add(this);
+                const e = Ce.Loaders;
+                if (0 === e.size)
+                    return;
+                const t = e.get(this.bundleName);
+                if (!t)
+                    throw new Error(`Invalid bundle: ${this.bundleName}.`);
+                if (this.shouldRenderWithPaintGroup && this.paintGroup) {
+                    const e = Ce.paintGroupLoaders.get(this.paintGroup);
+                    e?.push(t())
+                } else
+                    await t();
+                this.handleLoad()
+            } catch (e) {
+                this.handleLoadError(e)
+            }
+        }
+        async waitForPaintGroup() {
+            if (!this.paintGroup || !this.shouldRenderWithPaintGroup)
+                return;
+            const e = Ce.paintGroupLoaders.get(this.paintGroup);
+            var t;
+            e && (await Promise.race([Promise.all(e), (t = 2e3,
+            new Promise((e => {
+                window.setTimeout(e, t)
+            }
+            )))]))
+        }
+        async handleLoad() {
+            Ae.delete(this),
+            this.shouldRenderWithPaintGroup && (await this.waitForPaintGroup()),
+            this.shouldRenderAsSlot ? this.slotState = "ready" : this.renderTemplate(Ce.READY_SLOT)
+        }
+        handleLoadError(e) {
+            console.error("Error loading async bundle", e?.stack),
+            this.shouldRenderAsSlot ? this.slotState = "error" : this.renderTemplate(Ce.ERROR_SLOT),
+            window.Sentry?.withScope((e => {
+                e?.setTag?.("bundleName", this.bundleName),
+                window.Sentry?.captureMessage?.("Failed to load async bundle")
+            }
+            ))
+        }
+        renderTemplate(e) {
+            const t = this.findTemplate(e);
+            t && (this.content = he(t))
+        }
+        findTemplate(e) {
+            const t = this.shadowRoot?.querySelector(`slot[name=${e}]`);
+            if (!(t instanceof HTMLSlotElement))
+                return null;
+            const i = t?.assignedElements()[0];
+            return i instanceof HTMLTemplateElement ? i : null
+        }
+    }
+    ;
+    function Pe(e, t) {
+        var i;
+        e.removeController(t),
+        null === (i = t.hostDisconnected) || void 0 === i || i.call(t)
+    }
+    function Ne(e, t, i, n) {
+        const o = new g(e,( () => t));
+        return o.define("click", (e => i(e)), n),
+        o.define("mouseup", (e => {
+            1 === e.button && i(e)
+        }
+        ), n),
+        o.define("keydown", (e => {
+            "Enter" !== e.code && "Space" !== e.code || i(e)
+        }
+        ), n),
+        o
+    }
+    Re.styles = [ee],
+    Re.Loaders = new Map,
+    Re.addLoaders = e => {
+        for (const [t,i] of Object.entries(e))
+            Ce.Loaders.set(t, i);
+        for (const e of Ae)
+            e.load()
+    }
+    ,
+    Re.paintGroupLoaders = ( (e=Ie) => new Map(Object.values(e).map((e => [e, []]))))(),
+    Re.READY_SLOT = "ready",
+    Re.ERROR_SLOT = "error",
+    t([d({
+        type: String
+    })], Re.prototype, "bundleName", void 0),
+    t([d({
+        type: String
+    })], Re.prototype, "loading", void 0),
+    t([d({
+        type: String,
+        attribute: "paint-group",
+        converter: e => e
+    })], Re.prototype, "paintGroup", void 0),
+    t([d({
+        type: Boolean
+    })], Re.prototype, "shouldRenderAsSlot", void 0),
+    t([l()], Re.prototype, "content", void 0),
+    t([l()], Re.prototype, "shouldRenderWithPaintGroup", void 0),
+    t([l()], Re.prototype, "slotState", void 0),
+    Re = Ce = t([a("shreddit-async-loader")], Re);
+    function Oe(e, t, i, n) {
+        const o = new g(e,( () => t));
+        let r;
+        const a = () => r = r && window.clearTimeout(r)
+          , s = e => r = a() || window.setTimeout(( () => i(e)), 300);
+        return o.define("focusin", s, n),
+        o.define("mouseenter", s, n),
+        o.define("touchstart", s, n),
+        o.define("focusout", a, n),
+        o.define("mouseleave", a, n),
+        o.define("touchend", a, n),
+        o.define("touchcancel", a, n),
+        e.addController(o),
+        o
+    }
+    class we {
+        constructor(e) {
+            this._isConnected = !1,
+            this._host = e,
+            e.addController(this)
+        }
+        addController(e) {
+            var t, i;
+            (null !== (t = this._controllers) && void 0 !== t ? t : this._controllers = []).push(e),
+            this._isConnected && (null === (i = e.hostConnected) || void 0 === i || i.call(e))
+        }
+        removeController(e) {
+            var t;
+            null === (t = this._controllers) || void 0 === t || t.splice(this._controllers.indexOf(e) >>> 0, 1)
+        }
+        requestUpdate() {
+            this._host.requestUpdate()
+        }
+        get updateComplete() {
+            return this._host.updateComplete
+        }
+        hostConnected() {
+            var e;
+            null === (e = this._controllers) || void 0 === e || e.forEach((e => e.hostConnected && e.hostConnected())),
+            this._isConnected = !0
+        }
+        hostDisconnected() {
+            var e;
+            this._isConnected = !1,
+            null === (e = this._controllers) || void 0 === e || e.forEach((e => e.hostDisconnected && e.hostDisconnected()))
+        }
+        hostUpdate() {
+            var e;
+            null === (e = this._controllers) || void 0 === e || e.forEach((e => e.hostUpdate && e.hostUpdate()))
+        }
+        hostUpdated() {
+            var e;
+            null === (e = this._controllers) || void 0 === e || e.forEach((e => e.hostUpdated && e.hostUpdated()))
+        }
+    }
+    function De(e) {
+        return !!e && "object" == typeof e && !Array.isArray(e)
+    }
+    function Me(e, t) {
+        let i = null;
+        try {
+            const n = e.dataset[t];
+            if (n) {
+                const e = JSON.parse(n);
+                De(e) && (i = e)
+            }
+        } catch (e) {}
+        return i
+    }
+    class ke {
+        constructor(e, t, i) {
+            this._target = t;
+            let n = i;
+            const o = Me(t, "faceplateObserverConfig");
+            o && (n = i ? Object.assign(Object.assign({}, i), o) : o),
+            this._observer = new _e(n),
+            e.addController(this)
+        }
+        hostConnected() {
+            this._observer.observe(this._target)
+        }
+        hostDisconnected() {
+            this._observer.unobserve(this._target)
+        }
+    }
+    function Le(e, t, i, n) {
+        const o = new we(e);
+        new ke(o,t,n);
+        return new g(o,( () => t)).define("faceplate-enter", (e => i(e))),
+        o
+    }
+    class Ue {
+        constructor() {
+            let e, t;
+            this.promise = new Promise(( (i, n) => {
+                e = i,
+                t = n
+            }
+            )),
+            this.resolve = e,
+            this.reject = t
+        }
+    }
+    const Fe = new Map;
+    function Be(e) {
+        return Fe.has(e) || Fe.set(e, new Ue),
+        Fe.get(e)
+    }
+    function Ve(e) {
+        return Be(e).promise
+    }
+    const xe = new Map
+      , Ge = () => {
+        throw new Error("Class extending LoaderElement not configured!")
+    }
+    ;
+    function He(e, t) {
+        xe.set(e, t)
+    }
+    class We extends e.s {
+        constructor() {
+            super(...arguments),
+            this.readyMark = "",
+            this.setMark = "",
+            this.goMark = "",
+            this.src = "",
+            this.loading = Se.Lazy,
+            this._isLoading = !1,
+            this._load = async () => {
+                if (!this.isLoading)
+                    try {
+                        this.isLoading = !0,
+                        this._ctrl && (this._ctrl = Pe(this, this._ctrl));
+                        const e = await (xe.get(this.constructor) || Ge)
+                          , t = e instanceof Function ? e : e.loader
+                          , i = e instanceof Function ? void 0 : e.runner
+                          , n = v("faceplate-load-start");
+                        let o, r;
+                        this.dispatchEvent(n),
+                        t && (o = await t(this, this.src)),
+                        this.setMark && Be(this.setMark).resolve(),
+                        this.goMark && (await Ve(this.goMark)),
+                        i && (r = await i(this, o));
+                        const a = v("faceplate-load", {
+                            resource: (null == r ? void 0 : r.src) || this.src,
+                            src: this.src
+                        });
+                        this.dispatchEvent(a)
+                    } catch (e) {
+                        const t = v("faceplate-error", e);
+                        this.dispatchEvent(t)
+                    } finally {
+                        this.isLoading = !1
+                    }
+            }
+        }
+        get isLoading() {
+            return this._isLoading
+        }
+        set isLoading(e) {
+            this._isLoading = !!e
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            this._loaderInit()
+        }
+        async _loaderInit() {
+            this.readyMark && (await Ve(this.readyMark));
+            const {loading: e} = this;
+            e === Se.Action ? this._ctrl = Ne(this, this, this._load) : e === Se.Lazy ? this._ctrl = Le(this, this, this._load) : e === Se.Intent ? this._ctrl = Oe(this, this, this._load) : e !== Se.Eager && e !== Se.Preload || this._load()
+        }
+        load() {
+            if (this.loading !== Se.Programmatic)
+                throw new Error(`Calling load only supported with loading=${Se.Programmatic}`);
+            return this._load()
+        }
+    }
+    function ze(e) {
+        const t = e.headers.get("content-type");
+        return null == t ? void 0 : t.split(";")[0]
+    }
+    function je(e, t) {
+        if (t.startsWith("/"))
+            return !0;
+        let i;
+        try {
+            i = new URL(t)
+        } catch (e) {
+            return !0
+        }
+        const [n,o] = e.hostname.split(".").reverse()
+          , [r,a] = i.hostname.split(".").reverse();
+        return n === r && o === a
+    }
+    t([d({
+        type: String,
+        attribute: "readymark"
+    })], We.prototype, "readyMark", void 0),
+    t([d({
+        type: String,
+        attribute: "setmark"
+    })], We.prototype, "setMark", void 0),
+    t([d({
+        type: String,
+        attribute: "gomark"
+    })], We.prototype, "goMark", void 0);
+    let Ke = () => new URL(window.location.href);
+    var $e, qe;
+    !function(e) {
+        e.Omit = "omit",
+        e.SameOrigin = "same-origin",
+        e.Include = "include",
+        e.SameDomain = "same-domain"
+    }($e || ($e = {})),
+    function(e) {
+        e.UrlEncoded = "application/x-www-form-urlencoded",
+        e.FormData = "multipart/form-data",
+        e.JSON = "application/json"
+    }(qe || (qe = {}));
+    let Ye = async (e=1e4) => {
+        if (navigator.onLine)
+            return !0;
+        const t = AbortSignal.timeout(e);
+        return new Promise((e => {
+            window.addEventListener("online", ( () => e(!0)), {
+                once: !0,
+                signal: t
+            }),
+            t.addEventListener("abort", ( () => e(!1)), {
+                once: !0
+            })
+        }
+        ))
+    }
+    ;
+    function Qe(e, t, i={}) {
+        var r;
+        return o(this, arguments, (function*() {
+            const o = null === i.onlineStatusCheck ? null : null !== (r = i.onlineStatusCheck) && void 0 !== r ? r : Ye
+              , a = v("faceplate-request", {
+                resource: e,
+                request: t
+            });
+            if (yield yield n(a),
+            a.defaultPrevented)
+                return yield n(void 0);
+            const s = t
+              , {enctype: d} = i;
+            if (d === qe.FormData ? delete s.headers["Content-Type"] : d && (s.headers["Content-Type"] = d),
+            d) {
+                const e = i.encoders ? i.encoders[d] : void 0;
+                if (!e) {
+                    const e = new Error(`No encoder supplied for enctype ${d}`);
+                    return yield yield n(v("faceplate-error", e)),
+                    yield n(void 0)
+                }
+                s.body = yield n(e(t.body))
+            }
+            s.method === Te.Get && delete s.body,
+            i.credentials === $e.SameDomain ? je(Ke(), e) && (s.credentials = $e.Include) : i.credentials && i.credentials !== $e.Include ? s.credentials = i.credentials : delete s.credentials,
+            i.mode && (s.mode = i.mode);
+            try {
+                o && (yield n(o()));
+                const t = yield n(fetch(e, s));
+                yield yield n(v("faceplate-response", {
+                    response: t
+                }))
+            } catch (e) {
+                const t = e instanceof Error ? e : new Error(null == e ? void 0 : e.toString());
+                yield yield n(v("faceplate-error", t))
+            }
+        }
+        ))
+    }
+    function Je(e) {
+        return new Error(`Unsupported type File given for field ${e}. Use encoding type ${qe.FormData} for file upload.`)
+    }
+    function Xe(e) {
+        const t = new URLSearchParams;
+        for (const i of e) {
+            if (i[1]instanceof File)
+                throw Je(i[0]);
+            t.append(i[0], i[1])
+        }
+        return t
+    }
+    const Ze = e => new Promise((t => setTimeout(t, e)));
+    function et(e, t) {
+        return o(this, arguments, (function*() {
+            var i, a, s, d, l, c, u;
+            try {
+                for (var h, p = !0, m = r(function({attempts: e=1 / 0, budget: t=1 / 0, backoff: i=0, maxSleep: r=1 / 0, useJitter: a=!1}) {
+                    return o(this, arguments, (function*() {
+                        if (e <= 0)
+                            throw new TypeError("retry attempts must be a positive number");
+                        if (t <= 0)
+                            throw new TypeError("retry budget must be a positive number");
+                        if (i < 0)
+                            throw new TypeError("retry backoff cannot be a negative number");
+                        if (r <= 0)
+                            throw new TypeError("retry maxSleep must be a positive number");
+                        const o = Date.now();
+                        let s = t;
+                        yield yield n(s);
+                        for (let d = 1; d < e; d++) {
+                            if (i) {
+                                let e = Math.min(r, i * 2 ** (d - 1));
+                                if (a && (e *= Math.random() * e),
+                                e > s)
+                                    return yield n(void 0);
+                                yield n(Ze(e))
+                            }
+                            if (Number.isFinite(s)) {
+                                const e = Date.now() - o;
+                                if (s = t - e,
+                                s <= 0)
+                                    return yield n(void 0)
+                            }
+                            yield yield n(s)
+                        }
+                    }
+                    ))
+                }(t)); !(i = (h = yield n(m.next())).done); ) {
+                    h.value,
+                    p = !1;
+                    try {
+                        const t = e();
+                        try {
+                            for (var g, _ = !0, f = (l = void 0,
+                            r(t)); !(d = (g = yield n(f.next())).done); ) {
+                                u = g.value,
+                                _ = !1;
+                                try {
+                                    const e = u;
+                                    yield yield n(e)
+                                } finally {
+                                    _ = !0
+                                }
+                            }
+                        } catch (e) {
+                            l = {
+                                error: e
+                            }
+                        } finally {
+                            try {
+                                _ || d || !(c = f.return) || (yield n(c.call(f)))
+                            } finally {
+                                if (l)
+                                    throw l.error
+                            }
+                        }
+                    } finally {
+                        p = !0
+                    }
+                }
+            } catch (e) {
+                a = {
+                    error: e
+                }
+            } finally {
+                try {
+                    p || i || !(s = m.return) || (yield n(s.call(m)))
+                } finally {
+                    if (a)
+                        throw a.error
+                }
+            }
+        }
+        ))
+    }
+    const tt = {
+        enctype: qe.UrlEncoded,
+        encoders: {
+            [qe.UrlEncoded]: Xe
+        }
+    };
+    let it = () => {}
+      , nt = {
+        backoff: 500,
+        attempts: 3
+    };
+    const ot = {
+        credentials: $e.SameDomain,
+        mode: "no-cors"
+    };
+    class rt {
+        constructor(e) {
+            this.isRequestInProgress = !1,
+            this.host = e
+        }
+        buildRequest(e) {
+            const t = {
+                method: e.method || Te.Get,
+                body: e.body || new FormData,
+                headers: {}
+            };
+            return e.loading !== Se.Preload && (t.headers.Accept = "text/vnd.reddit.partial+html, text/html;q=0.9"),
+            t.method === Te.Get || (t.headers["Content-Type"] = qe.UrlEncoded),
+            t
+        }
+        validateRequestOptions(e) {
+            if (e.method && ![Te.Get, Te.Post].includes(e.method))
+                throw new Error(`Unsupported method ${e.method}`)
+        }
+        _handleError(e, t="partial-request-generic-failure") {
+            return v("faceplate-alert", {
+                level: ve.error,
+                message: "Request failed",
+                meta: null == e ? void 0 : e.toString(),
+                cause: t,
+                sourceElement: this.host.tagName
+            })
+        }
+        _handleNetworkError(e) {
+            return v("faceplate-alert", {
+                level: ve.error,
+                message: "Request failed",
+                meta: e.status,
+                alertDetails: {
+                    kind: "network",
+                    response: e
+                },
+                cause: `partial-request-network-error-${e.status}`,
+                sourceElement: this.host.tagName
+            })
+        }
+        _dispatchEventIfNotPrevented(e) {
+            e.defaultPrevented || this.host.dispatchEvent(e)
+        }
+        async request(e, t) {
+            var i, n, o, a;
+            this.isRequestInProgress = !0;
+            const s = `${Ke().origin}${"/" === e[0] ? "" : "/"}${e}`
+              , d = t && t.loading === Se.Preload ? ot : tt
+              , l = (null == t ? void 0 : t.onError) || it
+              , c = (null == t ? void 0 : t.retryOptions) || nt;
+            this.validateRequestOptions(t || {});
+            const u = et(( () => {
+                const e = this.buildRequest(t || {});
+                return Qe(s, e, d)
+            }
+            ), c);
+            try {
+                let e;
+                try {
+                    for (var h, p = !0, m = r(u); !(i = (h = await m.next()).done); ) {
+                        a = h.value,
+                        p = !1;
+                        try {
+                            const t = a;
+                            let i = !1;
+                            const n = () => {
+                                i = !0
+                            }
+                            ;
+                            if (e = void 0,
+                            "faceplate-error" === t.type) {
+                                const o = this._handleError(t.detail, "partial-request-fetch-failure");
+                                if (l({
+                                    event: o,
+                                    href: s,
+                                    retry: n
+                                }),
+                                this._dispatchEventIfNotPrevented(o),
+                                i) {
+                                    e = o.detail;
+                                    continue
+                                }
+                                return
+                            }
+                            if (this.host.dispatchEvent(t),
+                            t.defaultPrevented)
+                                return;
+                            if ("faceplate-response" === t.type) {
+                                const o = t.detail.response;
+                                if (!o.ok) {
+                                    const t = this._handleNetworkError(o);
+                                    if (l({
+                                        event: t,
+                                        res: o,
+                                        href: s,
+                                        retry: n
+                                    }),
+                                    this._dispatchEventIfNotPrevented(t),
+                                    i) {
+                                        e = t.detail;
+                                        continue
+                                    }
+                                    return
+                                }
+                                const r = ze(o);
+                                if ("text/vnd.reddit.partial+html" !== r)
+                                    throw new Error(`Unsupported content type "${r}" returned from ${s}`);
+                                return o
+                            }
+                        } finally {
+                            p = !0
+                        }
+                    }
+                } catch (e) {
+                    n = {
+                        error: e
+                    }
+                } finally {
+                    try {
+                        p || i || !(o = m.return) || (await o.call(m))
+                    } finally {
+                        if (n)
+                            throw n.error
+                    }
+                }
+                if (e) {
+                    const t = v("faceplate-alert", e);
+                    l({
+                        event: t,
+                        href: s
+                    }),
+                    this._dispatchEventIfNotPrevented(t)
+                }
+            } catch (e) {
+                const t = this._handleError(e, "partial-request-uncaught-failure");
+                l({
+                    event: t,
+                    error: e instanceof Error ? e : void 0,
+                    href: s
+                }),
+                this._dispatchEventIfNotPrevented(t)
+            } finally {
+                this.isRequestInProgress = !1
+            }
+        }
+    }
+    const at = "function" == typeof document.createRange;
+    var st;
+    function dt(e) {
+        const t = e.cloneNode();
+        return document.createRange().createContextualFragment(t.outerHTML).children[0]
+    }
+    function lt(e, t, i) {
+        var n, o;
+        const r = ct(e)
+          , a = document.createDocumentFragment();
+        for (const e of r) {
+            const t = null === (n = e.getAttribute("data-faceplate-swap-oob")) || void 0 === n ? void 0 : n.split(":");
+            if (null == t ? void 0 : t.length) {
+                const i = t.length > 1 ? t[0] : ye.Replace;
+                e.removeAttribute("data-faceplate-swap-oob");
+                const n = null !== (o = t[1]) && void 0 !== o ? o : t[0]
+                  , r = document.querySelectorAll(n);
+                if (!r.length)
+                    throw new Error(`Unable to find target node for out-of-band render: ${n}`);
+                for (const t of r)
+                    lt(e.outerHTML, t, i)
+            } else
+                a.appendChild(e)
+        }
+        !function(e, t, i) {
+            const n = (new XMLSerializer).serializeToString(e).replace(/xmlns="[^"]*html[^"]*"/g, "");
+            switch (i) {
+            case ye.Append:
+                return void t.insertAdjacentHTML("beforeend", n);
+            case ye.Prepend:
+                return void t.insertAdjacentHTML("afterbegin", n);
+            case ye.After:
+                return void t.insertAdjacentHTML("afterend", n);
+            case ye.Before:
+                return void t.insertAdjacentHTML("beforebegin", n);
+            case ye.Replace:
+                if (!t.parentNode)
+                    throw new Error("Attemping to use partial replace mode on target without a parent node!");
+                return t.parentNode.insertBefore(e, t),
+                void t.remove();
+            case ye.Contents:
+                return t.textContent = "",
+                void t.appendChild(e);
+            default:
+                throw new Error(`Attempting to use unsupported partial mode '${i}'!`)
+            }
+        }(a, t, i)
+    }
+    function ct(e) {
+        const t = document.createElement("template");
+        t.innerHTML = e;
+        const i = Array.from(t.content.children);
+        if (!at)
+            return i;
+        for (let e = 0; e < i.length; e++) {
+            const t = i[e];
+            if ("FACEPLATE-BATCH" === t.nodeName) {
+                const n = dt(t)
+                  , o = customElements.get(t.nodeName.toLowerCase());
+                if (!(o && n instanceof o))
+                    continue;
+                const r = n.getCurrentTarget(t)
+                  , a = Array.from(r.children);
+                if (r.innerHTML = "",
+                r !== t)
+                    for (const e of Array.from(t.children))
+                        n.appendChild(e);
+                if (r !== t && r.nodeName.includes("-")) {
+                    const e = dt(r);
+                    r.replaceWith(e)
+                }
+                n.batchInsert(a),
+                i[e] = n
+            }
+        }
+        return i
+    }
+    !function(e) {
+        e.Append = "append",
+        e.Replace = "replace",
+        e.Contents = "contents"
+    }(st || (st = {}));
+    const ut = e => {
+        var t;
+        return null !== (t = null == e ? void 0 : e.toLowerCase()) && void 0 !== t ? t : ""
+    }
+    ;
+    function ht(e) {
+        throw 1
+    }
+    class pt extends We {
+        constructor() {
+            super(...arguments),
+            this.src = "",
+            this.target = "",
+            this.loading = Se.Eager,
+            this.renderMode = ye.Replace,
+            this.method = Te.Get,
+            this.alwaysShowSlot = !1,
+            this.partialRequest = new rt(this)
+        }
+        get isLoading() {
+            return !!this.partialRequest && this.partialRequest.isRequestInProgress
+        }
+        set isLoading(e) {}
+        static get styles() {
+            return e.i`:host{display:block}:host([loading=action]){cursor:pointer}`
+        }
+        _shouldShowLoadingSlot() {
+            var e;
+            if (!(null === (e = this.partialRequest) || void 0 === e ? void 0 : e.isRequestInProgress))
+                return !1;
+            switch (this.loading) {
+            case Se.Action:
+            case Se.Intent:
+            case Se.Programmatic:
+                return !0;
+            case Se.Eager:
+            case Se.Preload:
+            case Se.Lazy:
+                return !1
+            }
+            return ht(this.loading)
+        }
+        _shouldUsePlaceholder() {
+            if (this.alwaysShowSlot || this.renderMode !== ye.Replace)
+                return !1;
+            switch (this.loading) {
+            case Se.Lazy:
+                return !0;
+            case Se.Action:
+            case Se.Eager:
+            case Se.Intent:
+            case Se.Preload:
+            case Se.Programmatic:
+                return !1
+            }
+            return ht(this.loading)
+        }
+        updated() {
+            if (!this._shouldUsePlaceholder() || this._slotCapture)
+                return;
+            const e = this._shouldShowLoadingSlot()
+              , t = Array.from(e ? this.querySelectorAll("[slot=loading]") : this.childNodes);
+            this._slotCapture = new DocumentFragment,
+            t.forEach((e => {
+                var t;
+                "INPUT" !== e.nodeName && (null === (t = this._slotCapture) || void 0 === t || t.appendChild(e))
+            }
+            ));
+            const i = document.createElement("div");
+            i.style.minHeight = "1px",
+            i.style.minWidth = "1px",
+            i.style.marginBottom = "-1px",
+            e && i.setAttribute("slot", "loading"),
+            this.appendChild(i)
+        }
+        render() {
+            var t;
+            const i = this.loading === Se.Action && !(null === (t = this.partialRequest) || void 0 === t ? void 0 : t.isRequestInProgress)
+              , n = this._shouldShowLoadingSlot();
+            return e.x` <div tabindex="${e.l(i ? 0 : void 0)}"> <slot name="${e.l(n ? "loading" : void 0)}"></slot> </div> `
+        }
+        loadContent() {
+            return this._load()
+        }
+        async _loadContent() {
+            var e, t, i;
+            if (!this.src)
+                throw new Error("No src attribute specified on faceplate-partial element.");
+            if (null === (e = this.partialRequest) || void 0 === e ? void 0 : e.isRequestInProgress)
+                throw new Error("Request already in progress on faceplate-partial element.");
+            let n;
+            if (this.method === Te.Post && (n = new FormData,
+            this.method === Te.Post)) {
+                const e = this.querySelectorAll("input[type=hidden]");
+                for (let t = 0; t < e.length; t++) {
+                    const i = e[t];
+                    !i.disabled && i.name && n.append(i.name, i.value)
+                }
+            }
+            this._slotCapture && (this._shouldShowLoadingSlot() ? null === (t = this.querySelector("[slot=loading]")) || void 0 === t || t.remove() : this.innerHTML = "",
+            this.appendChild(this._slotCapture));
+            const o = null === (i = this.partialRequest) || void 0 === i ? void 0 : i.request(this.src, {
+                body: n,
+                method: this.method,
+                loading: this.loading
+            });
+            this.loading === Se.Action && this.requestUpdate();
+            const r = await o;
+            return r || this.loading !== Se.Action || this.requestUpdate(),
+            null == r ? void 0 : r.text()
+        }
+        _renderContent(e) {
+            let t = null;
+            const i = this.target ? document.querySelectorAll(this.target) : [this];
+            (null == i ? void 0 : i.length) || console.warn("No target element found for faceplate-partial element.", this);
+            for (const n of i) {
+                const i = this.renderMode === ye.Replace
+                  , o = n.previousSibling;
+                if (o || (t = n.parentNode),
+                e && this.parentElement && (lt(e, n, this.renderMode),
+                i)) {
+                    const e = o ? o.nextSibling : t ? t.firstElementChild : null;
+                    if (e) {
+                        const t = v("faceplate-load", {
+                            resource: this.src,
+                            src: this.src
+                        });
+                        e.dispatchEvent(t)
+                    }
+                }
+            }
+        }
+    }
+    t([d({
+        type: String
+    })], pt.prototype, "src", void 0),
+    t([d({
+        type: String
+    })], pt.prototype, "target", void 0),
+    t([d({
+        type: String
+    })], pt.prototype, "loading", void 0),
+    t([d({
+        type: String,
+        attribute: "render-mode"
+    })], pt.prototype, "renderMode", void 0),
+    t([d({
+        converter: ut
+    })], pt.prototype, "method", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "always-show-slot"
+    })], pt.prototype, "alwaysShowSlot", void 0),
+    He(pt, {
+        loader: e => e._loadContent(),
+        runner: (e, t) => e._renderContent(t)
+    });
+    function mt(e, t) {
+        const i = v("faceplate-track", t)
+          , n = gt(t);
+        i.SAN = n,
+        e.dispatchEvent(i)
+    }
+    function gt(e) {
+        return `${e.source}/${e.action}/${e.noun}`.toLowerCase()
+    }
+    function _t(e, t) {
+        for (const i in t) {
+            if ("source" === i || "action" === i || "noun" === i)
+                continue;
+            const n = t[i]
+              , o = e[i];
+            null == o ? e[i] = n : De(o) && De(n) && _t(o, n)
+        }
+    }
+    !!window.customElements.get("faceplate-partial") || window.customElements.define("faceplate-partial", pt);
+    const ft = {
+        fromAttribute: e => e.trim().split(/ +/),
+        toAttribute: e => e.join(" ")
+    }
+      , Et = {
+        fromAttribute: e => e.trim().split(","),
+        toAttribute: e => e.join(",")
+    }
+      , vt = {
+        rootMargin: "0px"
+    };
+    let St = class extends e.s {
+        constructor() {
+            super(...arguments),
+            this.source = "",
+            this.action = "",
+            this.noun = "",
+            this.loadingModifier = [],
+            this._fireMode = be.Always,
+            this._trackEvent = () => {
+                this._ctrl && this._fireMode === be.Once && (this._ctrl = Pe(this, this._ctrl));
+                const {source: e, action: t, noun: i} = this;
+                e && t && i && mt(this, {
+                    source: e,
+                    action: t,
+                    noun: i
+                })
+            }
+        }
+        get loading() {
+            return "click" === this.action ? Se.Action : "view" === this.action ? Se.Lazy : Se.Programmatic
+        }
+        createRenderRoot() {
+            return this
+        }
+        connectedCallback() {
+            super.connectedCallback();
+            const {loading: e} = this;
+            e === Se.Action ? this._ctrl = Ne(this, this, this._trackEvent) : e === Se.Lazy && (this._ctrl = Le(this, this, this._trackEvent, vt),
+            this._fireMode = be.Once);
+            for (const e of this.loadingModifier)
+                switch (e) {
+                case be.Once:
+                case be.Always:
+                    this._fireMode = e
+                }
+        }
+        disconnectedCallback() {
+            super.disconnectedCallback(),
+            this._ctrl && (this._ctrl = Pe(this, this._ctrl))
+        }
+        trackEvent() {
+            if (this.loading !== Se.Programmatic)
+                throw new Error(`Calling trackEvent only supported with loading=${Se.Programmatic}`);
+            return this._trackEvent()
+        }
+    }
+    ;
+    t([d({
+        type: String
+    })], St.prototype, "source", void 0),
+    t([d({
+        type: String
+    })], St.prototype, "action", void 0),
+    t([d({
+        type: String
+    })], St.prototype, "noun", void 0),
+    t([d({
+        converter: ft,
+        attribute: "loading-modifier"
+    })], St.prototype, "loadingModifier", void 0),
+    St = t([a("faceplate-tracker")], St);
+    let bt = class extends Event {
+        constructor(e, t, i) {
+            super("context-request", {
+                bubbles: !0,
+                composed: !0
+            }),
+            this.context = e,
+            this.callback = t,
+            this.subscribe = i
+        }
+    }
+    ;
+    function Tt(e) {
+        return e
+    }
+    let yt = class {
+        constructor(e, t, i, n) {
+            var o;
+            if (this.subscribe = !1,
+            this.provided = !1,
+            this.value = void 0,
+            this.t = (e, t) => {
+                this.unsubscribe && (this.unsubscribe !== t && (this.provided = !1,
+                this.unsubscribe()),
+                this.subscribe || this.unsubscribe()),
+                this.value = e,
+                this.host.requestUpdate(),
+                this.provided && !this.subscribe || (this.provided = !0,
+                this.callback && this.callback(e, t)),
+                this.unsubscribe = t
+            }
+            ,
+            this.host = e,
+            void 0 !== t.context) {
+                const e = t;
+                this.context = e.context,
+                this.callback = e.callback,
+                this.subscribe = null !== (o = e.subscribe) && void 0 !== o && o
+            } else
+                this.context = t,
+                this.callback = i,
+                this.subscribe = null != n && n;
+            this.host.addController(this)
+        }
+        hostConnected() {
+            this.dispatchRequest()
+        }
+        hostDisconnected() {
+            this.unsubscribe && (this.unsubscribe(),
+            this.unsubscribe = void 0)
+        }
+        dispatchRequest() {
+            this.host.dispatchEvent(new bt(this.context,this.t,this.subscribe))
+        }
+    }
+      , It = class {
+        constructor(e) {
+            this.disposers = new Map,
+            this.updateObservers = () => {
+                for (const [e,t] of this.disposers)
+                    e(this.o, t)
+            }
+            ,
+            void 0 !== e && (this.value = e)
+        }
+        get value() {
+            return this.o
+        }
+        set value(e) {
+            this.setValue(e)
+        }
+        setValue(e, t=!1) {
+            const i = t || !Object.is(e, this.o);
+            this.o = e,
+            i && this.updateObservers()
+        }
+        addCallback(e, t) {
+            if (t) {
+                this.disposers.has(e) || this.disposers.set(e, ( () => {
+                    this.disposers.delete(e)
+                }
+                ));
+                const t = this.disposers.get(e);
+                e(this.value, t)
+            } else
+                e(this.value)
+        }
+        clearCallbacks() {
+            this.disposers.clear()
+        }
+    }
+      , Ct = class extends Event {
+        constructor(e) {
+            super("context-provider", {
+                bubbles: !0,
+                composed: !0
+            }),
+            this.context = e
+        }
+    }
+      , At = class extends It {
+        constructor(e, t, i) {
+            super(void 0 !== t.context ? t.initialValue : i),
+            this.onContextRequest = e => {
+                e.context === this.context && e.composedPath()[0] !== this.host && (e.stopPropagation(),
+                this.addCallback(e.callback, e.subscribe))
+            }
+            ,
+            this.host = e,
+            void 0 !== t.context ? this.context = t.context : this.context = t,
+            this.attachListeners(),
+            this.host.addController(this)
+        }
+        attachListeners() {
+            this.host.addEventListener("context-request", this.onContextRequest)
+        }
+        hostConnected() {
+            this.host.dispatchEvent(new Ct(this.context))
+        }
+    }
+    ;
+    function Rt({context: e}) {
+        return c({
+            finisher: (t, i) => {
+                const n = new WeakMap;
+                t.addInitializer((t => {
+                    n.set(t, new At(t,{
+                        context: e
+                    }))
+                }
+                ));
+                const o = Object.getOwnPropertyDescriptor(t.prototype, i)
+                  , r = null == o ? void 0 : o.set
+                  , a = {
+                    ...o,
+                    set: function(e) {
+                        var t;
+                        null === (t = n.get(this)) || void 0 === t || t.setValue(e),
+                        r && r.call(this, e)
+                    }
+                };
+                Object.defineProperty(t.prototype, i, a)
+            }
+        })
+    }
+    function Pt({context: e, subscribe: t}) {
+        return c({
+            finisher: (i, n) => {
+                i.addInitializer((i => {
+                    new yt(i,{
+                        context: e,
+                        callback: e => {
+                            i[n] = e
+                        }
+                        ,
+                        subscribe: t
+                    })
+                }
+                ))
+            }
+        })
+    }
+    var Nt, Ot, wt = {}, Dt = {
+        get exports() {
+            return wt
+        },
+        set exports(e) {
+            wt = e
+        }
+    };
+    Nt = function() {
+        function e() {
+            for (var e = 0, t = {}; e < arguments.length; e++) {
+                var i = arguments[e];
+                for (var n in i)
+                    t[n] = i[n]
+            }
+            return t
+        }
+        function t(e) {
+            return e.replace(/(%[0-9A-Z]{2})+/g, decodeURIComponent);
+        }
+        return function i(n) {
+            function o() {}
+            function r(t, i, r) {
+                if ("undefined" != typeof document) {
+                    "number" == typeof (r = e({
+                        path: "/"
+                    }, o.defaults, r)).expires && (r.expires = new Date(1 * new Date + 864e5 * r.expires)),
+                    r.expires = r.expires ? r.expires.toUTCString() : "";
+                    try {
+                        var a = JSON.stringify(i);
+                        /^[\{\[]/.test(a) && (i = a)
+                    } catch (e) {}
+                    i = n.write ? n.write(i, t) : encodeURIComponent(String(i)).replace(/%(23|24|26|2B|3A|3C|3E|3D|2F|3F|40|5B|5D|5E|60|7B|7D|7C)/g, decodeURIComponent),
+                    t = encodeURIComponent(String(t)).replace(/%(23|24|26|2B|5E|60|7C)/g, decodeURIComponent).replace(/[\(\)]/g, escape);
+                    var s = "";
+                    for (var d in r)
+                        r[d] && (s += "; " + d,
+                        !0 !== r[d] && (s += "=" + r[d].split(";")[0]));
+                    return document.cookie = t + "=" + i + s
+                }
+            }
+            function a(e, i) {
+                if ("undefined" != typeof document) {
+                    for (var o = {}, r = document.cookie ? document.cookie.split("; ") : [], a = 0; a < r.length; a++) {
+                        var s = r[a].split("=")
+                          , d = s.slice(1).join("=");
+                        i || '"' !== d.charAt(0) || (d = d.slice(1, -1));
+                        try {
+                            var l = t(s[0]);
+                            if (d = (n.read || n)(d, l) || t(d),
+                            i)
+                                try {
+                                    d = JSON.parse(d)
+                                } catch (e) {}
+                            if (o[l] = d,
+                            e === l)
+                                break
+                        } catch (e) {}
+                    }
+                    return e ? o[e] : o
+                }
+            }
+            return o.set = r,
+            o.get = function(e) {
+                return a(e, !1)
+            }
+            ,
+            o.getJSON = function(e) {
+                return a(e, !0)
+            }
+            ,
+            o.remove = function(t, i) {
+                r(t, "", e(i, {
+                    expires: -1
+                }))
+            }
+            ,
+            o.defaults = {},
+            o.withConverter = i,
+            o
+        }((function() {}
+        ));
+    }
+    ,
+    Dt.exports = Nt();
+    var Mt = new Uint8Array(16);
+    function kt() {
+        if (!Ot && !(Ot = "undefined" != typeof crypto && crypto.getRandomValues && crypto.getRandomValues.bind(crypto) || "undefined" != typeof msCrypto && "function" == typeof msCrypto.getRandomValues && msCrypto.getRandomValues.bind(msCrypto)))
+            throw new Error("crypto.getRandomValues() not supported. See https://github.com/uuidjs/uuid#getrandomvalues-not-supported");
+        return Ot(Mt)
+    }
+    var Lt = /^(?:[0-9a-f]{8}-[0-9a-f]{4}-[1-5][0-9a-f]{3}-[89ab][0-9a-f]{3}-[0-9a-f]{12}|00000000-0000-0000-0000-000000000000)$/i;
+    for (var Ut = [], Ft = 0; Ft < 256; ++Ft)
+        Ut.push((Ft + 256).toString(16).substr(1));
+    function Bt(e) {
+        var t = arguments.length > 1 && void 0 !== arguments[1] ? arguments[1] : 0
+          , i = (Ut[e[t + 0]] + Ut[e[t + 1]] + Ut[e[t + 2]] + Ut[e[t + 3]] + "-" + Ut[e[t + 4]] + Ut[e[t + 5]] + "-" + Ut[e[t + 6]] + Ut[e[t + 7]] + "-" + Ut[e[t + 8]] + Ut[e[t + 9]] + "-" + Ut[e[t + 10]] + Ut[e[t + 11]] + Ut[e[t + 12]] + Ut[e[t + 13]] + Ut[e[t + 14]] + Ut[e[t + 15]]).toLowerCase();
+        if (!function(e) {
+            return "string" == typeof e && Lt.test(e)
+        }(i))
+            throw TypeError("Stringified UUID is invalid");
+        return i
+    }
+    function Vt(e, t, i) {
+        var n = (e = e || {}).random || (e.rng || kt)();
+        if (n[6] = 15 & n[6] | 64,
+        n[8] = 63 & n[8] | 128,
+        t) {
+            i = i || 0;
+            for (var o = 0; o < 16; ++o)
+                t[i + o] = n[o];
+            return t
+        }
+        return Bt(n)
+    }
+    class xt extends we {
+        constructor(e, t) {
+            super(e),
+            this._events = new g(this,( () => this._host)),
+            this.trackEvent = t,
+            this._events.define("faceplate-track", (e => {
+                const t = e.detail
+                  , i = e.SAN || gt(t)
+                  , n = e.composedPath();
+                for (const e of n)
+                    if (e instanceof HTMLElement) {
+                        const i = Me(e, "faceplateTrackingContext");
+                        i && _t(t, i)
+                    }
+                this.trackEvent(t, i)
+            }
+            ))
+        }
+    }
+    const Gt = f()
+      , Ht = E("AlertReportingElement")
+      , Wt = Ht.registerAncestorClass
+      , zt = Ht.connectToAncestor
+      , jt = {
+        fromAttribute(e) {
+            if (e in ve)
+                return ve[e]
+        },
+        toAttribute(e) {
+            if (e in ve)
+                return ve[e]
+        }
+    };
+    function Kt(e, t, i, n) {
+        return {
+            level: e,
+            message: t,
+            meta: i[0] && "string" == typeof i[0] ? i.join("\n") : void 0,
+            count: n
+        }
+    }
+    class $t {
+        constructor(e) {
+            this._handleAlertEvent = e => {
+                const t = e.detail;
+                this.report(t) && e.stopImmediatePropagation()
+            }
+            ,
+            e.addController(this),
+            Wt(e.constructor),
+            this.host = e
+        }
+        hostConnected() {
+            this.host.addEventListener("faceplate-alert", this._handleAlertEvent)
+        }
+        hostDisconnected() {
+            this.host.removeEventListener("faceplate-alert", this._handleAlertEvent)
+        }
+        report(e) {
+            const t = Gt.getRegisteredElements(this.host);
+            if (t)
+                for (const i of t)
+                    if (i.shouldDisplayAlert(e))
+                        return i.displayAlert(e),
+                        !0;
+            return !1
+        }
+    }
+    var qt, Yt, Qt;
+    !function(e) {
+        e.MOBILE = "mobile",
+        e.TABLET = "tablet",
+        e.DESKTOP = "desktop"
+    }(qt || (qt = {})),
+    function(e) {
+        e.Seo = "seo",
+        e.Reddit = "reddit",
+        e.RedditSearch = "reddit_search",
+        e.Other = "other",
+        e.Invalid = "invalid"
+    }(Yt || (Yt = {})),
+    function(e) {
+        e.All = "all",
+        e.AllChats = "all_chats",
+        e.AllChatsSpoke = "all_chats_spoke",
+        e.AchievementsMain = "achievements_main",
+        e.AchievementDetail = "achievement_detail",
+        e.AchievementsCategory = "achievement_category",
+        e.AchievementsCategoryPreview = "achievements_category_preview",
+        e.AchievementPreview = "achievement_preview",
+        e.AnnouncementDetailPage = "announcement_detail_page",
+        e.ArenaFeed = "arena",
+        e.ArticleCommunities = "article_communities",
+        e.ArticleDetails = "article_details",
+        e.ArticleFeed = "article_feed",
+        e.ArticleInsights = "article_insights",
+        e.ArticleRssFeedList = "article_rss_feed_list",
+        e.BoostPostPage = "boost_post_page",
+        e.Community = "community",
+        e.CountryPage = "country_page",
+        e.CommunityOverflow = "community_overflow",
+        e.CommunityWiki = "community_wiki",
+        e.CommunityManagement = "community_page",
+        e.CommentStats = "comment_insights",
+        e.CustomFeed = "custom_feed",
+        e.DataRequest = "data_request",
+        e.DeleteRssFeedConfirmationModal = "delete_rss_feed_confirmation_modal",
+        e.DevplatformCustomPost = "custom_post",
+        e.DynamicFeed = "dynamic_feed",
+        e.GeoCuratedFeed = "geo_curated_feed",
+        e.Home = "home",
+        e.Inbox = "inbox",
+        e.InventoryDetail = "inventory_detail",
+        e.KeywordManagement = "keyword_landing",
+        e.Multireddit = "multireddit",
+        e.Popular = "popular",
+        e.PostCreation = "post_submit",
+        e.PostDetail = "post_detail",
+        e.ModOnboardingGuideSettings = "moderation_onboarding_guide_setup",
+        e.PostEligibilityModal = "post_eligibility_modal",
+        e.PostEligibilityRecommendations = "post_eligibility_recommendations",
+        e.PrivateMessages = "messages",
+        e.PostQueue = "post_queue",
+        e.PostStats = "post_stats",
+        e.ProfileAccountStats = "profile_account_stats",
+        e.ProfileAccountStatsCharts = "account-stats-charts",
+        e.ProfileComments = "profile_comments",
+        e.ProfileCommentStatsDownload = "profile_comment_stats_download",
+        e.ProfileCommunityFinder = "profile_community_finder",
+        e.ProfileDashboard = "profile_dashboard",
+        e.ProfileDashboardPerformanceOverview = "profile_dashboard_performance_overview",
+        e.ProfileDashboardTrendingConvos = "profile_dashboard_trending_convos",
+        e.ProfileDownvoted = "profile_downvoted",
+        e.ProfileHidden = "profile_hidden",
+        e.ProfileHistory = "profile_history",
+        e.ProfileOverview = "profile_overview",
+        e.ProfilePerformance = "profile_performance",
+        e.ProfilePerformanceComments = "profile_performance_comments",
+        e.ProfilePosts = "profile_posts",
+        e.ProfilePostStatsDownload = "profile_post_stats_download",
+        e.ProfileRelatedKeywords = "profile_related_keywords",
+        e.ProfileSaved = "profile_saved",
+        e.ProfileSubmitted = "profile_submitted",
+        e.ProfileTrendsLanding = "profile_trends_landing",
+        e.ProfileTrendingConvos = "profile_trending_convos",
+        e.ProfileTrendingConvoDetails = "profile_trending_convo_details",
+        e.ProfileTrends = "profile_trends",
+        e.ProfileUpvoted = "profile_upvoted",
+        e.ProfileTrendMonitoring = "profile_trend_monitoring",
+        e.ProfileModeration = "profile_moderation",
+        e.PublisherCommunities = "publisher_communities",
+        e.EmailVerificationError = "email_verification_error",
+        e.BrandMention = "brand_mention",
+        e.SeoCommunityDirectory = "seo_community_directory",
+        e.SingleCommentThread = "single_comment_thread",
+        e.Unknown = "unknown",
+        e.UserManagementMute = "moderation_pages_muted",
+        e.UserManagementBan = "moderation_pages_banned",
+        e.UserPosts = "user_posts",
+        e.AdsRblSurvey = "ads_rbl_survey_iframe",
+        e.Policies = "policies",
+        e.MiniInbox = "mini_inbox",
+        e.ModAchievements = "achievement_mod_tools",
+        e.ModChatChannels = "mod_chat_channels",
+        e.ModInsightsGrowth = "mod_insights_growth",
+        e.ModInsightsReportsAndRemovals = "reports_and_removals_page",
+        e.ModInsightsTeamHealth = "mod_insights_team_health",
+        e.ModApplication = "mod_application",
+        e.ModAutomations = "moderation_pages_postguidance",
+        e.ModPostAndCommentSettings = "moderation_pages_edit",
+        e.ModLog = "moderation_pages_log",
+        e.ModQueue = "moderation_pages_modqueue",
+        e.ModQueueAll = "moderation_pages_modqueue_all",
+        e.ModQueuePdp = "moderation_pages_modqueue_pdp",
+        e.ModRules = "moderation_pages_rules",
+        e.ModRuleInsights = "moderation_pages_rule_insights",
+        e.ModCommunityGuide = "moderation_pages_communityguide",
+        e.ModRecruitment = "mod_recruitment",
+        e.ModRecruitmentSuggestedCandidates = "mod_recruitment_suggested_candidates",
+        e.ModSettingsGeneral = "moderation_pages_settings_general",
+        e.ModSettingsPrivacy = "moderation_pages_settings_privacy",
+        e.ModSettingsNotifications = "moderation_pages_settings_notifications",
+        e.ModScheduledPosts = "scheduled_posts",
+        e.ModSavedResponses = "moderation_saved_responses",
+        e.ModWiki = "moderation_pages_wiki",
+        e.TemporaryEvents = "temporary_events",
+        e.TemporaryEventsCreate = "temporary_events_create",
+        e.TemporaryEventsEditTemplate = "temporary_events_edit_config",
+        e.TemporaryEventsView = "temporary_events_view_run",
+        e.RedditProOnboardingPage = "reddit_pro_onboarding",
+        e.ProductsHub = "products-hub",
+        e.SearchDropdown = "search_dropdown",
+        e.SearchResults = "search_results",
+        e.SearchResultsTrending = "search_results_trending",
+        e.SocialPreviewPage = "social_preview",
+        e.TrendsPreviewPage = "trends_preview",
+        e.TopicPage = "topic",
+        e.ExplorePage = "explore",
+        e.ExploreTopicPage = "explore-topic",
+        e.Embed = "embed",
+        e.Vault = "vault",
+        e.VideoWatchPage = "video_watch_page",
+        e.CDNMediaPage = "cdn_media_page",
+        e.SafetySubredditSettings = "safety_subreddit_settings",
+        e.Avatar = "avatar",
+        e.AvatarTabs = "avatar_tabs",
+        e.DisplayCollectibles = "display_collectibles",
+        e.UserRecap = "user_recap",
+        e.SubredditRecap = "subreddit_recap",
+        e.PremiumHub = "premium_hub",
+        e.PremiumMarketing = "premium_marketing",
+        e.ProductDetailPage = "product_detail_page",
+        e.ProductInsights = "product_insights",
+        e.ProductInsightDetailsPage = "product_insight_details_page",
+        e.ProductConversationsPage = "product_conversations_page",
+        e.ProductCommunitiesPage = "product_communities_page",
+        e.ProductMentionsFeedPage = "product_details_insights_mentions_feed_page",
+        e.GoldPage = "gold_page",
+        e.EarnedGoldPage = "earned_gold_page",
+        e.Earn = "earn",
+        e.Login = "login",
+        e.Register = "register",
+        e.OidcCallback = "oidc_callback",
+        e.Report = "report",
+        e.Password = "password",
+        e.PasswordRecovery = "passwordrecovery",
+        e.Username = "username",
+        e.Klp = "klp",
+        e.Recipe = "recipe",
+        e.FlairsModal = "flairs_modal",
+        e.FlairsList = "flairs_list",
+        e.SettingsAccount = "settings_account",
+        e.SettingsPrivacy = "settings_privacy",
+        e.SettingsPreferences = "settings_preferences",
+        e.SettingsProfile = "settings_profile",
+        e.SettingsEmails = "settings_emails",
+        e.SettingsRedirect = "settings_redirect",
+        e.SettingsChatPrivacy = "settings_chat_privacy",
+        e.SettingsChatAllowlist = "settings_chat_allowlist",
+        e.ChatRequestSettings = "chat_request_settings",
+        e.PmRequestSettings = "pm_request_settings",
+        e.PmArchive = "pm_archive",
+        e.PmArchiveConversation = "pm_archive_conversation",
+        e.Guides = "gen_guides",
+        e.GuidesConversation = "gen_guides_conversation",
+        e.SettingsNotifications = "settings_notifications",
+        e.SettingsDisabledAdminNotifications = "settings_disabled_admin_notifications",
+        e.UserFlairSettings = "moderation_pages_userflair",
+        e.UserFlairSettingsPrompt = "user_flair_picker",
+        e.PostFlairSettings = "moderation_pages_postflair",
+        e.LookAndFeelSettings = "moderation_pages_lookandfeel",
+        e.EmojiSettings = "moderation_pages_emojis",
+        e.NewPhoneOTPAuth = "new_phone_auth_otp",
+        e.CurrentPhoneOTPAuth = "current_phone_auth_otp",
+        e.Moderators = "moderation_pages_moderators",
+        e.InvitedModerators = "moderation_pages_invites",
+        e.ApprovedUsers = "moderation_pages_approved_users",
+        e.ComposeMessage = "compose_message",
+        e.UserHovercard = "user_hovercard",
+        e.Profile = "profile",
+        e.Announcement = "announcement_page",
+        e.Appeal = "appeal",
+        e.OnboardingAgeCollection = "onboarding_age_collection",
+        e.OnboardingGenderSelection = "onboarding_gender_collection",
+        e.OnboardingInterest = "onboarding_interest",
+        e.OnboardingLanguage = "onboarding_language",
+        e.OnboardingEmailPermission = "onboarding_email_permission",
+        e.OnboardingComplete = "onboarding_complete_spinner",
+        e.OnboardingBroadTopics = "onboarding_broad_topics",
+        e.ReRedditPage = "rereddit_page",
+        e.SubredditAbout = "subreddit_about",
+        e.UnsharedArticleFeed = "unshared_article_feed"
+    }(Qt || (Qt = {}));
+    var Jt, Xt, Zt, ei, ti, ii;
+    !function(e) {
+        e.Link = "link",
+        e.Text = "text",
+        e.Image = "image",
+        e.Gif = "gif",
+        e.Video = "video",
+        e.Crosspost = "crosspost",
+        e.MultiMedia = "multi_media",
+        e.RTJSON = "rtjson",
+        e.Poll = "poll",
+        e.LiveAudio = "liveaudio",
+        e.RPAN = "rpan",
+        e.Gallery = "gallery",
+        e.Tournament = "tournament"
+    }(Jt || (Jt = {})),
+    function(e) {
+        e.FEED = "feed",
+        e.FULL_BLEED_VIDEO_FEED = "full_bleed_video_feed",
+        e.COMMENTS_PAGE = "comments_page",
+        e.COMMENT_TREES = "comment_trees",
+        e.SIDEBARS = "sidebars",
+        e.TRENDING_DISCOVERY = "trending_discovery",
+        e.TRENDING_SEARCH_RESULT = "trending_search_result",
+        e.BLANK_ONLY = "blank_only"
+    }(Xt || (Xt = {})),
+    function(e) {
+        e.GoodVisit = "good_visit",
+        e.GoodVisitFeed = "good_visit_feed",
+        e.GoodVisitSearch = "good_visit_search",
+        e.GoodVisitPostStats = "good_visit_post_stats",
+        e.GoodVisitPostToPost = "good_visit_post_to_post",
+        e.GoodVisitGuides = "good_visit_guides",
+        e.GoodVisitUa = "good_visit_ua",
+        e.GuidesRealtimeResponse = "guides_realtime_response",
+        e.GuidesRealtimeQuestion = "guides_realtime_question",
+        e.GuidesSSRResponse = "guides_ssr_response",
+        e.GuidesStreamingResponse = "guides_streaming_response",
+        e.GuidesStreamingQuestion = "guides_streaming_question",
+        e.GoodVisitInbox = "good_visit_inbox",
+        e.Background = "background",
+        e.GoodVisitCommunityWiki = "good_visit_community_wiki",
+        e.GoodVisitTrends = "good_visit_trends",
+        e.GoodVisitTrendAggregation = "good_visit_trend_aggregation",
+        e.GoodVisitDevPlatform = "dev_platform",
+        e.Latency = "latency",
+        e.TTCDeeplink = "ttc_deeplink",
+        e.TTCHybrid = "ttc_hybrid"
+    }(Zt || (Zt = {})),
+    function(e) {
+        e.SSR = "ssr",
+        e.CLIENT = "client"
+    }(ei || (ei = {})),
+    function(e) {
+        e.Initial = "initial",
+        e.NavigationControllerRestore = "navigation_controller_restore",
+        e.BFCache = "bf_cache",
+        e.ForegroundingAction = "foregrounding_action",
+        e.Unknown = "unknown"
+    }(ti || (ti = {})),
+    function(e) {
+        e.HOTKEY = "hotkey"
+    }(ii || (ii = {}));
+    var ni;
+    !function(e) {
+        e.CardView = "cardView",
+        e.ModQueueCompactView = "modQueueCompactView",
+        e.CompactView = "compactView"
+    }(ni || (ni = {}));
+    const oi = (e="", t="") => {
+        const i = (e => {
+            if (!e)
+                return;
+            let t;
+            try {
+                const {searchParams: i} = new URL(e)
+                  , n = i.get("embed_host_url")
+                  , o = n && decodeURIComponent(n);
+                if (!o)
+                    return;
+                t = {
+                    url: o,
+                    domain: new URL(o).hostname
+                }
+            } catch (e) {}
+            return t
+        }
+        )(t);
+        if (i)
+            return i;
+        let n = "";
+        try {
+            n = e && new URL(e)?.hostname || ""
+        } catch (e) {}
+        return {
+            url: e,
+            domain: n
+        }
+    }
+      , ri = e => {
+        let t = {};
+        try {
+            t = JSON.parse(document.getElementsByTagName("shreddit-screenview-data")?.[0]?.getAttribute("data") ?? "{}")
+        } catch (e) {
+            throw new Error("Unable to parse screenview data")
+        }
+        return e ? t[e] : t
+    }
+      , ai = (e, t, i=ri) => {
+        if (t?.[e])
+            return {};
+        const n = i(e);
+        return n ? {
+            [e]: n
+        } : {}
+    }
+    ;
+    const si = ({source: e, action: t, noun: i, ...n}, o={}) => ({
+        ...o,
+        source: e,
+        action: t,
+        noun: i,
+        referrer: oi(document.getElementsByTagName("shreddit-app")?.[0]?.getAttribute("referrer") || document.referrer, window.location.href),
+        client_timestamp: Date.now(),
+        ...ai("post", o),
+        ...n
+    })
+      , di = e => si({
+        source: "client",
+        action: "emit",
+        noun: "metric"
+    }, {
+        metric: e
+    })
+      , li = "https://www.redditstatic.com/shreddit/assets/pix/ads/1.png"
+      , ci = "https://ad-delivery.net/px.gif?ch=2"
+      , ui = "adblock_detection_complete";
+    function hi(e) {
+        if (!document.body.contains(e)) {
+            document.body.prepend(e);
+            const i = t(e);
+            return e.remove(),
+            i
+        }
+        return t(e);
+        function t(e) {
+            if (["BODY", "HTML"].includes(e.tagName))
+                return !1;
+            if (e.hidden || !document.body.contains(e))
+                return !0;
+            const i = window.getComputedStyle(e);
+            return "none" === i.display || "hidden" === i.visibility || !!e.parentElement && t(e.parentElement)
+        }
+    }
+    async function pi(e) {
+        return new Promise((t => {
+            const i = new Image;
+            i.onerror = () => {
+                t(!0)
+            }
+            ,
+            i.onload = () => {
+                t(!1)
+            }
+            ,
+            i.src = e
+        }
+        ))
+    }
+    function mi(e) {
+        "enabled" === new URLSearchParams(window.location.search).get("adblock_detection_debug_mode") && console.debug("[adblock-detection] ", e)
+    }
+    function gi() {
+        const e = document.createElement("div");
+        return e.style.width = "1px",
+        e.style.position = "absolute",
+        e.style.top = "0",
+        e.style.left = "-1000px",
+        e.style.display = "block",
+        e
+    }
+    let _i, fi;
+    async function Ei(e={
+        skipEyeoPixelCheck: !1
+    }) {
+        return fi || async function(e) {
+            return fi = e.isDetectionUpdateKillswitchEnabled ? async function(e) {
+                await new Promise((e => requestAnimationFrame(e)));
+                const t = performance.now()
+                  , i = () => {
+                    mi(`The detection logic ran in ${(performance.now() - t).toFixed(3)}ms`)
+                }
+                  , n = hi(Si());
+                mi(n ? "❌ Eyeo bait element was blocked" : "✅ Eyeo bait element was not blocked");
+                const o = async () => {
+                    if (e.skipEyeoPixelCheck)
+                        return mi("ℹ️ Eyeo bait pixel check skipped"),
+                        !1;
+                    const t = await pi(ci);
+                    return mi(t ? "❌ Eyeo bait asset was blocked" : "✅ Eyeo bait asset was not blocked"),
+                    t
+                }
+                ;
+                if (n || (await o())) {
+                    const e = hi(vi());
+                    mi(e ? "❌ Eyeo acceptable ads element was blocked" : "✅ Eyeo acceptable ads element was not blocked"),
+                    i();
+                    const t = {
+                        isAdblockEnabled: !0,
+                        isAcceptableAdsEnabled: !e
+                    };
+                    return mi(`ℹ️ Final result: ${JSON.stringify(t)}`),
+                    t
+                }
+                const r = hi(bi());
+                mi(r ? "❌ Easylist bait element was blocked" : "✅ Easylist bait element was not blocked");
+                const a = async () => {
+                    const e = await pi(li);
+                    return mi(e ? "❌ Easylist bait asset was blocked" : "✅ Easylist bait asset was not blocked"),
+                    e
+                }
+                  , s = r || (await a());
+                i();
+                const d = {
+                    isAdblockEnabled: s,
+                    isAcceptableAdsEnabled: !s && void 0
+                };
+                return mi(`ℹ️ Final result: ${JSON.stringify(d)}`),
+                d
+            }(e) : async function() {
+                await new Promise((e => requestAnimationFrame(e)));
+                const e = performance.now()
+                  , t = () => {
+                    mi(`The detection logic ran in ${(performance.now() - e).toFixed(3)}ms`)
+                }
+                  , i = hi(bi());
+                mi(i ? "❌ Easylist bait element was blocked" : "✅ Easylist bait element was not blocked");
+                const n = async () => {
+                    const e = await pi(li);
+                    return mi(e ? "❌ Easylist bait asset was blocked" : "✅ Easylist bait asset was not blocked"),
+                    e
+                }
+                  , o = i || (await n());
+                let r = !1;
+                if (o) {
+                    r = hi(Si()),
+                    mi(r ? "❌ Eyeo bait element was blocked" : "✅ Eyeo bait element was not blocked")
+                }
+                let a = !1;
+                r && (a = !hi(vi()),
+                mi(a ? "✅ Eyeo acceptable ads element was not blocked" : "❌ Eyeo acceptable ads element was blocked"));
+                t();
+                const s = {
+                    isAdblockEnabled: o,
+                    isAcceptableAdsEnabled: r ? a : void 0
+                };
+                return mi(`ℹ️ Final result: ${JSON.stringify(s)}`),
+                s
+            }(),
+            _i = await fi,
+            window.dispatchEvent(new Event(ui)),
+            _i;
+        }(e);
+    }
+    function vi() {
+        const e = gi();
+        return e.className = "promotedlink",
+        e
+    }
+    function Si() {
+        const e = gi();
+        return e.id = "adblock-eyeo-element",
+        e.classList.add("jag8CityBio212023"),
+        e
+    }
+    function bi() {
+        const e = gi();
+        return e.id = "adblock-element",
+        e.classList.add("promoted"),
+        e.dataset.beforeContent = "advertisement",
+        e
+    }
+    const Ti = ({noun: e, pageType: t}) => (e => e === Qt.Embed)(t) ? yi(e) : e
+      , yi = e => {
+        switch (e) {
+        case w.Screen:
+        case w.App:
+            return w.Embed;
+        case w.Heartbeat:
+            return w.EmbedHeartbeat;
+        default:
+            return e
+        }
+    }
+      , Ii = {
+        height: window?.screen.height,
+        width: window?.screen.width
+    }
+      , Ci = ({success: e=!0, data: t, screenviewId: i, serverRenderId: n, triggerType: o=ti.Initial, hostPageType: r}) => {
+        const {isAcceptableAdsEnabled: a, isAdblockEnabled: s} = _i || {
+            isAdblockEnabled: !1,
+            isAcceptableAdsEnabled: void 0
+        }
+          , d = !!window.matchMedia?.("(display-mode: standalone), (display-mode: minimal-ui)").matches;
+        return si({
+            source: D.Global,
+            action: M.View,
+            noun: Ti({
+                noun: w.Screen,
+                pageType: r
+            })
+        }, {
+            ...t,
+            action_info: {
+                ...t.action_info,
+                success: e,
+                trigger_type: o
+            },
+            request: {
+                ...t.request,
+                server_render_id: n
+            },
+            screenview_id: i,
+            screen: Ii,
+            adblock: {
+                enabled: s,
+                acceptable_ads: a
+            },
+            ...(d ? {
+                pwa: {
+                    installed: !0
+                }
+            } : {})
+        });
+    }
+      , Ai = ({reason: e, screenViewData: t, screenviewId: i, hostPageType: n, impressionId: o}) => si({
+        source: D.Global,
+        action: M.Leave,
+        noun: Ti({
+            noun: w.App,
+            pageType: n
+        })
+    }, {
+        ...t,
+        action_info: {
+            ...t.action_info,
+            reason: e
+        },
+        screenview_id: i,
+        ...(o && {
+            ad_metadata: {
+                impression_id: o
+            }
+        })
+    })
+      , Ri = ({screenViewData: e, timer: t, hostPageType: i}) => si({
+        source: D.Global,
+        action: M.View,
+        noun: Ti({
+            noun: w.Heartbeat,
+            pageType: i
+        })
+    }, {
+        ...e,
+        timer: t
+    })
+      , Pi = (e, t, i) => si({
+        source: D.Global,
+        action: M.Drop,
+        noun: w.EventBatch
+    }, {
+        ...e,
+        dropped_data: {
+            event_batch_size: i
+        },
+        action_info: {
+            ...e.action_info,
+            reason: t.toLowerCase()
+        }
+    });
+    var Ni, Oi;
+    !function(e) {
+        e.Comments = "comments",
+        e.CopyLink = "copy_link",
+        e.HighlightTextComponent = "highlight_text_component",
+        e.Replies = "replies",
+        e.ProfileName = "profile_name",
+        e.ProfileIcon = "profile_icon",
+        e.PostTitle = "post_title",
+        e.ReadMore = "read_more",
+        e.RedditLogo = "reddit_logo",
+        e.SubredditIcon = "subreddit_icon",
+        e.SubredditName = "subreddit_name",
+        e.Upvote = "upvote",
+        e.ViewMore = "view_more",
+        e.Whitespace = "whitespace",
+        e.Members = "members_count",
+        e.Online = "online_count",
+        e.Media = "media",
+        e.JoinCommunity = "join_community",
+        e.ViewMoreMedia = "view_more_media",
+        e.FullscreenMedia = "fullscreen_media"
+    }(Ni || (Ni = {})),
+    function(e) {
+        e.Post = "Post",
+        e.Comment = "Comment",
+        e.Feed = "Feed",
+        e.Snippet_Post = "Snippet_Post",
+        e.Snippet_Comment = "Snippet_Comment"
+    }(Oi || (Oi = {}));
+    var wi;
+    !function(e) {
+        e[e.TIER_ZERO = 0] = "TIER_ZERO",
+        e[e.TIER_ONE = 1] = "TIER_ONE",
+        e[e.DEFAULT = 2] = "DEFAULT"
+    }(wi || (wi = {}));
+    const Di = {
+        source: "global",
+        action: "view",
+        noun: "screen"
+    }
+      , Mi = e => {
+        return i = Di,
+        (t = e).source === i.source && t.action === i.action && t.noun === i.noun;
+        var t, i
+    }
+      , ki = [{
+        field: "source",
+        validatePresence: !1
+    }, {
+        field: "action",
+        validatePresence: !1
+    }, {
+        field: "noun",
+        validatePresence: !1
+    }, {
+        field: "action_info",
+        validatePresence: !1
+    }, {
+        field: "page_type",
+        validatePresence: !0
+    }, {
+        field: "success",
+        validatePresence: !1
+    }, {
+        field: "client_timestamp",
+        validatePresence: !0
+    }, {
+        field: "referrer",
+        validatePresence: !0
+    }, {
+        field: "url",
+        validatePresence: !1
+    }, {
+        field: "domain",
+        validatePresence: !1
+    }, {
+        field: "server_render_id",
+        validatePresence: !0
+    }, {
+        field: "canonical_url",
+        validatePresence: !1
+    }, {
+        field: "screenview_id",
+        validatePresence: !0
+    }, {
+        field: "adblock",
+        validatePresence: !0
+    }, {
+        field: "enabled",
+        validatePresence: !0
+    }]
+      , Li = (e, t=ki) => {
+        if (e.includes(`"source":"${Di.source}"`) && e.includes(`"action":"${Di.action}"`) && e.includes(`"noun":"${Di.noun}"`)) {
+            for (let i = 0; i < t.length; i++)
+                if (!e.includes(t[i].field) || t[i].validatePresence && e.includes(`"${t[i].field}":""`))
+                    return !1;
+            return !0
+        }
+        return null
+    }
+      , Ui = (e="") => {
+        let t = ""
+          , i = "";
+        const n = e.split(".");
+        if (n.length >= 3) {
+            t = `t2_${n[0].replace(/\b0+/g, "")}`,
+            i = n[2]
+        }
+        return {
+            id: t,
+            cookie_created_timestamp: parseInt(i, 10)
+        }
+    }
+      , Fi = [Qt.Embed]
+      , Bi = "nav"
+      , Vi = e => () => si({
+        source: Bi,
+        action: "click",
+        noun: e
+    })
+      , xi = (e, t) => () => si({
+        source: Bi,
+        action: "click",
+        noun: e,
+        subreddit: t ? {
+            name: t
+        } : void 0
+    })
+      , Gi = Vi("wordmark")
+      , Hi = Vi("user")
+      , Wi = Vi("search_opened")
+      , zi = Vi("search_closed")
+      , ji = "hamburger_menu"
+      , Ki = "user_drawer";
+    class $i extends we {
+        constructor(e, t) {
+            super(e),
+            this.events = new g(this,( () => window)),
+            this.getCommonLabels = t,
+            this.events.define("w3-report", (e => {
+                this.sendReport(e.detail)
+            }
+            )),
+            this.events.define("faceplate-track", (e => {
+                this.handleEvent(e.detail)
+            }
+            ))
+        }
+        async getW3ReportSender() {
+            return (await Promise.resolve().then((function() {
+                return Ca
+            }
+            ))).w3Report
+        }
+        async sendReport(e) {
+            (await this.getW3ReportSender())({
+                ...e,
+                labels: {
+                    ...this.getCommonLabels?.(),
+                    ...e.labels
+                }
+            })
+        }
+        async getV2EventConverter() {
+            return (await SML.di("./w3-report-from-v2-event-f9bec305.js", import.meta.url, "w3reportfromv2eventf9bec305")).getW3ReportsFromV2Event
+        }
+        async handleEvent(e) {
+            const t = (await this.getV2EventConverter())(e);
+            t && t.forEach((e => this.sendReport(e)))
+        }
+    }
+    var qi;
+    !function(e) {
+        e.AdRefocusStart = "time-before-unfocus",
+        e.LastClickedAdId = "last-clicked-ad-id",
+        e.ImpressionId = "last-clicked-impression-id",
+        e.RecentPages = "recent-subreddits-store",
+        e.RecentCommunities = "recent-communities-store",
+        e.FeatureTestLocalStorageKey = "🤘shreddit_local_storage_feature_test🤘",
+        e.DisclaimerStore = "disclaimer_store",
+        e.DevvitPostChromeAnimationCountByApp = "devvit-chrome-animation-by-app",
+        e.DevvitGamesSectionFeaturedGameSlug = "devvit-games-section-featured-game-slug",
+        e.AmaPostCreationModalDismissed = "ama-post-creation-modal-dismissed",
+        e.AmaReminderTooltipShown = "ama-reminder-tooltip-shown",
+        e.GoodVisit = "good-visit-status",
+        e.GoodVisitFS = "good-visit-feeds-search",
+        e.GoodVisitKLP = "good-visit-klp",
+        e.GoodVisitGuides = "good-visit-guides",
+        e.GoodVisitInbox = "good-visit-inbox",
+        e.GoodVisitPdpSeeker = "good-visit-pdp-seeker",
+        e.GoodVisitPdpListingBelow = "good-visit-pdp-listing-below",
+        e.GuidesQueryHistory = "guides-query-history",
+        e.ModalBlocking = "modal-blocking-status",
+        e.XpromoEducationalDeeplinkPrompt = "xpromo-educational-deeplink-prompt",
+        e.AdEvents = "ad-events",
+        e.AdUserTargeting = "ad-user-targeting",
+        e.Follow = "follow_store",
+        e.RecentSearches = "recent-searches-store",
+        e.NsfwTypeaheadExpanded = "nsfw_typeahead_expanded",
+        e.SearchTypeaheadExpanded = "search-typeahead-expanded",
+        e.EventsBuffer = "events-buffer-v2",
+        e.LoginTime = "login-time",
+        e.ModQueuePreferencesExpandReports = "mod-queue-preferences-expand-reports",
+        e.AchievementsStore = "achievements-store",
+        e.AchievementsUpdatesEnabled = "achievements-updates-enabled",
+        e.ModActivityCardsCollapseState = "activity-cards-collapse-state",
+        e.ModInsightsCardCollapseState = "insights-card-collapse-state",
+        e.TeamFlairSelectionIsShown = "team-flair-selection-is-shown",
+        e.ModNavState = "mod-nav-state",
+        e.ModActivityPanelState = "mod-activity-panel-state",
+        e.ModUserSummaryFeedback = "mod-user-summary-feedback",
+        e.ModQueueTutorial = "mod-queue-tutorial",
+        e.I18nPostTranslationBanner = "i18n-post-translation-banner",
+        e.I18nTranslationInterventionShown = "i18n-translation-intervention-shown",
+        e.AwardAnonymously = "award-anonymously",
+        e.TranslationInitialized = "translation_initialized",
+        e.RemovalReasonDontNotifyDismissed = "removal-reason-dont-notify-dismissed",
+        e.ModQueueSafetyBannerState = "mod-queue-safety-banner-state-ban-evasion-modmail",
+        e.MomentsShownXpromos = "moments-shown-xpromos",
+        e.AdPlacement = "AdPlacement",
+        e.ForceRefresh = "force-refresh",
+        e.WikiEditWelcomeMessage = "wiki-edit-welcome-message",
+        e.ProfileSSRMiddleStateSeenCount = "profile-ssr-middle-state-seen-count",
+        e.ProfileSSRMiddleStateLastSeenDate = "profile-ssr-middle-state-last-seen-date",
+        e.DraftsCoachMarkSeen = "drafts-page-coachmark",
+        e.CrosspostingUpsellExperiment = "crossposting-upsell-experiment",
+        e.RedditProDesktopNudge = "reddit-pro-desktop-nudge",
+        e.SavedResponseBansCoachMarkSeen = "saved-response-bans-coachmark",
+        e.EarnFtue = "earn-ftue",
+        e.CommentStatsCoachmark = "comment-stats-coachmark",
+        e.CommentShareAsPostCoachmark = "comment-share-as-post-coachmark",
+        e.GamesNavCoachmarkSeen = "games-nav-coachmark-seen",
+        e.RecentlyPlayedGames = "recently-played-games",
+        e.ShareToModChatCoachMarkMQSeen = "share-to-mod-chat-mq-coachmark",
+        e.ShareToModChatCoachMarkMQChatSeen = "share-to-mod-chat-mq-chat-coachmark",
+        e.ShareToModChatCoachMarkOverflowSeen = "share-to-mod-chat-overflow-coachmark",
+        e.ShareToModChatCoachMarkInlineSeen = "share-to-mod-chat-inline-coachmark",
+        e.LastMetaPixelTrigger = "last-meta-pixel-trigger",
+        e.RemovalReasonSuggestionsCoachmarkSeen = "removal-reason-suggestions-coachmark"
+    }(qi || (qi = {}));
+    const Yi = new (class {
+        getStorage() {
+            try {
+                return window.localStorage
+            } catch (e) {
+                return
+            }
+        }
+        clear() {
+            this.getStorage()?.clear()
+        }
+        getItem(e) {
+            return this.getStorage()?.getItem(e) || null
+        }
+        removeItem(e) {
+            this.getStorage()?.removeItem(e)
+        }
+        setItem(e, t) {
+            this.getStorage()?.setItem(e, t)
+        }
+        isAvailable() {
+            try {
+                this.setItem(qi.FeatureTestLocalStorageKey, "yes");
+                const e = "yes" === this.getItem(qi.FeatureTestLocalStorageKey);
+                return this.removeItem(qi.FeatureTestLocalStorageKey),
+                e
+            } catch {
+                return !1
+            }
+        }
+    }
+    );
+    class Qi {
+        constructor(e) {
+            let t;
+            this.key = e;
+            const i = Yi.getItem(e);
+            if (null == i)
+                t = [];
+            else
+                try {
+                    t = function(e) {
+                        if (!Array.isArray(e))
+                            throw new Error;
+                        const t = e;
+                        return t.forEach((e => {
+                            if ("string" != typeof e)
+                                throw new Error
+                        }
+                        )),
+                        t
+                    }(JSON.parse(i))
+                } catch (e) {
+                    t = []
+                }
+            this.valuesSet = new Set(t)
+        }
+        hasValue(e) {
+            return this.valuesSet.has(e)
+        }
+        setValue(e) {
+            if (this.valuesSet.size >= Qi.MAX_SET_SIZE)
+                return !1;
+            return !this.valuesSet.has(e) && (this.valuesSet.add(e),
+            this._persist(),
+            !0)
+        }
+        removeValue(e) {
+            const t = this.valuesSet.delete(e);
+            return t && this._persist(),
+            t
+        }
+        _persist() {
+            const e = JSON.stringify([...this.valuesSet]);
+            Yi.setItem(this.key, e)
+        }
+    }
+    var Ji, Xi;
+    Qi.MAX_SET_SIZE = 50,
+    function(e) {
+        e.Standard = "hidden",
+        e.Webkit = "webkitHidden"
+    }(Ji || (Ji = {})),
+    function(e) {
+        e.hidden = "visibilitychange",
+        e.webkitHidden = "webkitvisibilitychange",
+        e.mozHidden = "mozvisibilitychange",
+        e.msHidden = "msvisibilitychange"
+    }(Xi || (Xi = {}));
+    const Zi = Object.keys(Xi)
+      , en = {
+        initialized: !1,
+        visibilityCallbacks: new Array
+    }
+      , tn = () => {}
+      , nn = Zi.find((e => void 0 !== document[e]));
+    var on = (e=tn, t={
+        immediate: !1
+    }) => {
+        const i = en.visibilityCallbacks.length;
+        return en.visibilityCallbacks.includes(e) || (t.shouldBeCalledFirst ? en.visibilityCallbacks.unshift(e) : en.visibilityCallbacks.push(e)),
+        !en.initialized && nn && (en.initialized = !0,
+        document.addEventListener(Xi[nn], ( () => {
+            const e = !document[nn];
+            en.visibilityCallbacks.forEach((t => t(e)))
+        }
+        )),
+        t.immediate && e(!document[nn])),
+        t.resetInit && (en.initialized = !1),
+        i < en.visibilityCallbacks.length
+    }
+    ;
+    let rn = !1;
+    const an = e => {
+        const t = Yi.getItem(qi.AdRefocusStart)
+          , i = Yi.getItem(qi.LastClickedAdId)
+          , n = Yi.getItem(qi.ImpressionId)
+          , o = Yi.getItem(qi.AdPlacement);
+        if (t && i && n) {
+            e(( (e, t, i, n) => si({
+                source: "post",
+                action: "refocus",
+                noun: "ad"
+            }, {
+                post: e,
+                ad_click: {
+                    landing_page_duration: Math.min(t, 2 ** 31 - 1)
+                },
+                ad_metadata: {
+                    impression_id: i,
+                    placement: n
+                }
+            }))({
+                id: i
+            }, Math.round(performance.now() - parseFloat(t)), n, o))
+        }
+        (t || i || n) && (Yi.removeItem(qi.AdRefocusStart),
+        Yi.removeItem(qi.LastClickedAdId),
+        Yi.removeItem(qi.ImpressionId),
+        Yi.removeItem(qi.AdPlacement))
+    }
+    ;
+    function sn(e) {
+        return e?.toLowerCase() || ""
+    }
+    function dn(e) {
+        return (e = sn(e)).includes("firefox") || e.includes("fxios")
+    }
+    function ln(e, t) {
+        return function(e, t) {
+            return /(iPad)/i.test(sn(e)) || /(Mac)/i.test(sn(e)) && t && t > 1;
+        }(e, t) || /(iPhone|iPod)/i.test(sn(e));
+    }
+    function cn(e) {
+        return !function(e) {
+            return (e = sn(e)).includes("chrome") || e.includes("crios")
+        }(e) && !function(e) {
+            return sn(e).includes("edg")
+        }(e) && !dn(e) && (sn(e).includes("safari") || ln(e))
+    }
+    const un = "correlationId"
+      , hn = "feedCorrelationId"
+      , pn = "store-correlation-id"
+      , mn = "store-feed-correlation-id";
+    let gn = window.location;
+    const _n = () => window.navigator && window.navigator.userAgent.toLowerCase() || "";
+    let fn = !1;
+    const En = []
+      , vn = []
+      , Sn = ln(_n(), window.navigator?.maxTouchPoints) ? "pagehide" : "beforeunload"
+      , bn = (e, t) => {
+        const i = e.length
+          , n = e.indexOf(t);
+        return -1 !== n && e.splice(n, 1),
+        i > e.length
+    }
+      , Tn = {
+        unsubscribe(e) {
+            const t = bn(En, e)
+              , i = bn(vn, e);
+            return t || i
+        },
+        subscribe(e= () => {}
+        , t={}) {
+            const i = En.length
+              , n = vn.length
+              , o = t.shouldBeCalledFirst ? "unshift" : "push";
+            return En.includes(e) || En[o](e),
+            t.unloadOnly || vn.includes(e) || vn[o](e),
+            fn || (fn = !0,
+            window.addEventListener(Sn, ( () => {
+                En.forEach((e => e()))
+            }
+            )),
+            window.addEventListener("beforeRoute", ( () => {
+                vn.forEach((e => e()))
+            }
+            ))),
+            i < En.length || n < vn.length
+        },
+        eventType: Sn
+    }
+      , yn = "impression-id-for-global-leave-app-event";
+    const In = "over18"
+      , Cn = "search_over18"
+      , An = "mod_queue_compact"
+      , Rn = {
+        expires: 365,
+        httpOnly: !1
+    }
+      , Pn = "eu_cookie"
+      , Nn = {
+        expires: 730,
+        httpOnly: !1
+    }
+      , On = "compact"
+      , wn = "reddit_translation_status"
+      , Dn = "devvit_games_drawer_expanded_state"
+      , Mn = new Set([Pn, On, An, "loid", In, Cn, "fastly-request-id", "pwa", wn, "subreddit_sort", "token_v2", "reddit_session", "csrf_token", "session_tracker", Dn, ...["_options", "correlation_id"]])
+      , kn = new Set(["AT", "BE", "BG", "BL", "CH", "CY", "CZ", "DE", "DK", "EE", "ES", "FI", "FR", "GB", "GF", "GG", "GI", "GP", "GR", "HR", "HU", "IE", "IM", "IS", "IT", "JE", "LI", "LT", "LU", "LV", "MF", "MQ", "MT", "NL", "NO", "PL", "PM", "PT", "RE", "RO", "SE", "SI", "SK", "UK", "YT"])
+      , Ln = e => kn.has(e)
+      , Un = ({country: e, name: t, options: i, value: n}) => {
+        Fn({
+            country: e,
+            name: t
+        }) && wt.set(t, n, i)
+    }
+      , Fn = ({country: e, name: t}) => {
+        return i = t,
+        Mn.has(i) || !Ln(e) || Bn();
+        var i
+    }
+      , Bn = () => {
+        const e = Vn();
+        return !!e?.nonessential
+    }
+      , Vn = () => {
+        const e = wt.get(Pn);
+        return void 0 !== e ? (e => {
+            try {
+                const i = JSON.parse(decodeURIComponent(e));
+                return !0 === (t = i).opted && "boolean" == typeof t.nonessential ? i : void 0
+            } catch {
+                return
+            }
+            var t
+        }
+        )(e) : void 0
+    }
+      , xn = ({paidUaEnabled: e, country: t}) => {
+        if (!e)
+            return {};
+        const i = wt.get("gclid")
+          , n = wt.get("gbraid")
+          , o = {
+            ...(i ? {
+                gclid: i
+            } : {}),
+            ...(n ? {
+                gbraid: n
+            } : {})
+        };
+        return {
+            paid_ua: {
+                consent: !Ln(t) || Bn(),
+                ...o
+            }
+        }
+    }
+      , Gn = () => {
+        const e = document.querySelector("shreddit-app")
+          , t = "true" === e?.getAttribute("paid-ua-enabled") || !1
+          , i = e?.getAttribute("country") || "US";
+        return xn({
+            paidUaEnabled: t,
+            country: i
+        })
+    }
+      , Hn = (e, t) => e.isNavigationControllerRestore ? ti.NavigationControllerRestore : e.isBfCacheRestore ? ti.BFCache : t ? ti.ForegroundingAction : ti.Initial
+      , Wn = async ({pageType: e, triggerType: t, serverRenderId: i="", shouldUpdateRecaptcha: n=!1}) => {
+        if (!n || Fi.includes(e))
+            return;
+        const o = window.btoa(`${e}|${t}|${i}`).replace(/=/g, "");
+        return fetch(`/svc/shreddit/update-recaptcha?k=${o}`)
+    }
+    ;
+    class zn {
+        constructor(e) {
+            this.hasSentScreenview = !1,
+            this._pageUnloaded = !1,
+            this._visibilityHandlerAdded = !1,
+            this._initialVisibilityChangeToVisibleHappened = !1,
+            this._visibilityChangeGVSEventWasFired = !1,
+            this._screenviewId = "",
+            this.onBeforeUnloadCallback = () => {
+                this._pageUnloaded = !0,
+                mt(this._host, Ai({
+                    screenviewId: this._screenviewId,
+                    screenViewData: this._host.screenViewData,
+                    hostPageType: this._host.pageType
+                }))
+            }
+            ,
+            this.sendScreenview = () => {
+                const e = Hn(this._host);
+                this._screenviewId = Vt(),
+                mt(this._host, Ci({
+                    success: this._host.success,
+                    data: {
+                        ...this._host.screenViewData,
+                        action_info: {
+                            ...this._host.screenViewData.action_info,
+                            page_request_id: this._host.serverRenderId
+                        }
+                    },
+                    screenviewId: this._screenviewId,
+                    serverRenderId: this._host.serverRenderId,
+                    triggerType: Hn(this._host),
+                    hostPageType: this._host.pageType
+                })),
+                Wn({
+                    pageType: this._host.pageType,
+                    triggerType: e,
+                    serverRenderId: this._host.serverRenderId,
+                    shouldUpdateRecaptcha: this._host.shouldUpdateRecaptcha
+                })
+            }
+            ,
+            this._host = e,
+            this._host.addController(this)
+        }
+        trackScreenview() {
+            const e = this.hasSentScreenview ? "" : this._host.serverRenderId;
+            if (!this._visibilityChangeGVSEventWasFired) {
+                const t = Hn(this._host);
+                this._screenviewId = Vt();
+                const i = this.enrichScreenViewWithPaidUa();
+                mt(this._host, Ci({
+                    success: this._host.success,
+                    data: {
+                        ...this._host.screenViewData,
+                        ...i,
+                        action_info: {
+                            ...this._host.screenViewData.action_info,
+                            page_request_id: this._host.serverRenderId
+                        }
+                    },
+                    screenviewId: this._screenviewId,
+                    serverRenderId: e,
+                    triggerType: t,
+                    hostPageType: this._host.pageType
+                })),
+                Wn({
+                    pageType: this._host.pageType,
+                    triggerType: t,
+                    serverRenderId: e,
+                    shouldUpdateRecaptcha: this._host.shouldUpdateRecaptcha
+                }),
+                this.hasSentScreenview = !0,
+                this._pageUnloaded = !1
+            }
+        }
+        _bindShredditVisibilityChange() {
+            this._visibilityHandlerAdded || (this._visibilityHandlerAdded = !0,
+            on((e => {
+                if (e) {
+                    if (this._initialVisibilityChangeToVisibleHappened) {
+                        const e = Hn(this._host, !0);
+                        this._screenviewId = Vt(),
+                        mt(this._host, Ci({
+                            success: this._host.success,
+                            data: {
+                                ...this._host.screenViewData,
+                                action_info: {
+                                    ...this._host.screenViewData.action_info,
+                                    page_request_id: this._host.serverRenderId
+                                }
+                            },
+                            screenviewId: this._screenviewId,
+                            serverRenderId: this._host.serverRenderId,
+                            triggerType: e,
+                            hostPageType: this._host.pageType
+                        })),
+                        Wn({
+                            pageType: this._host.pageType,
+                            triggerType: e,
+                            serverRenderId: this._host.serverRenderId,
+                            shouldUpdateRecaptcha: this._host.shouldUpdateRecaptcha
+                        }),
+                        this._visibilityChangeGVSEventWasFired = !0,
+                        this._pageUnloaded = !1
+                    }
+                    this._initialVisibilityChangeToVisibleHappened = !0
+                } else if (!this._pageUnloaded) {
+                    const e = function() {
+                        const e = window[yn] || null;
+                        return e && delete window[yn],
+                        e
+                    }();
+                    mt(this._host, Ai({
+                        reason: "tab_backgrounded",
+                        screenviewId: this._screenviewId,
+                        screenViewData: this._host.screenViewData,
+                        hostPageType: this._host.pageType,
+                        impressionId: e
+                    }))
+                }
+            }
+            ), {
+                immediate: !0
+            }))
+        }
+        enrichScreenViewWithPaidUa() {
+            return {
+                ...this._host.screenViewData,
+                ...xn({
+                    paidUaEnabled: !!this._host.paidUaEnabled,
+                    country: this._host.country || "US"
+                })
+            }
+        }
+        hostConnected() {
+            Tn.subscribe(this.onBeforeUnloadCallback, {
+                unloadOnly: !0
+            }),
+            this._bindShredditVisibilityChange(),
+            (e => {
+                rn || !Yi.isAvailable() || (rn = !0,
+                on((t => {
+                    try {
+                        t ? an(e) : Yi.setItem(qi.AdRefocusStart, String(performance.now()))
+                    } catch (e) {
+                        return
+                    }
+                }
+                ), {
+                    immediate: !0
+                }))
+            }
+            )((e => mt(this._host, e))),
+            window.addEventListener("afterRoute", this.sendScreenview)
+        }
+        hostDisconnected() {
+            Tn.unsubscribe(this.onBeforeUnloadCallback),
+            window.removeEventListener("afterRoute", this.sendScreenview)
+        }
+    }
+    var jn, Kn, $n, qn, Yn;
+    !function(e) {
+        e[e.IMPRESSION = 1] = "IMPRESSION",
+        e[e.CLICK = 2] = "CLICK",
+        e[e.COMMENTS_VIEW = 3] = "COMMENTS_VIEW",
+        e[e.UPVOTE = 4] = "UPVOTE",
+        e[e.DOWNVOTE = 5] = "DOWNVOTE",
+        e[e.COMMENT = 6] = "COMMENT",
+        e[e.VIEWABLE_IMPRESSION = 7] = "VIEWABLE_IMPRESSION",
+        e[e.COMMENT_UPVOTE = 8] = "COMMENT_UPVOTE",
+        e[e.COMMENT_DOWNVOTE = 9] = "COMMENT_DOWNVOTE",
+        e[e.VENDOR_FULLY_IN_VIEW = 10] = "VENDOR_FULLY_IN_VIEW",
+        e[e.VENDOR_FULLY_IN_VIEW_5_SECS = 11] = "VENDOR_FULLY_IN_VIEW_5_SECS",
+        e[e.VENDOR_FULLY_IN_VIEW_15_SECS = 12] = "VENDOR_FULLY_IN_VIEW_15_SECS",
+        e[e.GROUP_M_VIEWABLE = 13] = "GROUP_M_VIEWABLE",
+        e[e.UNLOAD = 14] = "UNLOAD",
+        e[e.LEAD_GENERATION = 200] = "LEAD_GENERATION"
+    }(jn || (jn = {})),
+    function(e) {
+        e[e.GALLERY_ITEM_IMPRESSION = 15] = "GALLERY_ITEM_IMPRESSION"
+    }(Kn || (Kn = {})),
+    function(e) {
+        e[e.VIDEO_VIEWABLE_IMPRESSION = 100] = "VIDEO_VIEWABLE_IMPRESSION",
+        e[e.VIDEO_FULLY_VIEWABLE_IMPRESSION = 101] = "VIDEO_FULLY_VIEWABLE_IMPRESSION",
+        e[e.VIDEO_PLAYED_WITH_SOUND = 102] = "VIDEO_PLAYED_WITH_SOUND",
+        e[e.VIDEO_PLAYED_EXPANDED = 103] = "VIDEO_PLAYED_EXPANDED",
+        e[e.VIDEO_WATCHED_25 = 104] = "VIDEO_WATCHED_25",
+        e[e.VIDEO_WATCHED_50 = 105] = "VIDEO_WATCHED_50",
+        e[e.VIDEO_WATCHED_75 = 106] = "VIDEO_WATCHED_75",
+        e[e.VIDEO_WATCHED_95 = 107] = "VIDEO_WATCHED_95",
+        e[e.VIDEO_WATCHED_100 = 108] = "VIDEO_WATCHED_100",
+        e[e.VIDEO_STARTED = 109] = "VIDEO_STARTED",
+        e[e.VIDEO_WATCHED_3_SECS = 110] = "VIDEO_WATCHED_3_SECS",
+        e[e.VIDEO_WATCHED_5_SECS = 111] = "VIDEO_WATCHED_5_SECS",
+        e[e.VIDEO_WATCHED_10_SECS = 112] = "VIDEO_WATCHED_10_SECS",
+        e[e.VIDEO_GROUP_M_VIEWABLE = 113] = "VIDEO_GROUP_M_VIEWABLE",
+        e[e.VIDEO_VENDOR_FULLY_VIEWABLE_50 = 114] = "VIDEO_VENDOR_FULLY_VIEWABLE_50",
+        e[e.MRC_VIDEO_VIEWABLE_IMPRESSION = 115] = "MRC_VIDEO_VIEWABLE_IMPRESSION",
+        e[e.VIDEO_VIEWABLE_WATCHED_6_SECS = 116] = "VIDEO_VIEWABLE_WATCHED_6_SECS",
+        e[e.VIDEO_VIEWABLE_WATCHED_15_SECS = 117] = "VIDEO_VIEWABLE_WATCHED_15_SECS"
+    }($n || ($n = {})),
+    function(e) {
+        e[e.IMPRESSION = 1] = "IMPRESSION",
+        e[e.CLICK = 2] = "CLICK",
+        e[e.COMMENTS_VIEW = 3] = "COMMENTS_VIEW",
+        e[e.UPVOTE = 4] = "UPVOTE",
+        e[e.DOWNVOTE = 5] = "DOWNVOTE",
+        e[e.COMMENT = 6] = "COMMENT",
+        e[e.VIEWABLE_IMPRESSION = 7] = "VIEWABLE_IMPRESSION",
+        e[e.COMMENT_UPVOTE = 8] = "COMMENT_UPVOTE",
+        e[e.COMMENT_DOWNVOTE = 9] = "COMMENT_DOWNVOTE",
+        e[e.VENDOR_FULLY_IN_VIEW = 10] = "VENDOR_FULLY_IN_VIEW",
+        e[e.VENDOR_FULLY_IN_VIEW_5_SECS = 11] = "VENDOR_FULLY_IN_VIEW_5_SECS",
+        e[e.VENDOR_FULLY_IN_VIEW_15_SECS = 12] = "VENDOR_FULLY_IN_VIEW_15_SECS",
+        e[e.GROUP_M_VIEWABLE = 13] = "GROUP_M_VIEWABLE",
+        e[e.UNLOAD = 14] = "UNLOAD",
+        e[e.GALLERY_ITEM_IMPRESSION = 15] = "GALLERY_ITEM_IMPRESSION",
+        e[e.VIDEO_VIEWABLE_IMPRESSION = 100] = "VIDEO_VIEWABLE_IMPRESSION",
+        e[e.VIDEO_FULLY_VIEWABLE_IMPRESSION = 101] = "VIDEO_FULLY_VIEWABLE_IMPRESSION",
+        e[e.VIDEO_PLAYED_WITH_SOUND = 102] = "VIDEO_PLAYED_WITH_SOUND",
+        e[e.VIDEO_PLAYED_EXPANDED = 103] = "VIDEO_PLAYED_EXPANDED",
+        e[e.VIDEO_WATCHED_25 = 104] = "VIDEO_WATCHED_25",
+        e[e.VIDEO_WATCHED_50 = 105] = "VIDEO_WATCHED_50",
+        e[e.VIDEO_WATCHED_75 = 106] = "VIDEO_WATCHED_75",
+        e[e.VIDEO_WATCHED_95 = 107] = "VIDEO_WATCHED_95",
+        e[e.VIDEO_WATCHED_100 = 108] = "VIDEO_WATCHED_100",
+        e[e.VIDEO_STARTED = 109] = "VIDEO_STARTED",
+        e[e.VIDEO_WATCHED_3_SECS = 110] = "VIDEO_WATCHED_3_SECS",
+        e[e.VIDEO_WATCHED_5_SECS = 111] = "VIDEO_WATCHED_5_SECS",
+        e[e.VIDEO_WATCHED_10_SECS = 112] = "VIDEO_WATCHED_10_SECS",
+        e[e.VIDEO_GROUP_M_VIEWABLE = 113] = "VIDEO_GROUP_M_VIEWABLE",
+        e[e.VIDEO_VENDOR_FULLY_VIEWABLE_50 = 114] = "VIDEO_VENDOR_FULLY_VIEWABLE_50",
+        e[e.MRC_VIDEO_VIEWABLE_IMPRESSION = 115] = "MRC_VIDEO_VIEWABLE_IMPRESSION",
+        e[e.VIDEO_VIEWABLE_WATCHED_6_SECS = 116] = "VIDEO_VIEWABLE_WATCHED_6_SECS",
+        e[e.VIDEO_VIEWABLE_WATCHED_15_SECS = 117] = "VIDEO_VIEWABLE_WATCHED_15_SECS",
+        e[e.LEAD_GENERATION = 200] = "LEAD_GENERATION",
+        e[e.PRODUCT_CLICK = 300] = "PRODUCT_CLICK",
+        e[e.PRODUCT_IMPRESSION = 301] = "PRODUCT_IMPRESSION",
+        e[e.ENGAGED_CLICK = 302] = "ENGAGED_CLICK"
+    }(qn || (qn = {})),
+    function(e) {
+        e[e.IMPRESSION_THRESHOLD = 0] = "IMPRESSION_THRESHOLD",
+        e[e.LARGE_AD_FULL_VIEW_THRESHOLD = .3] = "LARGE_AD_FULL_VIEW_THRESHOLD",
+        e[e.VIEWABILITY_THRESHOLD = .5] = "VIEWABILITY_THRESHOLD",
+        e[e.EIGHTY_VIEWABILITY_THRESHOLD = .8] = "EIGHTY_VIEWABILITY_THRESHOLD",
+        e[e.FULL_VIEWABILITY_THRESHOLD = .999] = "FULL_VIEWABILITY_THRESHOLD",
+        e[e.VISIBILITY_THRESHOLD = .01] = "VISIBILITY_THRESHOLD"
+    }(Yn || (Yn = {}));
+    const Qn = [Yn.IMPRESSION_THRESHOLD, Yn.LARGE_AD_FULL_VIEW_THRESHOLD, Yn.VIEWABILITY_THRESHOLD, Yn.EIGHTY_VIEWABILITY_THRESHOLD, Yn.FULL_VIEWABILITY_THRESHOLD];
+    var Jn, Xn, Zn;
+    !function(e) {
+        e.IN_FEED_AD_VIDEO = "in-feed-ad-video",
+        e.COMMENT_PAGE_AD_VIDEO = "comment-page-ad-video"
+    }(Jn || (Jn = {})),
+    function(e) {
+        e[e.IMPRESSION_TIME = 0] = "IMPRESSION_TIME",
+        e[e.VIEWABILITY_TIME = 1e3] = "VIEWABILITY_TIME",
+        e[e.VENDOR_VIEWABILITY_TIME = 100] = "VENDOR_VIEWABILITY_TIME",
+        e[e.VIDEO_VIEWABILITY_TIME = 2e3] = "VIDEO_VIEWABILITY_TIME",
+        e[e.VIDEO_FULL_VIEWABILITY_TIME = 3e3] = "VIDEO_FULL_VIEWABILITY_TIME",
+        e[e.VENDOR_VIEWABILITY_TIME_5 = 5e3] = "VENDOR_VIEWABILITY_TIME_5",
+        e[e.VENDOR_VIEWABILITY_TIME_15 = 15e3] = "VENDOR_VIEWABILITY_TIME_15",
+        e[e.VIDEO_VIEWABLE_WATCHED_6_SECS = 6e3] = "VIDEO_VIEWABLE_WATCHED_6_SECS",
+        e[e.VIDEO_VIEWABLE_WATCHED_15_SECS = 15e3] = "VIDEO_VIEWABLE_WATCHED_15_SECS"
+    }(Xn || (Xn = {})),
+    function(e) {
+        e[e.VIDEO_WATCHED_SECONDS_3 = 3e3] = "VIDEO_WATCHED_SECONDS_3",
+        e[e.VIDEO_WATCHED_SECONDS_5 = 5e3] = "VIDEO_WATCHED_SECONDS_5",
+        e[e.VIDEO_WATCHED_SECONDS_10 = 1e4] = "VIDEO_WATCHED_SECONDS_10"
+    }(Zn || (Zn = {}));
+    const eo = [{
+        pixelEvent: qn.VIDEO_VIEWABLE_IMPRESSION,
+        threshold: Yn.VIEWABILITY_THRESHOLD,
+        time: Xn.VIDEO_VIEWABILITY_TIME
+    }, {
+        pixelEvent: qn.VIDEO_FULLY_VIEWABLE_IMPRESSION,
+        threshold: Yn.FULL_VIEWABILITY_THRESHOLD,
+        time: Xn.VIDEO_FULL_VIEWABILITY_TIME
+    }, {
+        pixelEvent: qn.VIDEO_VIEWABLE_WATCHED_6_SECS,
+        threshold: Yn.VIEWABILITY_THRESHOLD,
+        time: Xn.VIDEO_VIEWABLE_WATCHED_6_SECS,
+        timePercent: .95
+    }, {
+        pixelEvent: qn.VIDEO_VIEWABLE_WATCHED_15_SECS,
+        threshold: Yn.VIEWABILITY_THRESHOLD,
+        time: Xn.VIDEO_VIEWABLE_WATCHED_15_SECS,
+        timePercent: .95
+    }];
+    var to;
+    !function(e) {
+        e.VIDEO_STATE_Q0 = "VIDEO_STATE_Q0",
+        e.VIDEO_STATE_Q1 = "VIDEO_STATE_Q1",
+        e.VIDEO_STATE_Q2 = "VIDEO_STATE_Q2",
+        e.VIDEO_STATE_Q3 = "VIDEO_STATE_Q3",
+        e.VIDEO_STATE_Q4 = "VIDEO_STATE_Q4"
+    }(to || (to = {}));
+    const io = [{
+        timePercent: 0,
+        quartileKey: to.VIDEO_STATE_Q0
+    }, {
+        pixelEvent: qn.VIDEO_WATCHED_25,
+        timePercent: .25,
+        quartileKey: to.VIDEO_STATE_Q1
+    }, {
+        pixelEvent: qn.VIDEO_WATCHED_50,
+        timePercent: .5,
+        quartileKey: to.VIDEO_STATE_Q2
+    }, {
+        pixelEvent: qn.VIDEO_WATCHED_75,
+        timePercent: .75,
+        quartileKey: to.VIDEO_STATE_Q3
+    }, {
+        pixelEvent: qn.VIDEO_WATCHED_95,
+        timePercent: .95
+    }, {
+        pixelEvent: qn.VIDEO_WATCHED_100,
+        timePercent: 1,
+        quartileKey: to.VIDEO_STATE_Q4
+    }]
+      , no = [{
+        pixelEvent: qn.VIDEO_WATCHED_3_SECS,
+        time: Zn.VIDEO_WATCHED_SECONDS_3,
+        timePercent: .95
+    }, {
+        pixelEvent: qn.VIDEO_WATCHED_5_SECS,
+        time: Zn.VIDEO_WATCHED_SECONDS_5,
+        timePercent: .95
+    }, {
+        pixelEvent: qn.VIDEO_WATCHED_10_SECS,
+        time: Zn.VIDEO_WATCHED_SECONDS_10,
+        timePercent: .95
+    }];
+    var oo, ro;
+    qn.VENDOR_FULLY_IN_VIEW,
+    Xn.VENDOR_VIEWABILITY_TIME,
+    qn.VENDOR_FULLY_IN_VIEW_5_SECS,
+    Xn.VENDOR_VIEWABILITY_TIME_5,
+    qn.VENDOR_FULLY_IN_VIEW_15_SECS,
+    Xn.VENDOR_VIEWABILITY_TIME_15,
+    function(e) {
+        e.DISPLAY = "display",
+        e.VIDEO = "video"
+    }(oo || (oo = {})),
+    function(e) {
+        e[e.NO_EVENT = 0] = "NO_EVENT",
+        e[e.NOT_VISIBLE_NOT_AUDIBLE = 1] = "NOT_VISIBLE_NOT_AUDIBLE",
+        e[e.VISIBLE_NOT_AUDIBLE = 2] = "VISIBLE_NOT_AUDIBLE",
+        e[e.AUDIBLE_NOT_VISIBLE = 3] = "AUDIBLE_NOT_VISIBLE",
+        e[e.VISIBLE_AND_AUDIBLE = 4] = "VISIBLE_AND_AUDIBLE"
+    }(ro || (ro = {}));
+    var ao, so, lo, co, uo;
+    !function(e) {
+        e.ANY_TOTAL_VIEW_TIME = "a",
+        e.FIFTY_TOTAL_VIEW_TIME = "b",
+        e.EIGHTY_TOTAL_VIEW_TIME = "be",
+        e.FULL_TOTAL_VIEW_TIME = "c",
+        e.ANY_CONTINUOUS_VIEW_TIME = "d",
+        e.FIFTY_CONTINUOUS_VIEW_TIME = "e",
+        e.THIRTY_CONTINUOUS_VIEW_TIME = "ea",
+        e.EIGHTY_CONTINUOUS_VIEW_TIME = "eb",
+        e.FULL_CONTINUOUS_VIEW_TIME = "f",
+        e.GLOBAL_COUNT = "r",
+        e.GROUP_M_VIEWABLE = "g",
+        e.AD_LOAD_TIME = "i",
+        e.TIMESTAMP = "t",
+        e.WAS_EVER_VIEWABLE = "o",
+        e.PRODUCT_ID = "p",
+        e.LARGE_AD_FULL_VIEW = "q",
+        e.HEIGHT = "h",
+        e.WIDTH = "w",
+        e.SCREEN_HEIGHT = "sh",
+        e.SCREEN_WIDTH = "sw",
+        e.TEST_ID = "ti"
+    }(ao || (ao = {})),
+    function(e) {
+        e.IMAGE = "image",
+        e.VIDEO = "video",
+        e.GALLERY = "gallery",
+        e.TEXT = "text",
+        e.BLANK = "blank",
+        e.SHOPPING_SINGLE_PRODUCT = "shopping_single_product",
+        e.SHOPPING_MULTI_PRODUCT = "shopping_multi_product",
+        e.PROMOTED_COMMUNITY_POST = "promoted_community_post",
+        e.PROMOTED_COMMUNITY_POST_V2 = "promoted_community_post_v2",
+        e.RBL_SURVEY = "rbl_survey",
+        e.PROFILE_AMA = "profile_ama",
+        e.DEV_PLATFORM_AD_POST = "dev_platform_ad_post",
+        e.UNSUPPORTED = "unsupported"
+    }(so || (so = {})),
+    function(e) {
+        e[e.IMAGE = 0] = "IMAGE",
+        e[e.TEXT = 1] = "TEXT",
+        e[e.VIDEO = 2] = "VIDEO",
+        e[e.PRODUCT = 3] = "PRODUCT",
+        e[e.ORGANIC_CONTENT = 4] = "ORGANIC_CONTENT"
+    }(lo || (lo = {})),
+    function(e) {
+        e.LEAD_GEN = "lead-gen",
+        e.STANDARD = "standard"
+    }(co || (co = {})),
+    function(e) {
+        e.UNKNOWN = "unknown",
+        e.TITLE = "title",
+        e.USERNAME = "username",
+        e.MEDIA = "media",
+        e.TEXT_BODY = "text_body",
+        e.BACKGROUND = "background",
+        e.CTA_DESTINATION_URL = "cta_destination_url",
+        e.CTA_BUTTON = "cta_button",
+        e.CTA_WHITESPACE = "cta_whitespace",
+        e.CTA_CAPTION = "cta_caption",
+        e.VIDEO_CTA = "video_cta",
+        e.PRODUCT_NAME = "product_name",
+        e.PRODUCT_INFO = "product_info",
+        e.PRODUCT_INFO_STRIKETHROUGH = "product_info_strikethrough",
+        e.PROMOTED_ITEM_1 = "promoted_item_1",
+        e.FLOATING_CTA_DESTINATION_URL = "floating_cta_destination_url",
+        e.FLOATING_CTA_BUTTON = "floating_cta_button",
+        e.FLOATING_CTA_WHITESPACE = "floating_cta_whitespace",
+        e.PROMOTED_LABEL = "promoted_label",
+        e.ACTION_BAR_WHITESPACE = "action_bar_whitespace",
+        e.CREDIT_BAR_WHITESPACE = "credit_bar_whitespace",
+        e.AMA_STATUS_BAR = "ama_status_bar",
+        e.AMA_STATUS_BAR_CTA = "ama_status_bar_cta",
+        e.REMINDER_STATUS_BAR = "reminder_status_bar",
+        e.REMINDER_STATUS_BAR_CTA = "reminder_status_bar_cta"
+    }(uo || (uo = {}));
+    var ho;
+    !function(e) {
+        e.IS_VIDEO_AD = "va",
+        e.TOTAL_MRC_VIEWABLE_TIME = "vb",
+        e.VIDEO_AD_DURATION = "vc",
+        e.TOTAL_PLAY_TIME = "vd",
+        e.VOLUME = "ve",
+        e.IS_VISIBLE = "vg",
+        e.VIDEO_HEIGHT = "vh",
+        e.TOTAL_AUDIBLE_TIME = "vi",
+        e.VIDEO_WIDTH = "vw",
+        e.WAS_FULL_SCREEN = "vq",
+        e.HALF_DURATION_80_IN_VIEW_AUDIBLE = "vr",
+        e.VIDEO_STATE_Q0 = "vs",
+        e.VIDEO_STATE_Q1 = "vt",
+        e.VIDEO_STATE_Q2 = "vu",
+        e.VIDEO_STATE_Q3 = "vv",
+        e.VIDEO_STATE_Q4 = "vx",
+        e.FULL_IN_VIEW_AUDIBLE_TIME = "vy",
+        e.FULL_IN_VIEW_TIME = "vz",
+        e.WAS_FULL_IN_VIEW_1SEC = "xa",
+        e.ANY_CONTINUOUS_VIDEO_VIEW_TIME = "xf",
+        e.FIFTY_CONTINUOUS_VIDEO_VIEW_TIME = "xb",
+        e.FULL_CONTINUOUS_VIDEO_VIEW_TIME = "vf",
+        e.EIGHTY_TOTAL_VIDEO_VIEW_TIME = "xe",
+        e.HAS_SEEKED = "xc"
+    }(ho || (ho = {}));
+    const po = {
+        [qn.VIDEO_VIEWABLE_IMPRESSION]: {
+            watched_ms: Xn.VIDEO_VIEWABILITY_TIME
+        },
+        [qn.VIDEO_FULLY_VIEWABLE_IMPRESSION]: {
+            watched_ms: Xn.VIDEO_FULL_VIEWABILITY_TIME
+        },
+        [qn.VIDEO_VIEWABLE_WATCHED_6_SECS]: {
+            watched_ms: Xn.VIDEO_VIEWABLE_WATCHED_6_SECS
+        },
+        [qn.VIDEO_VIEWABLE_WATCHED_15_SECS]: {
+            watched_ms: Xn.VIDEO_VIEWABLE_WATCHED_15_SECS
+        },
+        [qn.VIDEO_WATCHED_3_SECS]: {
+            watched_ms: Zn.VIDEO_WATCHED_SECONDS_3
+        },
+        [qn.VIDEO_WATCHED_5_SECS]: {
+            watched_ms: Zn.VIDEO_WATCHED_SECONDS_5
+        },
+        [qn.VIDEO_WATCHED_10_SECS]: {
+            watched_ms: Zn.VIDEO_WATCHED_SECONDS_10
+        },
+        [qn.VIDEO_STARTED]: {
+            watched_percentage: 0
+        },
+        [qn.VIDEO_WATCHED_25]: {
+            watched_percentage: 25
+        },
+        [qn.VIDEO_WATCHED_50]: {
+            watched_percentage: 50
+        },
+        [qn.VIDEO_WATCHED_75]: {
+            watched_percentage: 75
+        },
+        [qn.VIDEO_WATCHED_95]: {
+            watched_percentage: 95
+        },
+        [qn.VIDEO_WATCHED_100]: {
+            watched_percentage: 100
+        }
+    }
+      , mo = {
+        [qn.VENDOR_FULLY_IN_VIEW]: {
+            vendor_viewability_duration_ms: Xn.VENDOR_VIEWABILITY_TIME
+        },
+        [qn.VENDOR_FULLY_IN_VIEW_5_SECS]: {
+            vendor_viewability_duration_ms: Xn.VENDOR_VIEWABILITY_TIME_5
+        },
+        [qn.VENDOR_FULLY_IN_VIEW_15_SECS]: {
+            vendor_viewability_duration_ms: Xn.VENDOR_VIEWABILITY_TIME_15
+        }
+    }
+      , go = [{
+        experimentName: "shreddit_ad_event_migration_m2",
+        pixelEventTypes: [qn.IMPRESSION, qn.CLICK, qn.VIDEO_VIEWABLE_IMPRESSION, qn.VIDEO_VIEWABLE_WATCHED_6_SECS, qn.VIDEO_VIEWABLE_WATCHED_15_SECS]
+    }, {
+        experimentName: "shreddit_ad_event_migration_m3",
+        pixelEventTypes: [qn.COMMENTS_VIEW, qn.UPVOTE, qn.DOWNVOTE, qn.COMMENT, qn.COMMENT_UPVOTE, qn.COMMENT_DOWNVOTE, qn.VIDEO_FULLY_VIEWABLE_IMPRESSION, qn.VIDEO_PLAYED_WITH_SOUND, qn.VIDEO_PLAYED_EXPANDED, qn.VIDEO_GROUP_M_VIEWABLE, qn.VIDEO_WATCHED_25, qn.VIDEO_WATCHED_50, qn.VIDEO_WATCHED_75, qn.VIDEO_WATCHED_95, qn.VIDEO_WATCHED_100, qn.VIDEO_STARTED, qn.VIDEO_WATCHED_3_SECS, qn.VIDEO_WATCHED_5_SECS, qn.VIDEO_WATCHED_10_SECS, qn.VENDOR_FULLY_IN_VIEW, qn.VENDOR_FULLY_IN_VIEW_5_SECS, qn.VENDOR_FULLY_IN_VIEW_15_SECS, qn.VIEWABLE_IMPRESSION, qn.UNLOAD, qn.GALLERY_ITEM_IMPRESSION, qn.ENGAGED_CLICK, qn.PRODUCT_IMPRESSION, qn.PRODUCT_CLICK, qn.LEAD_GENERATION]
+    }]
+      , _o = [{
+        experimentName: "shreddit_ad_event_migration_cutoff_m1",
+        pixelEventTypes: [qn.GROUP_M_VIEWABLE]
+    }]
+      , fo = [qn.GROUP_M_VIEWABLE];
+    const Eo = new (class {
+        constructor() {
+            this.postUnloadQueue = [],
+            this.postUnloadQueueData = new Map,
+            this.deviceType = qt.MOBILE,
+            this.removeFromUnloadQueue = (e, t) => {
+                const i = t || this.postUnloadQueueData.get(e);
+                clearTimeout(i?.timer),
+                this.postUnloadQueueData.delete(e);
+                this.postUnloadQueue.indexOf(e) > -1 && this.postUnloadQueue.splice(this.postUnloadQueue.indexOf(e), 1)
+            }
+            ,
+            this.queuePostForUnload = (e, t, i, n, o) => {
+                if (!this.postUnloadQueue.some((e => e === t)) && (this.postUnloadQueueData.set(t, {
+                    postId: e,
+                    impressionId: t,
+                    getMetadata: i,
+                    firePixel: n,
+                    getPixelScalingFields: o,
+                    timer: setTimeout(( () => {
+                        n({
+                            pixelEventType: qn.UNLOAD,
+                            metadata: i()
+                        }),
+                        this.removeFromUnloadQueue(t)
+                    }
+                    ), 6e5)
+                }),
+                this.postUnloadQueue.push(t),
+                this.postUnloadQueue.length > 5)) {
+                    const e = this.postUnloadQueue.shift();
+                    if (e) {
+                        const t = this.postUnloadQueueData.get(e);
+                        if (!t)
+                            return;
+                        t.firePixel({
+                            pixelEventType: qn.UNLOAD,
+                            metadata: t.getMetadata()
+                        }),
+                        this.removeFromUnloadQueue(e, t)
+                    }
+                }
+            }
+        }
+        _resetFiredPixels() {
+            this.postUnloadQueue = []
+        }
+        fireQueuedUnloadPixels() {
+            this.postUnloadQueue.forEach((e => {
+                const t = this.postUnloadQueueData.get(e);
+                t && (t.firePixel({
+                    pixelEventType: qn.UNLOAD,
+                    metadata: t.getMetadata()
+                }),
+                this.removeFromUnloadQueue(e, t))
+            }
+            ))
+        }
+    }
+    )
+      , vo = new Intl.PluralRules("pt-BR");
+    function So(e) {
+        return e[vo.select(e.count)]
+    }
+    function bo(e) {
+        switch (e.status) {
+        case 429:
+            return (t = e.headers.get("X-ratelimit-reset")) ? So({
+                one: `Sua solicitação atingiu o limite da taxa de requisições. Aguarde ${t} segundo e tente novamente.`,
+                other: `Sua solicitação atingiu o limite da taxa de requisições. Aguarde ${t} segundos e tente novamente.`,
+                count: parseInt(t) || 0
+            }) : "Sua solicitação atingiu o limite da taxa de requisições. Por favor, faça uma pausa de alguns minutos e tente novamente.";
+        case 403:
+            return "\n      Sua solicitação foi bloqueada pela segurança da rede.  Por favor, tente entrar com sua conta do Reddit.\n    ";
+        default:
+            return "Ocorreu um erro. Por favor, tente novamente mais tarde.";
+        }
+        var t
+    }
+    var To;
+    !function(e) {
+        e.AcceptAutomationRecommendation = "AcceptAutomationRecommendation",
+        e.AcceptModeratorInvite = "AcceptModeratorInvite",
+        e.AchievementCategoryById = "AchievementCategoryById",
+        e.AchievementCategoryByIdIdentity = "AchievementCategoryByIdIdentity",
+        e.AchievementTrophyById = "AchievementTrophyById",
+        e.AchievementUnlockedNotifications = "AchievementUnlockedNotifications",
+        e.AdAccounts = "AdAccounts",
+        e.AddBrandAnalyticsSearchQueryKeyword = "AddBrandAnalyticsSearchQueryKeyword",
+        e.AddModmailMessage = "AddModmailMessage",
+        e.AddSubredditWidget = "AddSubredditWidget",
+        e.AddWikiContributor = "AddWikiContributor",
+        e.AddWikiPageEditor = "AddWikiPageEditor",
+        e.AgeAssurance = "AgeAssurance",
+        e.AIModPredictionsForPost = "AIModPredictionsForPost",
+        e.All = "All",
+        e.AllChatsPageCustomRecommendations = "AllChatsPageCustomRecommendations",
+        e.AllChatsPageNavigation = "AllChatsPageNavigation",
+        e.AllChatsPageRecommendations = "AllChatsPageRecommendations",
+        e.AllFeedRightRail = "AllFeedRightRail",
+        e.AllowlistedRedditorInfo = "AllowlistedRedditorInfo",
+        e.ApplyRemovalReason = "ApplyRemovalReason",
+        e.ApproveRedditor = "ApproveRedditor",
+        e.ArticleCommunities = "ArticleCommunities",
+        e.ArticleCommunityRecommendations = "ArticleCommunityRecommendations",
+        e.ArticleDetailsPage = "ArticleDetailsPage",
+        e.ArticleDetailsPostsFeed = "ArticleDetailsPostsFeed",
+        e.ArticleFeed = "ArticleFeed",
+        e.ArticleRssFeedList = "ArticleRssFeedList",
+        e.ArtistDetails = "ArtistDetails",
+        e.AssignFlairPostModal = "AssignFlairPostModal",
+        e.AssignFlairUserTypeahead = "AssignFlairUserTypeahead",
+        e.AssignUserFlairModal = "AssignUserFlairModal",
+        e.AudioRoomById = "AudioRoomById",
+        e.AvatarCatalog = "AvatarCatalog",
+        e.AvatarPastLooks = "AvatarPastLooks",
+        e.AwardDialogFromComment = "AwardDialogFromComment",
+        e.AwardDialogFromPost = "AwardDialogFromPost",
+        e.AwardGoldPurchaseFromComment = "AwardGoldPurchaseFromComment",
+        e.AwardGoldPurchaseFromPost = "AwardGoldPurchaseFromPost",
+        e.AwardLeaderboardComment = "AwardLeaderboardComment",
+        e.AwardLeaderboardPost = "AwardLeaderboardPost",
+        e.AwardOnContentModerationInfo = "AwardOnContentModerationInfo",
+        e.AwardSelectionSheetFromComment = "AwardSelectionSheetFromComment",
+        e.AwardSelectionSheetFromPost = "AwardSelectionSheetFromPost",
+        e.BackupVault = "BackupVault",
+        e.BanEvasionSubredditSettings = "BanEvasionSubredditSettings",
+        e.BannedUserIdentity = "BannedUserIdentity",
+        e.BanSubredditUser = "BanSubredditUser",
+        e.BlockedAccounts = "BlockedAccounts",
+        e.BoostedPostAdInsights = "BoostedPostAdInsights",
+        e.BoostPostPage = "BoostPostPage",
+        e.BrandAnalyticsMentionsChart = "BrandAnalyticsMentionsChart",
+        e.BrandAnalyticsSearchKeyword = "BrandAnalyticsSearchKeyword",
+        e.BrandLiftSurveyConfig = "BrandLiftSurveyConfig",
+        e.CancelPaySubscription = "CancelPaySubscription",
+        e.CancelTemporaryEventRun = "CancelTemporaryEventRun",
+        e.ChangePaymentMethod = "ChangePaymentMethod",
+        e.ChatBadgeIndicator = "ChatBadgeIndicator",
+        e.ChatBanChatChannelUser = "ChatBanChatChannelUser",
+        e.ChatBannedUsers = "ChatBannedUsers",
+        e.ChatBanSubredditUser = "ChatBanSubredditUser",
+        e.ChatBlockedRedditors = "ChatBlockedRedditors",
+        e.ChatChannelRecommendations = "ChatChannelRecommendations",
+        e.ChatChannelsByIds = "ChatChannelsByIds",
+        e.ChatContentControlSettings = "ChatContentControlSettings",
+        e.ChatCreateShareUrl = "ChatCreateShareUrl",
+        e.ChatCreateSubredditChannel = "ChatCreateSubredditChannel",
+        e.ChatCreateUccChatChannel = "ChatCreateUccChatChannel",
+        e.ChatCrowdControlSettings = "ChatCrowdControlSettings",
+        e.ChatCurrentUserContext = "ChatCurrentUserContext",
+        e.ChatDeleteChannel = "ChatDeleteChannel",
+        e.ChatGetChatChannelBannedUsers = "ChatGetChatChannelBannedUsers",
+        e.ChatGetUccChannelTaggingInfo = "ChatGetUccChannelTaggingInfo",
+        e.ChatGetUserMessageRequestSetting = "ChatGetUserMessageRequestSetting",
+        e.ChatIsUserBannedFromChatChannel = "ChatIsUserBannedFromChatChannel",
+        e.ChatModApprove = "ChatModApprove",
+        e.ChatModRemove = "ChatModRemove",
+        e.ChatPinMessagesToSubredditChannel = "ChatPinMessagesToSubredditChannel",
+        e.ChatQueryTagSubreddits = "ChatQueryTagSubreddits",
+        e.ChatRedditors = "ChatRedditors",
+        e.ChatRedditorsByName = "ChatRedditorsByName",
+        e.ChatReportForm = "ChatReportForm",
+        e.ChatRetractChatChannelUserRoleInvitation = "ChatRetractChatChannelUserRoleInvitation",
+        e.ChatSearchChatMessageReactionIcons = "ChatSearchChatMessageReactionIcons",
+        e.ChatShareUrl = "ChatShareUrl",
+        e.ChatSubreddit = "ChatSubreddit",
+        e.ChatSubredditStyles = "ChatSubredditStyles",
+        e.ChatUnbanChatChannelUser = "ChatUnbanChatChannelUser",
+        e.ChatUnbanSubredditUser = "ChatUnbanSubredditUser",
+        e.ChatUpdateAccountPreferences = "ChatUpdateAccountPreferences",
+        e.ChatUpdateChannel = "ChatUpdateChannel",
+        e.ChatUpdateChannelModerationSettings = "ChatUpdateChannelModerationSettings",
+        e.ChatUpdateChatChannelUserRolePromotion = "ChatUpdateChatChannelUserRolePromotion",
+        e.ChatUpdateChatChannelUsersRoles = "ChatUpdateChatChannelUsersRoles",
+        e.ChatUpdateCrowdControlLevel = "ChatUpdateCrowdControlLevel",
+        e.ChatUpdateRedditorBlockState = "ChatUpdateRedditorBlockState",
+        e.Checkout = "Checkout",
+        e.CheckoutDevvitProducts = "CheckoutDevvitProducts",
+        e.ClaimFreeNft = "ClaimFreeNft",
+        e.ClearPostFlair = "ClearPostFlair",
+        e.ClearUserFlair = "ClearUserFlair",
+        e.Comment = "Comment",
+        e.CommentForEdit = "CommentForEdit",
+        e.CommentForSocialPreview = "CommentForSocialPreview",
+        e.CommentModerationInfo = "CommentModerationInfo",
+        e.CommentPermalink = "CommentPermalink",
+        e.Comments = "Comments",
+        e.CommentStatsPage = "CommentStatsPage",
+        e.CommentTreeAds = "CommentTreeAds",
+        e.CommunityGuide = "CommunityGuide",
+        e.CommunityJoinActions = "CommunityJoinActions",
+        e.CommunityManagementPage = "CommunityManagementPage",
+        e.CommunityManagementPageTypeahead = "CommunityManagementPageTypeahead",
+        e.CommunityName = "CommunityName",
+        e.CommunitySearch = "CommunitySearch",
+        e.CommunityStatus = "CommunityStatus",
+        e.CommunityStatusForEdit = "CommunityStatusForEdit",
+        e.CommunitySuggestions = "CommunitySuggestions",
+        e.ComposeMessagePage = "ComposeMessagePage",
+        e.ConfirmEconPayment = "ConfirmEconPayment",
+        e.ContentCarouselModSafetySmartEscalations = "ContentCarouselModSafetySmartEscalations",
+        e.ContextualSignupPrompt = "ContextualSignupPrompt",
+        e.ContributorProgramVerificationModal = "ContributorProgramVerificationModal",
+        e.ConvertMarkdownToRTJSON = "ConvertMarkdownToRTJSON",
+        e.ConvertRTJSONToMarkdown = "ConvertRTJSONToMarkdown",
+        e.CreateAdAccount = "CreateAdAccount",
+        e.CreateAutomation = "CreateAutomation",
+        e.CreateAvatar = "CreateAvatar",
+        e.CreateAvatarPage = "CreateAvatarPage",
+        e.CreateAwardOrder = "CreateAwardOrder",
+        e.CreateBrandToolsRequest = "CreateBrandToolsRequest",
+        e.CreateCaptchaToken = "CreateCaptchaToken",
+        e.CreateComment = "CreateComment",
+        e.CreateCustomPostSnapshot = "CreateCustomPostSnapshot",
+        e.CreateDraft = "CreateDraft",
+        e.CreateEconPayment = "CreateEconPayment",
+        e.CreateMediaUploadLease = "CreateMediaUploadLease",
+        e.CreateModmailConversation = "CreateModmailConversation",
+        e.CreateModUserNote = "CreateModUserNote",
+        e.CreatePayoutAccountOnboardingUrl = "CreatePayoutAccountOnboardingUrl",
+        e.CreatePost = "CreatePost",
+        e.CreateProfilePost = "CreateProfilePost",
+        e.CreateProfileStructuredStylesUploadLease = "CreateProfileStructuredStylesUploadLease",
+        e.CreatePublisherArticle = "CreatePublisherArticle",
+        e.CreatePublisherRssFeed = "CreatePublisherRssFeed",
+        e.CreateSavedResponse = "CreateSavedResponse",
+        e.CreateScheduledPost = "CreateScheduledPost",
+        e.CreateStorefrontOrder = "CreateStorefrontOrder",
+        e.CreateSubreddit = "CreateSubreddit",
+        e.CreateSubredditRule = "CreateSubredditRule",
+        e.CreateSubredditStructuredStylesUploadLease = "CreateSubredditStructuredStylesUploadLease",
+        e.CreateTemporaryEventConfig = "CreateTemporaryEventConfig",
+        e.CreateUserFlair = "CreateUserFlair",
+        e.CrowdControlSubredditSettings = "CrowdControlSubredditSettings",
+        e.CustomFeed = "CustomFeed",
+        e.CustomFeedAddSubreddits = "CustomFeedAddSubreddits",
+        e.CustomFeedCommunities = "CustomFeedCommunities",
+        e.CustomFeedCreate = "CustomFeedCreate",
+        e.CustomFeedCurator = "CustomFeedCurator",
+        e.CustomFeedDelete = "CustomFeedDelete",
+        e.CustomFeedDescription = "CustomFeedDescription",
+        e.CustomFeedDetailsForm = "CustomFeedDetailsForm",
+        e.CustomFeedPosts = "CustomFeedPosts",
+        e.CustomFeedRecommendations = "CustomFeedRecommendations",
+        e.CustomFeedRemoveSubreddits = "CustomFeedRemoveSubreddits",
+        e.CustomFeedsForUser = "CustomFeedsForUser",
+        e.CustomFeedUpdateDetails = "CustomFeedUpdateDetails",
+        e.CustomFeedUpdateSubscriptionState = "CustomFeedUpdateSubscriptionState",
+        e.DataProtectionPreferences = "DataProtectionPreferences",
+        e.DeclineModeratorInvite = "DeclineModeratorInvite",
+        e.DeleteAchievementNotifications = "DeleteAchievementNotifications",
+        e.DeleteAutomation = "DeleteAutomation",
+        e.DeleteComment = "DeleteComment",
+        e.DeleteFollowedKeywords = "DeleteFollowedKeywords",
+        e.DeleteInboxNotifications = "DeleteInboxNotifications",
+        e.DeleteModUserNote = "DeleteModUserNote",
+        e.DeletePost = "DeletePost",
+        e.DeletePostDraft = "DeletePostDraft",
+        e.DeletePrivateMessage = "DeletePrivateMessage",
+        e.DeleteProfileSocialLinks = "DeleteProfileSocialLinks",
+        e.DeletePublisherRSSFeed = "DeletePublisherRSSFeed",
+        e.DeleteSavedResponse = "DeleteSavedResponse",
+        e.DeleteScheduledPost = "DeleteScheduledPost",
+        e.DeleteSubredditChatChannel = "DeleteSubredditChatChannel",
+        e.DeleteSubredditEmoji = "DeleteSubredditEmoji",
+        e.DeleteSubredditFlairTemplate = "DeleteSubredditFlairTemplate",
+        e.DeleteSubredditMuteSettings = "DeleteSubredditMuteSettings",
+        e.DeleteSubredditRule = "DeleteSubredditRule",
+        e.DeleteSubredditWidget = "DeleteSubredditWidget",
+        e.DevvitAppPermissionsConsentDialog = "DevvitAppPermissionsConsentDialog",
+        e.DisapproveRedditor = "DisapproveRedditor",
+        e.DiscoverRSS = "DiscoverRSS",
+        e.DismissAutomationRecommendation = "DismissAutomationRecommendation",
+        e.DismissBrandAnalyticsKeywordSuggestion = "DismissBrandAnalyticsKeywordSuggestion",
+        e.DismissSmartEscalation = "DismissSmartEscalation",
+        e.DisplayCollectiblesForModal = "DisplayCollectiblesForModal",
+        e.DraftAndScheduled = "DraftAndScheduled",
+        e.DynamicFeedElements = "DynamicFeedElements",
+        e.DynamicInterestTopics = "DynamicInterestTopics",
+        e.EarnProgramDetails = "EarnProgramDetails",
+        e.EconUiUnit = "EconUiUnit",
+        e.EditAvatar = "EditAvatar",
+        e.EligibleCommunitiesPage = "EligibleCommunitiesPage",
+        e.Embed = "Embed",
+        e.EmbedComment = "EmbedComment",
+        e.EmbedFeed = "EmbedFeed",
+        e.EmojiSettings = "EmojiSettings",
+        e.EndPostEvent = "EndPostEvent",
+        e.EnrollInStreaks = "EnrollInStreaks",
+        e.EstimatedViews = "EstimatedViews",
+        e.EvaluateCommentAutomationsByPostId = "EvaluateCommentAutomationsByPostId",
+        e.EvaluatePostAutomations = "EvaluatePostAutomations",
+        e.Experiences = "Experiences",
+        e.ExploreFeed = "ExploreFeed",
+        e.ExploreTopicFeed = "ExploreTopicFeed",
+        e.ExportVaultBackup = "ExportVaultBackup",
+        e.ExportVaultPage = "ExportVaultPage",
+        e.ExposeVariant = "ExposeVariant",
+        e.F1AnswersByPostId = "F1AnswersByPostId",
+        e.FeedPost = "FeedPost",
+        e.FetchTitle = "FetchTitle",
+        e.FlairedRedditorByName = "FlairedRedditorByName",
+        e.FlairedRedditors = "FlairedRedditors",
+        e.Frontpage = "Frontpage",
+        e.GeneralSearch = "GeneralSearch",
+        e.GeneratedProfileDescriptions = "GeneratedProfileDescriptions",
+        e.GeneratedUsernames = "GeneratedUsernames",
+        e.GenerateSubredditEmojiUploadLease = "GenerateSubredditEmojiUploadLease",
+        e.GeoCuratedFeedSources = "GeoCuratedFeedSources",
+        e.GetAccessoriesBySection = "GetAccessoriesBySection",
+        e.GetActiveVaultDetails = "GetActiveVaultDetails",
+        e.GetAdBusinessNameById = "GetAdBusinessNameById",
+        e.GetAdTransparencyMessagesById = "GetAdTransparencyMessagesById",
+        e.GetAnswersDynamicConfig = "GetAnswersDynamicConfig",
+        e.GetApprovedUsers = "GetApprovedUsers",
+        e.GetArtistNameById = "GetArtistNameById",
+        e.GetDevvitProducts = "GetDevvitProducts",
+        e.GetFollowedKeywords = "GetFollowedKeywords",
+        e.GetFreeNftClaimDrops = "GetFreeNftClaimDrops",
+        e.GetFundingInstrumentsByAdAccountId = "GetFundingInstrumentsByAdAccountId",
+        e.GetFundingInstrumentSecret = "GetFundingInstrumentSecret",
+        e.GetIsCommentGuidanceAvailableFromPostId = "GetIsCommentGuidanceAvailableFromPostId",
+        e.GetLastAuthorModNoteByCommentId = "GetLastAuthorModNoteByCommentId",
+        e.GetLastAuthorModNoteByPostId = "GetLastAuthorModNoteByPostId",
+        e.GetListingById = "GetListingById",
+        e.GetMessageRecipientSubredditInfo = "GetMessageRecipientSubredditInfo",
+        e.GetNftDetails = "GetNftDetails",
+        e.GetPreviousActions = "GetPreviousActions",
+        e.GetRelatedCommunityRecommendations = "GetRelatedCommunityRecommendations",
+        e.GetRuleInsightsActivityLogs = "GetRuleInsightsActivityLogs",
+        e.GetSharedModPageFragment = "GetSharedModPageFragment",
+        e.GetSubredditModRecruitmentSettings = "GetSubredditModRecruitmentSettings",
+        e.GetVaultRegistrationChallenge = "GetVaultRegistrationChallenge",
+        e.GoldPackages = "GoldPackages",
+        e.GrantAppPermission = "GrantAppPermission",
+        e.GuidesCitationCommentDetails = "GuidesCitationCommentDetails",
+        e.GuidesCitationPostDetails = "GuidesCitationPostDetails",
+        e.GuidesPageConversationDetails = "GuidesPageConversationDetails",
+        e.GuidesPageDetails = "GuidesPageDetails",
+        e.GuidesRecommendedPosts = "GuidesRecommendedPosts",
+        e.HarassmentSubredditSettings = "HarassmentSubredditSettings",
+        e.HiddenArticleCommunityRecommendations = "HiddenArticleCommunityRecommendations",
+        e.HiddenReportsModQueueItems = "HiddenReportsModQueueItems",
+        e.HideArticleCommunityRecommendation = "HideArticleCommunityRecommendation",
+        e.HideInboxAnnouncements = "HideInboxAnnouncements",
+        e.HighlightedPosts = "HighlightedPosts",
+        e.HomeFeedRightRail = "HomeFeedRightRail",
+        e.HorizontalExperiences = "HorizontalExperiences",
+        e.Identity = "Identity",
+        e.IdentityAppealEligibility = "IdentityAppealEligibility",
+        e.IdentityHotkeys = "IdentityHotkeys",
+        e.IdentityImmersiveTranslationSetting = "IdentityImmersiveTranslationSetting",
+        e.IdentityModeratorCheck = "IdentityModeratorCheck",
+        e.IdentityUserDataExportEligibility = "IdentityUserDataExportEligibility",
+        e.IdentityUserEmail = "IdentityUserEmail",
+        e.IdentityUserIcon = "IdentityUserIcon",
+        e.IdentityUserName = "IdentityUserName",
+        e.IdentityUserPreferences = "IdentityUserPreferences",
+        e.IgnoreReports = "IgnoreReports",
+        e.InboxAnnouncementsByIds = "InboxAnnouncementsByIds",
+        e.InboxBadgeIndicator = "InboxBadgeIndicator",
+        e.InboxGroupedNotificationFeed = "InboxGroupedNotificationFeed",
+        e.InterestTopics = "InterestTopics",
+        e.InterestTopicsSearch = "InterestTopicsSearch",
+        e.InterestTopicsV2 = "InterestTopicsV2",
+        e.InvitedPage = "InvitedPage",
+        e.IsEmailValidForRegistration = "IsEmailValidForRegistration",
+        e.IsUsernameValidForRegistration = "IsUsernameValidForRegistration",
+        e.KeywordLandingPage = "KeywordLandingPage",
+        e.LandingExperience = "LandingExperience",
+        e.LeftNavBusinessToolsSection = "LeftNavBusinessToolsSection",
+        e.LeftNavCommunitiesSection = "LeftNavCommunitiesSection",
+        e.LeftNavGamesSection = "LeftNavGamesSection",
+        e.LeftNavModerationSection = "LeftNavModerationSection",
+        e.LeftNavMultiredditsSection = "LeftNavMultiredditsSection",
+        e.MarkInboxAnnouncementsRead = "MarkInboxAnnouncementsRead",
+        e.MarkNotificationRead = "MarkNotificationRead",
+        e.MarkPrivateMessageAsRead = "MarkPrivateMessageAsRead",
+        e.MediaAuthInfo = "MediaAuthInfo",
+        e.MediaLinks = "MediaLinks",
+        e.ModAchievementsPage = "ModAchievementsPage",
+        e.ModActivityPanel = "ModActivityPanel",
+        e.ModActivityPreview = "ModActivityPreview",
+        e.ModActivityPreviewHovercard = "ModActivityPreviewHovercard",
+        e.ModAllSubredditPermissions = "ModAllSubredditPermissions",
+        e.ModAuthorFlair = "ModAuthorFlair",
+        e.ModAutomationRecommendation = "ModAutomationRecommendation",
+        e.ModAutomationRules = "ModAutomationRules",
+        e.ModAutomationsPage = "ModAutomationsPage",
+        e.ModBanInfoForUser = "ModBanInfoForUser",
+        e.ModBulkApprove = "ModBulkApprove",
+        e.ModBulkIgnore = "ModBulkIgnore",
+        e.ModBulkLock = "ModBulkLock",
+        e.ModBulkMarkNSFW = "ModBulkMarkNSFW",
+        e.ModBulkMarkSpoiler = "ModBulkMarkSpoiler",
+        e.ModBulkRemove = "ModBulkRemove",
+        e.ModBulkUnignore = "ModBulkUnignore",
+        e.ModBulkUnlock = "ModBulkUnlock",
+        e.ModBulkUnmarkNSFW = "ModBulkUnmarkNSFW",
+        e.ModBulkUnmarkSpoiler = "ModBulkUnmarkSpoiler",
+        e.ModBulkUpdatePostFlair = "ModBulkUpdatePostFlair",
+        e.ModCommunityChatContentControlPage = "ModCommunityChatContentControlPage",
+        e.ModCommunityChatRequirementsPage = "ModCommunityChatRequirementsPage",
+        e.ModeratorEvaluateCommentAutomations = "ModeratorEvaluateCommentAutomations",
+        e.ModeratorEvaluatePostAutomations = "ModeratorEvaluatePostAutomations",
+        e.ModeratorsPage = "ModeratorsPage",
+        e.ModGetBannedData = "ModGetBannedData",
+        e.ModGetMutedData = "ModGetMutedData",
+        e.ModGetUserManagementData = "ModGetUserManagementData",
+        e.ModGetUserRedditorInfoByName = "ModGetUserRedditorInfoByName",
+        e.ModGrowthInsightsPage = "ModGrowthInsightsPage",
+        e.ModHierarchyPage = "ModHierarchyPage",
+        e.ModhubLayoutPermissions = "ModhubLayoutPermissions",
+        e.ModhubNavPermissions = "ModhubNavPermissions",
+        e.ModhubSubredditSelector = "ModhubSubredditSelector",
+        e.ModInsightsModQueueEntrypoint = "ModInsightsModQueueEntrypoint",
+        e.ModInsightsWidgetData = "ModInsightsWidgetData",
+        e.ModLogInsightsSummary = "ModLogInsightsSummary",
+        e.ModLogItems = "ModLogItems",
+        e.ModLogPage = "ModLogPage",
+        e.ModmailConversationMessagesAndActions = "ModmailConversationMessagesAndActions",
+        e.ModmailConversations = "ModmailConversations",
+        e.ModmailFullConversation = "ModmailFullConversation",
+        e.ModmailSavedResponses = "ModmailSavedResponses",
+        e.ModMuteInfoForUser = "ModMuteInfoForUser",
+        e.ModNav = "ModNav",
+        e.ModNotesModActions = "ModNotesModActions",
+        e.ModNotesOverview = "ModNotesOverview",
+        e.ModNotesRail = "ModNotesRail",
+        e.ModNotesRailUserContent = "ModNotesRailUserContent",
+        e.ModOnboardingGuide = "ModOnboardingGuide",
+        e.ModPermissions = "ModPermissions",
+        e.ModPermissionsRightRail = "ModPermissionsRightRail",
+        e.ModPostAndCommentSettings = "ModPostAndCommentSettings",
+        e.ModQueue = "ModQueue",
+        e.ModQueueItemComment = "ModQueueItemComment",
+        e.ModQueueItemPost = "ModQueueItemPost",
+        e.ModQueueItems = "ModQueueItems",
+        e.ModRecruitmentInviteApplicants = "ModRecruitmentInviteApplicants",
+        e.ModRecruitmentSuggestedMods = "ModRecruitmentSuggestedMods",
+        e.ModRemovalReasons = "ModRemovalReasons",
+        e.ModReportsAndRemovalsInsightsPage = "ModReportsAndRemovalsInsightsPage",
+        e.ModRulesItems = "ModRulesItems",
+        e.ModSafetySmartEscalations = "ModSafetySmartEscalations",
+        e.ModSafetySubredditSettings = "ModSafetySubredditSettings",
+        e.ModSavedResponseOptions = "ModSavedResponseOptions",
+        e.ModSavedResponses = "ModSavedResponses",
+        e.ModSavedResponsesPage = "ModSavedResponsesPage",
+        e.ModScheduledPostsPage = "ModScheduledPostsPage",
+        e.ModSettingsGeneralPage = "ModSettingsGeneralPage",
+        e.ModSettingsNotificationsPage = "ModSettingsNotificationsPage",
+        e.ModSettingsPrivacyPage = "ModSettingsPrivacyPage",
+        e.ModSubredditAutomationRecommendationsIds = "ModSubredditAutomationRecommendationsIds",
+        e.ModSubredditLookAndFeelSettings = "ModSubredditLookAndFeelSettings",
+        e.ModTeamHealthInsightsPage = "ModTeamHealthInsightsPage",
+        e.ModThingPreviewCommentById = "ModThingPreviewCommentById",
+        e.ModThingPreviewPostInfoById = "ModThingPreviewPostInfoById",
+        e.ModToolsSetYearInReviewAvailability = "ModToolsSetYearInReviewAvailability",
+        e.ModUserNotes = "ModUserNotes",
+        e.ModUserTypeahead = "ModUserTypeahead",
+        e.MultiContentReportingSearch = "MultiContentReportingSearch",
+        e.MutedSubreddits = "MutedSubreddits",
+        e.MuteMember = "MuteMember",
+        e.MyModeratedSubreddits = "MyModeratedSubreddits",
+        e.NamedEntityFeed = "NamedEntityFeed",
+        e.NotificationInboxFeed = "NotificationInboxFeed",
+        e.NotificationInboxFeedV2 = "NotificationInboxFeedV2",
+        e.OptInToGatedSubreddit = "OptInToGatedSubreddit",
+        e.PDPRightRailRelatedPosts = "PDPRightRailRelatedPosts",
+        e.PDPRightRailTopicPosts = "PDPRightRailTopicPosts",
+        e.PdpSeekerPostQueueRecentPosts = "PdpSeekerPostQueueRecentPosts",
+        e.PdpSeekerPostQueueRelatedPosts = "PdpSeekerPostQueueRelatedPosts",
+        e.PdpSeekerPostQueueSearchRecommendations = "PdpSeekerPostQueueSearchRecommendations",
+        e.PdpSeekerSuggestedQueriesForSearch = "PdpSeekerSuggestedQueriesForSearch",
+        e.PdpTranslationOptions = "PdpTranslationOptions",
+        e.PersonalizedDevvitGames = "PersonalizedDevvitGames",
+        e.PersonalizedYearInReview = "PersonalizedYearInReview",
+        e.Popular = "Popular",
+        e.PopularCommunities = "PopularCommunities",
+        e.PopularFeedRightRail = "PopularFeedRightRail",
+        e.Post = "Post",
+        e.PostCachability = "PostCachability",
+        e.PostCollaborators = "PostCollaborators",
+        e.PostCreationPage = "PostCreationPage",
+        e.PostDirectoriesAvailable = "PostDirectoriesAvailable",
+        e.PostDirectoryPage = "PostDirectoryPage",
+        e.PostDraftCount = "PostDraftCount",
+        e.PostFlair = "PostFlair",
+        e.PostFlairSettings = "PostFlairSettings",
+        e.PostForEdit = "PostForEdit",
+        e.PostForHighlights = "PostForHighlights",
+        e.PostForInstagramStories = "PostForInstagramStories",
+        e.PostForSocialPreview = "PostForSocialPreview",
+        e.PostForWatermarking = "PostForWatermarking",
+        e.PostLevelCrowdControlSettings = "PostLevelCrowdControlSettings",
+        e.PostModerationInfo = "PostModerationInfo",
+        e.PostRecoverySubredditSuggestions = "PostRecoverySubredditSuggestions",
+        e.PostStatsPage = "PostStatsPage",
+        e.PostVideoPage = "PostVideoPage",
+        e.PostWithoutSubreddit = "PostWithoutSubreddit",
+        e.PremiumMarketingPage = "PremiumMarketingPage",
+        e.PreviewCommentAutomation = "PreviewCommentAutomation",
+        e.PreviewLLMRuleEnforcement = "PreviewLLMRuleEnforcement",
+        e.PreviewPostAutomation = "PreviewPostAutomation",
+        e.PrivateMessages = "PrivateMessages",
+        e.PrivateMessagesThread = "PrivateMessagesThread",
+        e.ProductCommunities = "ProductCommunities",
+        e.ProductCommunitiesPage = "ProductCommunitiesPage",
+        e.ProductDetailsInsightsMentions = "ProductDetailsInsightsMentions",
+        e.ProductDetailsInsightsMentionsFeed = "ProductDetailsInsightsMentionsFeed",
+        e.ProductInsightCards = "ProductInsightCards",
+        e.ProductInsightsDetailsPage = "ProductInsightsDetailsPage",
+        e.ProfileAccountPerformance = "ProfileAccountPerformance",
+        e.ProfileActiveSubreddits = "ProfileActiveSubreddits",
+        e.ProfileBrandMentions = "ProfileBrandMentions",
+        e.ProfileBusinessToolsPage = "ProfileBusinessToolsPage",
+        e.ProfileCommentStatsDownload = "ProfileCommentStatsDownload",
+        e.ProfileCommunityFinderPage = "ProfileCommunityFinderPage",
+        e.ProfileContributions = "ProfileContributions",
+        e.ProfileCreationPage = "ProfileCreationPage",
+        e.ProfileDashboardOverview = "ProfileDashboardOverview",
+        e.ProfileDashboardPage = "ProfileDashboardPage",
+        e.ProfileDashboardTrendingConvos = "ProfileDashboardTrendingConvos",
+        e.ProfileFollowers = "ProfileFollowers",
+        e.ProfileForSocialPreview = "ProfileForSocialPreview",
+        e.ProfileHeader = "ProfileHeader",
+        e.ProfileKeywords = "ProfileKeywords",
+        e.ProfileLeftNav = "ProfileLeftNav",
+        e.ProfileModeratedSubreddits = "ProfileModeratedSubreddits",
+        e.ProfilePerformance = "ProfilePerformance",
+        e.ProfilePostStatsDownload = "ProfilePostStatsDownload",
+        e.ProfileProductInsights = "ProfileProductInsights",
+        e.ProfileRelatedKeywords = "ProfileRelatedKeywords",
+        e.ProfileSettings = "ProfileSettings",
+        e.ProfileTrendingConvoDetails = "ProfileTrendingConvoDetails",
+        e.ProfileTrendingConvoMentions = "ProfileTrendingConvoMentions",
+        e.ProfileTrendingConvos = "ProfileTrendingConvos",
+        e.ProfileTrendMonitoringPage = "ProfileTrendMonitoringPage",
+        e.ProfileTrendsCommunityAffinityTable = "ProfileTrendsCommunityAffinityTable",
+        e.ProfileTrendsMentionsChart = "ProfileTrendsMentionsChart",
+        e.ProfileTypeahead = "ProfileTypeahead",
+        e.PromotedFloatingCTA = "PromotedFloatingCTA",
+        e.PromotePost = "PromotePost",
+        e.PromotePostButton = "PromotePostButton",
+        e.PublisherOverviewStats = "PublisherOverviewStats",
+        e.PublishSubmissionGroups = "PublishSubmissionGroups",
+        e.RecentPosts = "RecentPosts",
+        e.RecommendedMediaFeed = "RecommendedMediaFeed",
+        e.RecoverUsername = "RecoverUsername",
+        e.RedditChat = "RedditChat",
+        e.RedditorByName = "RedditorByName",
+        e.RedditorIdByName = "RedditorIdByName",
+        e.RedditProAdCreationModal = "RedditProAdCreationModal",
+        e.RedditProBrandCategories = "RedditProBrandCategories",
+        e.RedditProKeywordsForTopic = "RedditProKeywordsForTopic",
+        e.RedditProKeywordSummary = "RedditProKeywordSummary",
+        e.RedditProOnboardingDetailForm = "RedditProOnboardingDetailForm",
+        e.RedditProOnboardingPage = "RedditProOnboardingPage",
+        e.RedditProRecommendedKeywords = "RedditProRecommendedKeywords",
+        e.RedditProRecommendedKeywordsContent = "RedditProRecommendedKeywordsContent",
+        e.RedditProTopicExplorer = "RedditProTopicExplorer",
+        e.RegisterPushToken = "RegisterPushToken",
+        e.RegisterVaultAddress = "RegisterVaultAddress",
+        e.RemoveHighlightedPost = "RemoveHighlightedPost",
+        e.RemoveWikiContributor = "RemoveWikiContributor",
+        e.RemoveWikiContributorBan = "RemoveWikiContributorBan",
+        e.RemoveWikiPageEditor = "RemoveWikiPageEditor",
+        e.RenderSavedResponseTemplate = "RenderSavedResponseTemplate",
+        e.RenderSavedResponseTemplateBySubredditId = "RenderSavedResponseTemplateBySubredditId",
+        e.ReorderFlairs = "ReorderFlairs",
+        e.ReorderHighlightedPosts = "ReorderHighlightedPosts",
+        e.ReorderSavedResponses = "ReorderSavedResponses",
+        e.ReorderSubredditRules = "ReorderSubredditRules",
+        e.ReorderSubredditWidgets = "ReorderSubredditWidgets",
+        e.ReportAward = "ReportAward",
+        e.ReportComment = "ReportComment",
+        e.ReportForm = "ReportForm",
+        e.ReportFormData = "ReportFormData",
+        e.ReportModmailMessage = "ReportModmailMessage",
+        e.ReportPost = "ReportPost",
+        e.ReportPrivateMessage = "ReportPrivateMessage",
+        e.ReportRedditor = "ReportRedditor",
+        e.ReportUserDetails = "ReportUserDetails",
+        e.ReputationSubredditSettings = "ReputationSubredditSettings",
+        e.RequestAppeal = "RequestAppeal",
+        e.RequestCommunitySettingsChange = "RequestCommunitySettingsChange",
+        e.RequestPasswordReset = "RequestPasswordReset",
+        e.RequestUserDataExport = "RequestUserDataExport",
+        e.RestoreWikiPageRevision = "RestoreWikiPageRevision",
+        e.RevokeAppPermission = "RevokeAppPermission",
+        e.SafetyFilterEvaluationsAsModerator = "SafetyFilterEvaluationsAsModerator",
+        e.SafetyFiltersModInsightsChart = "SafetyFiltersModInsightsChart",
+        e.SafetyFiltersOverview = "SafetyFiltersOverview",
+        e.SaveSubredditEmoji = "SaveSubredditEmoji",
+        e.SaveWikiPageSettings = "SaveWikiPageSettings",
+        e.ScheduleTemporaryEventRun = "ScheduleTemporaryEventRun",
+        e.SctCommentInfo = "SctCommentInfo",
+        e.SearchDynamicComponents = "SearchDynamicComponents",
+        e.SearchDynamicTypeahead = "SearchDynamicTypeahead",
+        e.SearchSpellcheckedCommunities = "SearchSpellcheckedCommunities",
+        e.SendDirectChatToRedditor = "SendDirectChatToRedditor",
+        e.SendMessageToSubreddit = "SendMessageToSubreddit",
+        e.SetBrandAnalyticsKeywords = "SetBrandAnalyticsKeywords",
+        e.SetModmailConversationsArchiveStatus = "SetModmailConversationsArchiveStatus",
+        e.SetModmailConversationsFilterStatus = "SetModmailConversationsFilterStatus",
+        e.SetModmailConversationsHighlightStatus = "SetModmailConversationsHighlightStatus",
+        e.SetModmailConversationsReadStatus = "SetModmailConversationsReadStatus",
+        e.SetModRecruitmentApplicationTemplate = "SetModRecruitmentApplicationTemplate",
+        e.SetModRecruitmentEnabled = "SetModRecruitmentEnabled",
+        e.SetProfileSocialLinks = "SetProfileSocialLinks",
+        e.SetSubredditEmojisEnabled = "SetSubredditEmojisEnabled",
+        e.SetSuggestedSort = "SetSuggestedSort",
+        e.SettingsAccountPage = "SettingsAccountPage",
+        e.SettingsEmailPage = "SettingsEmailPage",
+        e.SettingsModNotificationModal = "SettingsModNotificationModal",
+        e.SettingsNotificationsCommunities = "SettingsNotificationsCommunities",
+        e.SettingsNotificationsModeratedCommunities = "SettingsNotificationsModeratedCommunities",
+        e.SettingsNotificationsPage = "SettingsNotificationsPage",
+        e.SettingsPreferencesPage = "SettingsPreferencesPage",
+        e.SettingsPrivacyPage = "SettingsPrivacyPage",
+        e.SettingsProfilePage = "SettingsProfilePage",
+        e.ShareMenu = "ShareMenu",
+        e.ShopArtistsData = "ShopArtistsData",
+        e.ShopGalleryData = "ShopGalleryData",
+        e.ShopGallerySetup = "ShopGallerySetup",
+        e.SimilarSubreddits = "SimilarSubreddits",
+        e.StorefrontLayout = "StorefrontLayout",
+        e.StorefrontLayoutData = "StorefrontLayoutData",
+        e.StoreUxtargetingAction = "StoreUxtargetingAction",
+        e.SubmitMedia = "SubmitMedia",
+        e.SubmitModRecruitmentApplication = "SubmitModRecruitmentApplication",
+        e.SubmitScheduledPostNow = "SubmitScheduledPostNow",
+        e.SubmitUserContactForAd = "SubmitUserContactForAd",
+        e.Subreddit = "Subreddit",
+        e.SubredditByName = "SubredditByName",
+        e.SubredditChatChannelModerationSettings = "SubredditChatChannelModerationSettings",
+        e.SubredditChatChannels = "SubredditChatChannels",
+        e.SubredditDirectoryPage = "SubredditDirectoryPage",
+        e.SubredditEmojis = "SubredditEmojis",
+        e.SubredditEmojiTemplates = "SubredditEmojiTemplates",
+        e.SubredditFeed = "SubredditFeed",
+        e.SubredditModApplication = "SubredditModApplication",
+        e.SubredditMostEngagingPosts = "SubredditMostEngagingPosts",
+        e.SubredditMostSubscribedPosts = "SubredditMostSubscribedPosts",
+        e.SubredditMostViewedPosts = "SubredditMostViewedPosts",
+        e.SubredditPostFlairTemplates = "SubredditPostFlairTemplates",
+        e.SubredditPostingEligibility = "SubredditPostingEligibility",
+        e.SubredditPostingEligibilityCriteria = "SubredditPostingEligibilityCriteria",
+        e.SubredditRightRail = "SubredditRightRail",
+        e.SubredditRuleById = "SubredditRuleById",
+        e.SubredditScheduledPosts = "SubredditScheduledPosts",
+        e.SubredditStyles = "SubredditStyles",
+        e.SubredditToManageHighlights = "SubredditToManageHighlights",
+        e.SubredditTrophyCase = "SubredditTrophyCase",
+        e.SubredditTypeahead = "SubredditTypeahead",
+        e.SubredditWidgets = "SubredditWidgets",
+        e.SubredditYearInReview = "SubredditYearInReview",
+        e.SuggestedModsList = "SuggestedModsList",
+        e.TaxonomyTopicsInfo = "TaxonomyTopicsInfo",
+        e.TemporaryEventConfigs = "TemporaryEventConfigs",
+        e.TemporaryEventRuns = "TemporaryEventRuns",
+        e.TemporaryEventsPage = "TemporaryEventsPage",
+        e.TemporaryEventsPresets = "TemporaryEventsPresets",
+        e.TemporaryEventsView = "TemporaryEventsView",
+        e.TestSizeModQueueItems = "TestSizeModQueueItems",
+        e.ToggleHideWikiPageRevision = "ToggleHideWikiPageRevision",
+        e.TopicBySlug = "TopicBySlug",
+        e.TopicFeedBySlug = "TopicFeedBySlug",
+        e.TranslatedComment = "TranslatedComment",
+        e.TranslatedPost = "TranslatedPost",
+        e.TranslatedPosts = "TranslatedPosts",
+        e.TranslatedStrings = "TranslatedStrings",
+        e.TranslationPreferredLanguages = "TranslationPreferredLanguages",
+        e.TrendCard = "TrendCard",
+        e.TrendingCarousel = "TrendingCarousel",
+        e.TrendingSearches = "TrendingSearches",
+        e.TrendPageList = "TrendPageList",
+        e.TrendPageSocialPreview = "TrendPageSocialPreview",
+        e.TrophyCategories = "TrophyCategories",
+        e.TrophyCategoriesIdentity = "TrophyCategoriesIdentity",
+        e.UnbanSubredditUser = "UnbanSubredditUser",
+        e.UndoDismissBrandAnalyticsKeywordSuggestion = "UndoDismissBrandAnalyticsKeywordSuggestion",
+        e.UnhideArticleCommunityRecommendation = "UnhideArticleCommunityRecommendation",
+        e.UnignoreReports = "UnignoreReports",
+        e.UnlockedCommunitiesPage = "UnlockedCommunitiesPage",
+        e.UnmuteMember = "UnmuteMember",
+        e.UnsharedArticleFeed = "UnsharedArticleFeed",
+        e.UpdateAccountGender = "UpdateAccountGender",
+        e.UpdateAccountPreferences = "UpdateAccountPreferences",
+        e.UpdateAchievementCategorySuggestion = "UpdateAchievementCategorySuggestion",
+        e.UpdateAchievementTrophyIsNew = "UpdateAchievementTrophyIsNew",
+        e.UpdateAchievementTrophyIsPinned = "UpdateAchievementTrophyIsPinned",
+        e.UpdateAdHideState = "UpdateAdHideState",
+        e.UpdateAdsPaymentMethod = "UpdateAdsPaymentMethod",
+        e.UpdateAutomation = "UpdateAutomation",
+        e.UpdateAutomationRank = "UpdateAutomationRank",
+        e.UpdateBrandOnboarding = "UpdateBrandOnboarding",
+        e.UpdateChatMessagesAsRead = "UpdateChatMessagesAsRead",
+        e.UpdateCollectibleOutfitSubmission = "UpdateCollectibleOutfitSubmission",
+        e.UpdateComment = "UpdateComment",
+        e.UpdateCommentDistinguishedState = "UpdateCommentDistinguishedState",
+        e.UpdateCommentFollowState = "UpdateCommentFollowState",
+        e.UpdateCommentLockedState = "UpdateCommentLockedState",
+        e.UpdateCommentSaveState = "UpdateCommentSaveState",
+        e.UpdateCommentSendRepliesState = "UpdateCommentSendRepliesState",
+        e.UpdateCommentStickyState = "UpdateCommentStickyState",
+        e.UpdateCommentVoteState = "UpdateCommentVoteState",
+        e.UpdateCommercialCommunicationState = "UpdateCommercialCommunicationState",
+        e.UpdateCommunityStatus = "UpdateCommunityStatus",
+        e.UpdateContributorRequestTimestamp = "UpdateContributorRequestTimestamp",
+        e.UpdateCookieConsentInteractionBanner = "UpdateCookieConsentInteractionBanner",
+        e.UpdateCookieConsentInteractionSetting = "UpdateCookieConsentInteractionSetting",
+        e.UpdateDraft = "UpdateDraft",
+        e.UpdateEventTime = "UpdateEventTime",
+        e.UpdateFollowedKeywords = "UpdateFollowedKeywords",
+        e.UpdateHatefulContentFilters = "UpdateHatefulContentFilters",
+        e.UpdateHighlightedPost = "UpdateHighlightedPost",
+        e.UpdateInboxActivitySeenState = "UpdateInboxActivitySeenState",
+        e.UpdateInboxAnnouncementOptOuts = "UpdateInboxAnnouncementOptOuts",
+        e.UpdateInboxNotificationPreferences = "UpdateInboxNotificationPreferences",
+        e.UpdateMessageDistinguishedState = "UpdateMessageDistinguishedState",
+        e.UpdateModeratorHierarchy = "UpdateModeratorHierarchy",
+        e.UpdateModPnSettingStatus = "UpdateModPnSettingStatus",
+        e.UpdateModPnSettingThreshold = "UpdateModPnSettingThreshold",
+        e.UpdateModPreferences = "UpdateModPreferences",
+        e.UpdateModRecruitmentApplicationStatus = "UpdateModRecruitmentApplicationStatus",
+        e.UpdateMultiredditFavoriteState = "UpdateMultiredditFavoriteState",
+        e.UpdateNotificationPreferences = "UpdateNotificationPreferences",
+        e.UpdatePost = "UpdatePost",
+        e.UpdatePostCollaborators = "UpdatePostCollaborators",
+        e.UpdatePostDistinguishedState = "UpdatePostDistinguishedState",
+        e.UpdatePostFlair = "UpdatePostFlair",
+        e.UpdatePostFollowState = "UpdatePostFollowState",
+        e.UpdatePostHideState = "UpdatePostHideState",
+        e.UpdatePostLevelCrowdControlSettings = "UpdatePostLevelCrowdControlSettings",
+        e.UpdatePostLockedState = "UpdatePostLockedState",
+        e.UpdatePostNsfwState = "UpdatePostNsfwState",
+        e.UpdatePostPollVoteState = "UpdatePostPollVoteState",
+        e.UpdatePostReminderState = "UpdatePostReminderState",
+        e.UpdatePostRequirements = "UpdatePostRequirements",
+        e.UpdatePostSaveState = "UpdatePostSaveState",
+        e.UpdatePostSendRepliesState = "UpdatePostSendRepliesState",
+        e.UpdatePostSpoilerState = "UpdatePostSpoilerState",
+        e.UpdatePostStickyState = "UpdatePostStickyState",
+        e.UpdatePostVoteState = "UpdatePostVoteState",
+        e.UpdatePreferredLanguagesPreference = "UpdatePreferredLanguagesPreference",
+        e.UpdatePremiumPreferences = "UpdatePremiumPreferences",
+        e.UpdateProfileFollowState = "UpdateProfileFollowState",
+        e.UpdateProfilePrivacyPreferences = "UpdateProfilePrivacyPreferences",
+        e.UpdateProfilePrivacyPreferencesV2 = "UpdateProfilePrivacyPreferencesV2",
+        e.UpdateProfileSettings = "UpdateProfileSettings",
+        e.UpdateProfileSocialLinks = "UpdateProfileSocialLinks",
+        e.UpdateProfileStyles = "UpdateProfileStyles",
+        e.UpdatePublisherRSSFeed = "UpdatePublisherRSSFeed",
+        e.UpdateRecommendationPreferences = "UpdateRecommendationPreferences",
+        e.UpdateRedditorAllowlistState = "UpdateRedditorAllowlistState",
+        e.UpdateRedditorBlockState = "UpdateRedditorBlockState",
+        e.UpdateReportState = "UpdateReportState",
+        e.UpdateSavedResponse = "UpdateSavedResponse",
+        e.UpdateScheduledPost = "UpdateScheduledPost",
+        e.UpdateSearchPreferences = "UpdateSearchPreferences",
+        e.UpdateSensitiveAdsPreferences = "UpdateSensitiveAdsPreferences",
+        e.UpdateSpokenLanguagesPreference = "UpdateSpokenLanguagesPreference",
+        e.UpdateStorefrontListings = "UpdateStorefrontListings",
+        e.UpdateSubredditAchievementsSettings = "UpdateSubredditAchievementsSettings",
+        e.UpdateSubredditBanner = "UpdateSubredditBanner",
+        e.UpdateSubredditChannelsSettings = "UpdateSubredditChannelsSettings",
+        e.UpdateSubredditChatChannel = "UpdateSubredditChatChannel",
+        e.UpdateSubredditColors = "UpdateSubredditColors",
+        e.UpdateSubredditEmojiPermissions = "UpdateSubredditEmojiPermissions",
+        e.UpdateSubredditFavoriteState = "UpdateSubredditFavoriteState",
+        e.UpdateSubredditFlair = "UpdateSubredditFlair",
+        e.UpdateSubredditIcon = "UpdateSubredditIcon",
+        e.UpdateSubredditModeratorState = "UpdateSubredditModeratorState",
+        e.UpdateSubredditModGuide = "UpdateSubredditModGuide",
+        e.UpdateSubredditMuteAndNotificationLevelSettings = "UpdateSubredditMuteAndNotificationLevelSettings",
+        e.UpdateSubredditMuteSettings = "UpdateSubredditMuteSettings",
+        e.UpdateSubredditNotificationSettings = "UpdateSubredditNotificationSettings",
+        e.UpdateSubredditPostFlairSettings = "UpdateSubredditPostFlairSettings",
+        e.UpdateSubredditQuarantineOptInState = "UpdateSubredditQuarantineOptInState",
+        e.UpdateSubredditRule = "UpdateSubredditRule",
+        e.UpdateSubredditRuleAutoEnforcementSettings = "UpdateSubredditRuleAutoEnforcementSettings",
+        e.UpdateSubredditSettings = "UpdateSubredditSettings",
+        e.UpdateSubredditSubscriptions = "UpdateSubredditSubscriptions",
+        e.UpdateSubredditUserFlairSettings = "UpdateSubredditUserFlairSettings",
+        e.UpdateSubredditWidget = "UpdateSubredditWidget",
+        e.UpdateTemporaryEventConfig = "UpdateTemporaryEventConfig",
+        e.UpdateTopicPreferences = "UpdateTopicPreferences",
+        e.UpdateUserFlair = "UpdateUserFlair",
+        e.UpdateUserFlairAndEnabledStatus = "UpdateUserFlairAndEnabledStatus",
+        e.UpdateUserInterestTopics = "UpdateUserInterestTopics",
+        e.UpdateWelcomePageContent = "UpdateWelcomePageContent",
+        e.UpdateWelcomePageState = "UpdateWelcomePageState",
+        e.UpsertBanEvasionSubredditSettings = "UpsertBanEvasionSubredditSettings",
+        e.UpsertModSafetySubredditSettings = "UpsertModSafetySubredditSettings",
+        e.UpsertWikiContributorBan = "UpsertWikiContributorBan",
+        e.UpsertWikiPage = "UpsertWikiPage",
+        e.UpsertWikiSettings = "UpsertWikiSettings",
+        e.UserAvatarBackgrounds = "UserAvatarBackgrounds",
+        e.UserAvatarOutfits = "UserAvatarOutfits",
+        e.UserCollectibleSubmissions = "UserCollectibleSubmissions",
+        e.UserCommunityAchievements = "UserCommunityAchievements",
+        e.UserDrawer = "UserDrawer",
+        e.UserFlairSettings = "UserFlairSettings",
+        e.UserFlairTemplates = "UserFlairTemplates",
+        e.UserHoverCard = "UserHoverCard",
+        e.UserNameById = "UserNameById",
+        e.UserProfile = "UserProfile",
+        e.UserSnoovatar = "UserSnoovatar",
+        e.ValidateCreatePostInput = "ValidateCreatePostInput",
+        e.ValidateCreateSubredditInput = "ValidateCreateSubredditInput",
+        e.ValidateSavedResponseTemplate = "ValidateSavedResponseTemplate",
+        e.VerifyUserIdentity = "VerifyUserIdentity",
+        e.WhereToCrosspostNewModSuggestions = "WhereToCrosspostNewModSuggestions",
+        e.WhereToPost = "WhereToPost",
+        e.WikiApprovedContributors = "WikiApprovedContributors",
+        e.WikiBannedContributors = "WikiBannedContributors",
+        e.WikiComparisonDiff = "WikiComparisonDiff",
+        e.WikiContent = "WikiContent",
+        e.WikiGeneralSettings = "WikiGeneralSettings",
+        e.WikiPage = "WikiPage",
+        e.WikiPageContributors = "WikiPageContributors",
+        e.WikiPageRevisions = "WikiPageRevisions",
+        e.WikiPageRevisionsV2 = "WikiPageRevisionsV2",
+        e.WikiPageSettings = "WikiPageSettings",
+        e.WikiPageTree = "WikiPageTree",
+        e.WikiRecentRevisions = "WikiRecentRevisions",
+        e.WikiRevisionByCursor = "WikiRevisionByCursor",
+        e.WikiTemplates = "WikiTemplates"
+    }(To || (To = {})),
+    To.AcceptAutomationRecommendation,
+    To.AcceptModeratorInvite,
+    To.AddBrandAnalyticsSearchQueryKeyword,
+    To.AddModmailMessage,
+    To.AddSubredditWidget,
+    To.AddWikiContributor,
+    To.AddWikiPageEditor,
+    To.ApproveRedditor,
+    To.BackupVault,
+    To.BanSubredditUser,
+    To.CancelPaySubscription,
+    To.CancelTemporaryEventRun,
+    To.ChangePaymentMethod,
+    To.ChatBanChatChannelUser,
+    To.ChatBanSubredditUser,
+    To.ChatCreateShareUrl,
+    To.ChatCreateSubredditChannel,
+    To.ChatCreateUccChatChannel,
+    To.ChatDeleteChannel,
+    To.ChatModApprove,
+    To.ChatModRemove,
+    To.ChatPinMessagesToSubredditChannel,
+    To.ChatRetractChatChannelUserRoleInvitation,
+    To.ChatUnbanChatChannelUser,
+    To.ChatUnbanSubredditUser,
+    To.ChatUpdateAccountPreferences,
+    To.ChatUpdateChannel,
+    To.ChatUpdateChannelModerationSettings,
+    To.ChatUpdateChatChannelUserRolePromotion,
+    To.ChatUpdateChatChannelUsersRoles,
+    To.ChatUpdateCrowdControlLevel,
+    To.ChatUpdateRedditorBlockState,
+    To.Checkout,
+    To.CheckoutDevvitProducts,
+    To.ClaimFreeNft,
+    To.ClearPostFlair,
+    To.ClearUserFlair,
+    To.CreateAdAccount,
+    To.CreateAutomation,
+    To.CreateAvatar,
+    To.CreateAwardOrder,
+    To.CreateCaptchaToken,
+    To.CreateCustomPostSnapshot,
+    To.CreateEconPayment,
+    To.CreateMediaUploadLease,
+    To.CreateModUserNote,
+    To.CreateModmailConversation,
+    To.CreateProfileStructuredStylesUploadLease,
+    To.CreatePublisherArticle,
+    To.CreatePublisherRssFeed,
+    To.CreateSavedResponse,
+    To.CreateStorefrontOrder,
+    To.CreateSubreddit,
+    To.CreateSubredditRule,
+    To.CreateSubredditStructuredStylesUploadLease,
+    To.CreateUserFlair,
+    To.CustomFeedAddSubreddits,
+    To.CustomFeedCreate,
+    To.CustomFeedDelete,
+    To.CustomFeedRemoveSubreddits,
+    To.CustomFeedUpdateSubscriptionState,
+    To.DeclineModeratorInvite,
+    To.DeleteAchievementNotifications,
+    To.DeleteAutomation,
+    To.DeleteComment,
+    To.DeleteFollowedKeywords,
+    To.DeleteInboxNotifications,
+    To.DeleteModUserNote,
+    To.DeletePost,
+    To.DeletePostDraft,
+    To.DeletePrivateMessage,
+    To.DeleteProfileSocialLinks,
+    To.DeletePublisherRSSFeed,
+    To.DeleteSavedResponse,
+    To.DeleteScheduledPost,
+    To.DeleteSubredditChatChannel,
+    To.DeleteSubredditEmoji,
+    To.DeleteSubredditFlairTemplate,
+    To.DeleteSubredditMuteSettings,
+    To.DeleteSubredditRule,
+    To.DeleteSubredditWidget,
+    To.DisapproveRedditor,
+    To.DismissAutomationRecommendation,
+    To.DismissSmartEscalation,
+    To.EnrollInStreaks,
+    To.ExposeVariant,
+    To.GenerateSubredditEmojiUploadLease,
+    To.GrantAppPermission,
+    To.HideArticleCommunityRecommendation,
+    To.HideInboxAnnouncements,
+    To.IdentityUserPreferences,
+    To.IgnoreReports,
+    To.MarkInboxAnnouncementsRead,
+    To.MarkNotificationRead,
+    To.MarkPrivateMessageAsRead,
+    To.ModBulkApprove,
+    To.ModBulkIgnore,
+    To.ModBulkLock,
+    To.ModBulkMarkNSFW,
+    To.ModBulkMarkSpoiler,
+    To.ModBulkRemove,
+    To.ModBulkUnignore,
+    To.ModBulkUnlock,
+    To.ModBulkUnmarkNSFW,
+    To.ModBulkUnmarkSpoiler,
+    To.ModBulkUpdatePostFlair,
+    To.ModGetUserRedditorInfoByName,
+    To.ModRecruitmentInviteApplicants,
+    To.ModToolsSetYearInReviewAvailability,
+    To.MuteMember,
+    To.OptInToGatedSubreddit,
+    To.PromotePost,
+    To.PublishSubmissionGroups,
+    To.RegisterPushToken,
+    To.RegisterVaultAddress,
+    To.RemoveHighlightedPost,
+    To.RemoveWikiContributor,
+    To.RemoveWikiContributorBan,
+    To.RemoveWikiPageEditor,
+    To.RenderSavedResponseTemplate,
+    To.RenderSavedResponseTemplateBySubredditId,
+    To.ReorderFlairs,
+    To.ReorderHighlightedPosts,
+    To.ReorderSavedResponses,
+    To.ReorderSubredditRules,
+    To.ReorderSubredditWidgets,
+    To.ReportAward,
+    To.ReportComment,
+    To.ReportModmailMessage,
+    To.ReportPost,
+    To.ReportPrivateMessage,
+    To.ReportRedditor,
+    To.ReportUserDetails,
+    To.RequestAppeal,
+    To.RequestCommunitySettingsChange,
+    To.RequestUserDataExport,
+    To.RestoreWikiPageRevision,
+    To.RevokeAppPermission,
+    To.SaveSubredditEmoji,
+    To.SaveWikiPageSettings,
+    To.SendDirectChatToRedditor,
+    To.SendMessageToSubreddit,
+    To.SetBrandAnalyticsKeywords,
+    To.SetModRecruitmentApplicationTemplate,
+    To.SetModRecruitmentEnabled,
+    To.SetModmailConversationsArchiveStatus,
+    To.SetModmailConversationsFilterStatus,
+    To.SetModmailConversationsHighlightStatus,
+    To.SetModmailConversationsReadStatus,
+    To.SetProfileSocialLinks,
+    To.SetSubredditEmojisEnabled,
+    To.SetSuggestedSort,
+    To.StoreUxtargetingAction,
+    To.SubmitMedia,
+    To.SubmitModRecruitmentApplication,
+    To.SubmitScheduledPostNow,
+    To.SubredditWidgets,
+    To.ToggleHideWikiPageRevision,
+    To.UnbanSubredditUser,
+    To.UnhideArticleCommunityRecommendation,
+    To.UnignoreReports,
+    To.UnmuteMember,
+    To.UpdateAccountGender,
+    To.UpdateAccountPreferences,
+    To.UpdateAchievementCategorySuggestion,
+    To.UpdateAchievementTrophyIsNew,
+    To.UpdateAchievementTrophyIsPinned,
+    To.UpdateAdHideState,
+    To.UpdateAdsPaymentMethod,
+    To.UpdateAutomation,
+    To.UpdateAutomationRank,
+    To.UpdateBrandOnboarding,
+    To.UpdateChatMessagesAsRead,
+    To.UpdateCollectibleOutfitSubmission,
+    To.UpdateComment,
+    To.UpdateCommentDistinguishedState,
+    To.UpdateCommentFollowState,
+    To.UpdateCommentLockedState,
+    To.UpdateCommentSaveState,
+    To.UpdateCommentSendRepliesState,
+    To.UpdateCommentStickyState,
+    To.UpdateCommentVoteState,
+    To.UpdateCommercialCommunicationState,
+    To.UpdateCommunityStatus,
+    To.UpdateContributorRequestTimestamp,
+    To.UpdateCookieConsentInteractionBanner,
+    To.UpdateCookieConsentInteractionSetting,
+    To.UpdateEventTime,
+    To.UpdateFollowedKeywords,
+    To.UpdateHighlightedPost,
+    To.UpdateInboxActivitySeenState,
+    To.UpdateInboxAnnouncementOptOuts,
+    To.UpdateInboxNotificationPreferences,
+    To.UpdateMessageDistinguishedState,
+    To.UpdateModPnSettingStatus,
+    To.UpdateModPnSettingThreshold,
+    To.UpdateModPreferences,
+    To.UpdateModRecruitmentApplicationStatus,
+    To.UpdateMultiredditFavoriteState,
+    To.UpdateNotificationPreferences,
+    To.UpdatePostCollaborators,
+    To.UpdatePostDistinguishedState,
+    To.UpdatePostFlair,
+    To.UpdatePostFollowState,
+    To.UpdatePostHideState,
+    To.UpdatePostLevelCrowdControlSettings,
+    To.UpdatePostLockedState,
+    To.UpdatePostNsfwState,
+    To.UpdatePostPollVoteState,
+    To.UpdatePostReminderState,
+    To.UpdatePostRequirements,
+    To.UpdatePostSaveState,
+    To.UpdatePostSendRepliesState,
+    To.UpdatePostSpoilerState,
+    To.UpdatePostStickyState,
+    To.UpdatePostVoteState,
+    To.UpdatePreferredLanguagesPreference,
+    To.UpdatePremiumPreferences,
+    To.UpdateProfileFollowState,
+    To.UpdateProfilePrivacyPreferences,
+    To.UpdateProfilePrivacyPreferencesV2,
+    To.UpdateProfileSettings,
+    To.UpdateProfileSocialLinks,
+    To.UpdateProfileStyles,
+    To.UpdateRecommendationPreferences,
+    To.UpdateRedditorAllowlistState,
+    To.UpdateRedditorBlockState,
+    To.UpdateReportState,
+    To.UpdateSavedResponse,
+    To.UpdateScheduledPost,
+    To.UpdateSearchPreferences,
+    To.UpdateSensitiveAdsPreferences,
+    To.UpdateSpokenLanguagesPreference,
+    To.UpdateStorefrontListings,
+    To.UpdateSubredditAchievementsSettings,
+    To.UpdateSubredditBanner,
+    To.UpdateSubredditChatChannel,
+    To.UpdateSubredditColors,
+    To.UpdateSubredditEmojiPermissions,
+    To.UpdateSubredditFavoriteState,
+    To.UpdateSubredditFlair,
+    To.UpdateSubredditIcon,
+    To.UpdateSubredditModGuide,
+    To.UpdateSubredditModeratorState,
+    To.UpdateSubredditMuteAndNotificationLevelSettings,
+    To.UpdateSubredditMuteSettings,
+    To.UpdateSubredditNotificationSettings,
+    To.UpdateSubredditPostFlairSettings,
+    To.UpdateSubredditQuarantineOptInState,
+    To.UpdateSubredditRule,
+    To.UpdateSubredditRuleAutoEnforcementSettings,
+    To.UpdateSubredditSettings,
+    To.UpdateSubredditSubscriptions,
+    To.UpdateSubredditUserFlairSettings,
+    To.UpdateSubredditWidget,
+    To.UpdateUserFlair,
+    To.UpdateUserFlairAndEnabledStatus,
+    To.UpdateWelcomePageContent,
+    To.UpdateWelcomePageState,
+    To.UpsertModSafetySubredditSettings,
+    To.UpsertWikiContributorBan,
+    To.UpsertWikiPage,
+    To.UpsertWikiSettings,
+    To.AchievementTrophyById,
+    To.AchievementUnlockedNotifications,
+    To.AddSubredditWidget,
+    To.AllChatsPageRecommendations,
+    To.AllowlistedRedditorInfo,
+    To.BackupVault,
+    To.BlockedAccounts,
+    To.BoostedPostAdInsights,
+    To.BrandAnalyticsSearchKeyword,
+    To.ChatBannedUsers,
+    To.ChatBlockedRedditors,
+    To.ChatContentControlSettings,
+    To.ChatCrowdControlSettings,
+    To.ChatCurrentUserContext,
+    To.ChatGetChatChannelBannedUsers,
+    To.ChatGetUccChannelTaggingInfo,
+    To.ChatGetUserMessageRequestSetting,
+    To.ChatIsUserBannedFromChatChannel,
+    To.ChatQueryTagSubreddits,
+    To.ChatRedditors,
+    To.ChatRedditorsByName,
+    To.ChatReportForm,
+    To.ChatSearchChatMessageReactionIcons,
+    To.ChatShareUrl,
+    To.ChatSubreddit,
+    To.ChatSubredditStyles,
+    To.ClaimFreeNft,
+    To.CommunityName,
+    To.CommunitySearch,
+    To.CommunitySuggestions,
+    To.ConvertMarkdownToRTJSON,
+    To.ConvertRTJSONToMarkdown,
+    To.CreateAvatar,
+    To.CreateCustomPostSnapshot,
+    To.CreateTemporaryEventConfig,
+    To.DeleteSubredditWidget,
+    To.DismissBrandAnalyticsKeywordSuggestion,
+    To.EligibleCommunitiesPage,
+    To.EndPostEvent,
+    To.EnrollInStreaks,
+    To.EvaluateCommentAutomationsByPostId,
+    To.EvaluatePostAutomations,
+    To.ExportVaultBackup,
+    To.FetchTitle,
+    To.GeneratedProfileDescriptions,
+    To.GeneratedUsernames,
+    To.GetAdBusinessNameById,
+    To.GetAnswersDynamicConfig,
+    To.GetApprovedUsers,
+    To.GetFollowedKeywords,
+    To.GetFundingInstrumentSecret,
+    To.GetIsCommentGuidanceAvailableFromPostId,
+    To.GetMessageRecipientSubredditInfo,
+    To.GetVaultRegistrationChallenge,
+    To.IdentityImmersiveTranslationSetting,
+    To.InterestTopicsSearch,
+    To.IsEmailValidForRegistration,
+    To.IsUsernameValidForRegistration,
+    To.MediaAuthInfo,
+    To.ModAutomationRules,
+    To.ModeratorEvaluateCommentAutomations,
+    To.ModeratorEvaluatePostAutomations,
+    To.MutedSubreddits,
+    To.PersonalizedDevvitGames,
+    To.PreviewCommentAutomation,
+    To.PreviewLLMRuleEnforcement,
+    To.PreviewPostAutomation,
+    To.ProfileKeywords,
+    To.RedditorByName,
+    To.RedditorIdByName,
+    To.RegisterVaultAddress,
+    To.ReorderSubredditWidgets,
+    To.ReportUserDetails,
+    To.SafetyFilterEvaluationsAsModerator,
+    To.ScheduleTemporaryEventRun,
+    To.SettingsModNotificationModal,
+    To.SettingsNotificationsCommunities,
+    To.SettingsNotificationsModeratedCommunities,
+    To.SubredditByName,
+    To.SubredditStyles,
+    To.SubredditTypeahead,
+    To.SubredditWidgets,
+    To.TaxonomyTopicsInfo,
+    To.TranslationPreferredLanguages,
+    To.TrophyCategories,
+    To.UndoDismissBrandAnalyticsKeywordSuggestion,
+    To.UnlockedCommunitiesPage,
+    To.UpdateEventTime,
+    To.UpdateSubredditAchievementsSettings,
+    To.UpdateSubredditWidget,
+    To.UpdateTemporaryEventConfig,
+    To.UserCommunityAchievements,
+    To.ValidateCreatePostInput,
+    To.ValidateCreateSubredditInput,
+    To.ValidateSavedResponseTemplate,
+    To.WhereToCrosspostNewModSuggestions,
+    To.WikiComparisonDiff,
+    To.WikiPage,
+    To.WikiRevisionByCursor;
+    const yo = ["https://ads.reddit.com", "https://reddit-service-ads-ui"];
+    function Io(e) {
+        window.Sentry?.captureMessage?.(e)
+    }
+    const Co = [429, 403];
+    class Ao extends Error {
+        constructor(e, t) {
+            super(e),
+            this.response = t,
+            this.name = "ClientGQLNetworkError"
+        }
+    }
+    async function Ro({operation: e, variables: t={}, init: i={}}) {
+        try {
+            const n = await fetch((yo.some((e => gn.origin.startsWith(e))) ? "https://www.reddit.com" : "") + "/svc/shreddit/graphql", {
+                method: "POST",
+                headers: {
+                    Accept: "application/json",
+                    "Content-Type": "application/json"
+                },
+                body: JSON.stringify({
+                    operation: e,
+                    variables: t,
+                    csrf_token: wt.get("csrf_token")
+                }),
+                ...i
+            });
+            if (n.ok)
+                return n.json();
+            const o = await n.text();
+            Io(`Client GQL Request failed with status ${n.status}: ${o}`);
+            const r = bo(n);
+            throw (r && Co.includes(n.status) && function(e, t) {
+                const i = document.querySelector("shreddit-app");
+                i && i.dispatchEvent(v("faceplate-alert", {
+                    level: ve.error,
+                    message: e,
+                    cause: t
+                }))
+            }(r, `client-gql-network-error-${n.status}`),
+            new Ao(o))
+        } catch (t) {
+            throw (Io(`Unable to complete the request for GQL operation "${e}": ${t}`),
+            t)
+        }
+    }
+    const Po = {
+        None: "NONE",
+        Subscribed: "SUBSCRIBED"
+    }
+      , No = {
+        AmaCarouselInFeed: "AMA_CAROUSEL_IN_FEED",
+        AnnouncementInFeed: "ANNOUNCEMENT_IN_FEED",
+        ArenaFeed: "ARENA_FEED",
+        Auth: "AUTH",
+        AuthPrompt: "AUTH_PROMPT",
+        AwarderChurned: "AWARDER_CHURNED",
+        AwarderDormant: "AWARDER_DORMANT",
+        AwarderFirstTime: "AWARDER_FIRST_TIME",
+        AwarderNeverAwarded: "AWARDER_NEVER_AWARDED",
+        AwarderRecurring: "AWARDER_RECURRING",
+        AwardsPromo: "AWARDS_PROMO",
+        BlockingXpromo: "BLOCKING_XPROMO",
+        BypassableXpromo: "BYPASSABLE_XPROMO",
+        ChatChannelsOnPdp: "CHAT_CHANNELS_ON_PDP",
+        ChatChannelUnitInHomeFeed: "CHAT_CHANNEL_UNIT_IN_HOME_FEED",
+        ChatOnboardingCta: "CHAT_ONBOARDING_CTA",
+        CommunityOnboarding: "COMMUNITY_ONBOARDING",
+        DesktopSidebarAuthUnit: "DESKTOP_SIDEBAR_AUTH_UNIT",
+        EducationalDeeplinkPrompt: "EDUCATIONAL_DEEPLINK_PROMPT",
+        EverestPromo: "EVEREST_PROMO",
+        ExclusiveCommunitiesGrowthTest: "EXCLUSIVE_COMMUNITIES_GROWTH_TEST",
+        ExclusiveCommunitiesValidationTest: "EXCLUSIVE_COMMUNITIES_VALIDATION_TEST",
+        GamingCommunityUpsell: "GAMING_COMMUNITY_UPSELL",
+        GoogleOneTap: "GOOGLE_ONE_TAP",
+        HighFlyerUpsell: "HIGH_FLYER_UPSELL",
+        InlineAuthUpsell: "INLINE_AUTH_UPSELL",
+        InFeedSurvey: "IN_FEED_SURVEY",
+        LanguagePreferenceBottomSheet: "LANGUAGE_PREFERENCE_BOTTOM_SHEET",
+        ListingBelow: "LISTING_BELOW",
+        LiveChatReactionEdu: "LIVE_CHAT_REACTION_EDU",
+        LiveChatVideoEdu: "LIVE_CHAT_VIDEO_EDU",
+        LoggedInOnboarding: "LOGGED_IN_ONBOARDING",
+        ModularEducation: "MODULAR_EDUCATION",
+        ModRecruitmentBanner: "MOD_RECRUITMENT_BANNER",
+        NewInYourCommunitiesCarousel: "NEW_IN_YOUR_COMMUNITIES_CAROUSEL",
+        NewUserEducation: "NEW_USER_EDUCATION",
+        NewVisitorFeedNav: "NEW_VISITOR_FEED_NAV",
+        NsfwBlocking: "NSFW_BLOCKING",
+        OnboardingAgeSelection: "ONBOARDING_AGE_SELECTION",
+        OnboardingEmailConfirmation: "ONBOARDING_EMAIL_CONFIRMATION",
+        OnboardingFlowCompletion: "ONBOARDING_FLOW_COMPLETION",
+        OnboardingGenderSelection: "ONBOARDING_GENDER_SELECTION",
+        OnboardingInFeed: "ONBOARDING_IN_FEED",
+        OnboardingLanguageSelection: "ONBOARDING_LANGUAGE_SELECTION",
+        OnboardingTopicsSelection: "ONBOARDING_TOPICS_SELECTION",
+        PersistentQrCodeUnit: "PERSISTENT_QR_CODE_UNIT",
+        PersonalizedCommunityRecommendationsInDiscoverFeed: "PERSONALIZED_COMMUNITY_RECOMMENDATIONS_IN_DISCOVER_FEED",
+        PersonalizedCommunityRecommendationsInHomeFeed: "PERSONALIZED_COMMUNITY_RECOMMENDATIONS_IN_HOME_FEED",
+        PwaXpromo: "PWA_XPROMO",
+        RecommendationChainingInHomeFeed: "RECOMMENDATION_CHAINING_IN_HOME_FEED",
+        RedditProProfileCard: "REDDIT_PRO_PROFILE_CARD",
+        RedditProProfilePinPostCoachmark: "REDDIT_PRO_PROFILE_PIN_POST_COACHMARK",
+        RedditProPromo: "REDDIT_PRO_PROMO",
+        RedditProShareButtonCoachmark: "REDDIT_PRO_SHARE_BUTTON_COACHMARK",
+        ReonboardingBottomSheet: "REONBOARDING_BOTTOM_SHEET",
+        ReonboardingBottomSheetInPlace: "REONBOARDING_BOTTOM_SHEET_IN_PLACE",
+        ReonboardingInFeed: "REONBOARDING_IN_FEED",
+        ScreenshotSharingBanner: "SCREENSHOT_SHARING_BANNER",
+        StringIdExperience: "STRING_ID_EXPERIENCE",
+        SubredditRecommendationsInSubredditFeed: "SUBREDDIT_RECOMMENDATIONS_IN_SUBREDDIT_FEED",
+        ViralCommunityXpromo: "VIRAL_COMMUNITY_XPROMO",
+        WikiPilotCommunities: "WIKI_PILOT_COMMUNITIES",
+        WikiSubredditFeedCarousel: "WIKI_SUBREDDIT_FEED_CAROUSEL"
+    };
+    function Oo(e) {
+        return null === e ? "null" : Array.isArray(e) ? "array" : typeof e
+    }
+    function wo(e) {
+        return "object" === Oo(e)
+    }
+    function Do(e, t) {
+        return e.length < 124 ? e : t
+    }
+    var Mo, ko;
+    function Lo(e) {
+        if (!wo(e))
+            throw new Error(`Message is expected to be an object, but got ${Oo(e)}`);
+        if (!e.type)
+            throw new Error("Message is missing the 'type' property");
+        if ("string" != typeof e.type)
+            throw new Error(`Message is expects the 'type' property to be a string, but got ${Oo(e.type)}`);
+        switch (e.type) {
+        case ko.ConnectionInit:
+        case ko.ConnectionAck:
+        case ko.Ping:
+        case ko.Pong:
+            if (null != e.payload && !wo(e.payload))
+                throw new Error(`"${e.type}" message expects the 'payload' property to be an object or nullish or missing, but got "${e.payload}"`);
+            break;
+        case ko.Subscribe:
+            if ("string" != typeof e.id)
+                throw new Error(`"${e.type}" message expects the 'id' property to be a string, but got ${Oo(e.id)}`);
+            if (!e.id)
+                throw new Error(`"${e.type}" message requires a non-empty 'id' property`);
+            if (!wo(e.payload))
+                throw new Error(`"${e.type}" message expects the 'payload' property to be an object, but got ${Oo(e.payload)}`);
+            if ("string" != typeof e.payload.query)
+                throw new Error(`"${e.type}" message payload expects the 'query' property to be a string, but got ${Oo(e.payload.query)}`);
+            if (null != e.payload.variables && !wo(e.payload.variables))
+                throw new Error(`"${e.type}" message payload expects the 'variables' property to be a an object or nullish or missing, but got ${Oo(e.payload.variables)}`);
+            if (null != e.payload.operationName && "string" !== Oo(e.payload.operationName))
+                throw new Error(`"${e.type}" message payload expects the 'operationName' property to be a string or nullish or missing, but got ${Oo(e.payload.operationName)}`);
+            if (null != e.payload.extensions && !wo(e.payload.extensions))
+                throw new Error(`"${e.type}" message payload expects the 'extensions' property to be a an object or nullish or missing, but got ${Oo(e.payload.extensions)}`);
+            break;
+        case ko.Next:
+            if ("string" != typeof e.id)
+                throw new Error(`"${e.type}" message expects the 'id' property to be a string, but got ${Oo(e.id)}`);
+            if (!e.id)
+                throw new Error(`"${e.type}" message requires a non-empty 'id' property`);
+            if (!wo(e.payload))
+                throw new Error(`"${e.type}" message expects the 'payload' property to be an object, but got ${Oo(e.payload)}`);
+            break;
+        case ko.Error:
+            if ("string" != typeof e.id)
+                throw new Error(`"${e.type}" message expects the 'id' property to be a string, but got ${Oo(e.id)}`);
+            if (!e.id)
+                throw new Error(`"${e.type}" message requires a non-empty 'id' property`);
+            if (t = e.payload,
+            !(Array.isArray(t) && t.length > 0 && t.every((e => "message"in e))))
+                throw new Error(`"${e.type}" message expects the 'payload' property to be an array of GraphQL errors, but got ${JSON.stringify(e.payload)}`);
+            break;
+        case ko.Complete:
+            if ("string" != typeof e.id)
+                throw new Error(`"${e.type}" message expects the 'id' property to be a string, but got ${Oo(e.id)}`);
+            if (!e.id)
+                throw new Error(`"${e.type}" message requires a non-empty 'id' property`);
+            break;
+        default:
+            throw new Error(`Invalid message 'type' property "${e.type}"`)
+        }
+        var t;
+        return e
+    }
+    function Uo(e, t) {
+        return Lo(e),
+        JSON.stringify(e, t)
+    }
+    function Fo(e) {
+        const {url: t, connectionParams: i, lazy: n=!0, onNonLazyError: o=console.error, lazyCloseTimeout: r=0, keepAlive: a=0, disablePong: s, connectionAckWaitTimeout: d=0, retryAttempts: l=5, retryWait: c=async function(e) {
+            let t = 1e3;
+            for (let i = 0; i < e; i++)
+                t *= 2;
+            await new Promise((e => setTimeout(e, t + Math.floor(2700 * Math.random() + 300))))
+        }
+        , shouldRetry: u=Bo, isFatalConnectionProblem: h, on: p, webSocketImpl: m, generateID: g=function() {
+            return "xxxxxxxx-xxxx-4xxx-yxxx-xxxxxxxxxxxx".replace(/[xy]/g, (e => {
+                const t = 16 * Math.random() | 0;
+                return ("x" == e ? t : 3 & t | 8).toString(16)
+            }
+            ));
+        }
+        , jsonMessageReplacer: _, jsonMessageReviver: f} = e;
+        let E;
+        if (m) {
+            if (!("function" == typeof (v = m) && "constructor"in v && "CLOSED"in v && "CLOSING"in v && "CONNECTING"in v && "OPEN"in v))
+                throw new Error("Invalid WebSocket implementation provided");
+            E = m
+        } else
+            "undefined" != typeof WebSocket ? E = WebSocket : "undefined" != typeof global ? E = global.WebSocket || global.MozWebSocket : "undefined" != typeof window && (E = window.WebSocket || window.MozWebSocket);
+        var v;
+        if (!E)
+            throw new Error("WebSocket implementation missing; on Node you can `import WebSocket from 'ws';` and pass `webSocketImpl: WebSocket` to `createClient`");
+        const S = E
+          , b = ( () => {
+            const e = ( () => {
+                const e = {};
+                return {
+                    on: (t, i) => (e[t] = i,
+                    () => {
+                        delete e[t]
+                    }
+                    ),
+                    emit(t) {
+                        var i;
+                        "id"in t && (null === (i = e[t.id]) || void 0 === i || i.call(e, t))
+                    }
+                }
+            }
+            )()
+              , t = {
+                connecting: (null == p ? void 0 : p.connecting) ? [p.connecting] : [],
+                opened: (null == p ? void 0 : p.opened) ? [p.opened] : [],
+                connected: (null == p ? void 0 : p.connected) ? [p.connected] : [],
+                ping: (null == p ? void 0 : p.ping) ? [p.ping] : [],
+                pong: (null == p ? void 0 : p.pong) ? [p.pong] : [],
+                message: (null == p ? void 0 : p.message) ? [e.emit, p.message] : [e.emit],
+                closed: (null == p ? void 0 : p.closed) ? [p.closed] : [],
+                error: (null == p ? void 0 : p.error) ? [p.error] : []
+            };
+            return {
+                onMessage: e.on,
+                on(e, i) {
+                    const n = t[e];
+                    return n.push(i),
+                    () => {
+                        n.splice(n.indexOf(i), 1)
+                    }
+                },
+                emit(e, ...i) {
+                    for (const n of [...t[e]])
+                        n(...i)
+                }
+            }
+        }
+        )();
+        function T(e) {
+            const t = [b.on("error", (i => {
+                t.forEach((e => e())),
+                e(i)
+            }
+            )), b.on("closed", (i => {
+                t.forEach((e => e())),
+                e(i)
+            }
+            ))]
+        }
+        let y, I, C = 0, A = !1, R = 0, P = !1;
+        async function N() {
+            clearTimeout(I);
+            const [e,n] = await (null != y ? y : y = new Promise(( (e, n) => (async () => {
+                if (A) {
+                    if (await c(R),
+                    !C)
+                        return y = void 0,
+                        n({
+                            code: 1e3,
+                            reason: "All Subscriptions Gone"
+                        });
+                    R++
+                }
+                b.emit("connecting");
+                const o = new S("function" == typeof t ? await t() : t,"graphql-transport-ws");
+                let r, l;
+                function u() {
+                    isFinite(a) && a > 0 && (clearTimeout(l),
+                    l = setTimeout(( () => {
+                        o.readyState === S.OPEN && (o.send(Uo({
+                            type: ko.Ping
+                        })),
+                        b.emit("ping", !1, void 0))
+                    }
+                    ), a))
+                }
+                T((e => {
+                    y = void 0,
+                    clearTimeout(r),
+                    clearTimeout(l),
+                    n(e),
+                    Bo(e) && 4499 === e.code && (o.close(4499, "Terminated"),
+                    o.onerror = null,
+                    o.onclose = null)
+                }
+                )),
+                o.onerror = e => b.emit("error", e),
+                o.onclose = e => b.emit("closed", e),
+                o.onopen = async () => {
+                    try {
+                        b.emit("opened", o);
+                        const e = "function" == typeof i ? await i() : i;
+                        if (o.readyState !== S.OPEN)
+                            return;
+                        o.send(Uo(e ? {
+                            type: ko.ConnectionInit,
+                            payload: e
+                        } : {
+                            type: ko.ConnectionInit
+                        }, _)),
+                        isFinite(d) && d > 0 && (r = setTimeout(( () => {
+                            o.close(Mo.ConnectionAcknowledgementTimeout, "Connection acknowledgement timeout")
+                        }
+                        ), d)),
+                        u()
+                    } catch (e) {
+                        b.emit("error", e),
+                        o.close(Mo.InternalClientError, Do(e instanceof Error ? e.message : new Error(e).message, "Internal client error"))
+                    }
+                }
+                ;
+                let h = !1;
+                o.onmessage = ({data: t}) => {
+                    try {
+                        const i = function(e, t) {
+                            return Lo("string" == typeof e ? JSON.parse(e, t) : e)
+                        }(t, f);
+                        if (b.emit("message", i),
+                        "ping" === i.type || "pong" === i.type)
+                            return b.emit(i.type, !0, i.payload),
+                            void ("pong" === i.type ? u() : s || (o.send(Uo(i.payload ? {
+                                type: ko.Pong,
+                                payload: i.payload
+                            } : {
+                                type: ko.Pong
+                            })),
+                            b.emit("pong", !1, i.payload)));
+                        if (h)
+                            return;
+                        if (i.type !== ko.ConnectionAck)
+                            throw new Error(`First message cannot be of type ${i.type}`);
+                        clearTimeout(r),
+                        h = !0,
+                        b.emit("connected", o, i.payload),
+                        A = !1,
+                        R = 0,
+                        e([o, new Promise(( (e, t) => T(t)))])
+                    } catch (e) {
+                        o.onmessage = null,
+                        b.emit("error", e),
+                        o.close(Mo.BadResponse, Do(e instanceof Error ? e.message : new Error(e).message, "Bad response"))
+                    }
+                }
+            }
+            )())));
+            e.readyState === S.CLOSING && (await n);
+            let o = () => {}
+            ;
+            const l = new Promise((e => o = e));
+            return [e, o, Promise.race([l.then(( () => {
+                if (!C) {
+                    const t = () => e.close(1e3, "Normal Closure");
+                    isFinite(r) && r > 0 ? I = setTimeout(( () => {
+                        e.readyState === S.OPEN && t()
+                    }
+                    ), r) : t()
+                }
+            }
+            )), n])]
+        }
+        function O(e) {
+            if (Bo(e) && (t = e.code,
+            ![1e3, 1001, 1006, 1005, 1012, 1013, 1013].includes(t) && t >= 1e3 && t <= 1999 || [Mo.InternalServerError, Mo.InternalClientError, Mo.BadRequest, Mo.BadResponse, Mo.Unauthorized, Mo.SubprotocolNotAcceptable, Mo.SubscriberAlreadyExists, Mo.TooManyInitialisationRequests].includes(e.code)))
+                throw e;
+            var t;
+            if (P)
+                return !1;
+            if (Bo(e) && 1e3 === e.code)
+                return C > 0;
+            if (!l || R >= l)
+                throw e;
+            if (!u(e))
+                throw e;
+            if (null == h ? void 0 : h(e))
+                throw e;
+            return A = !0
+        }
+        return n || (async () => {
+            for (C++; ; )
+                try {
+                    const [,,e] = await N();
+                    await e
+                } catch (e) {
+                    try {
+                        if (!O(e))
+                            return
+                    } catch (e) {
+                        return null == o ? void 0 : o(e)
+                    }
+                }
+        }
+        )(),
+        {
+            on: b.on,
+            subscribe(e, t) {
+                const i = g(e);
+                let n = !1
+                  , o = !1
+                  , r = () => {
+                    C--,
+                    n = !0
+                }
+                ;
+                return (async () => {
+                    for (C++; ; )
+                        try {
+                            const [a,s,d] = await N();
+                            if (n)
+                                return s();
+                            const l = b.onMessage(i, (e => {
+                                switch (e.type) {
+                                case ko.Next:
+                                    return void t.next(e.payload);
+                                case ko.Error:
+                                    return o = !0,
+                                    n = !0,
+                                    t.error(e.payload),
+                                    void r();
+                                case ko.Complete:
+                                    return n = !0,
+                                    void r()
+                                }
+                            }
+                            ));
+                            return a.send(Uo({
+                                id: i,
+                                type: ko.Subscribe,
+                                payload: e
+                            }, _)),
+                            r = () => {
+                                n || a.readyState !== S.OPEN || a.send(Uo({
+                                    id: i,
+                                    type: ko.Complete
+                                }, _)),
+                                C--,
+                                n = !0,
+                                s()
+                            }
+                            ,
+                            void (await d.finally(l));
+                        } catch (e) {
+                            if (!O(e))
+                                return
+                        }
+                }
+                )().then(( () => {
+                    o || t.complete()
+                }
+                )).catch((e => {
+                    t.error(e)
+                }
+                )),
+                () => {
+                    n || r()
+                }
+                ;
+            },
+            async dispose() {
+                if (P = !0,
+                y) {
+                    const [e] = await y;
+                    e.close(1e3, "Normal Closure")
+                }
+            },
+            terminate() {
+                y && b.emit("closed", {
+                    code: 4499,
+                    reason: "Terminated",
+                    wasClean: !1
+                })
+            }
+        };
+    }
+    function Bo(e) {
+        return wo(e) && "code"in e && "reason"in e
+    }
+    async function Vo() {
+        const e = wt.get("csrf_token") ?? ""
+          , t = await fetch("/svc/shreddit/token", {
+            method: "POST",
+            headers: {
+                Accept: "application/json",
+                "Content-Type": "application/json"
+            },
+            body: JSON.stringify({
+                csrf_token: e
+            })
+        });
+        return t.ok ? t.json() : null
+    }
+    !function(e) {
+        e[e.InternalServerError = 4500] = "InternalServerError",
+        e[e.InternalClientError = 4005] = "InternalClientError",
+        e[e.BadRequest = 4400] = "BadRequest",
+        e[e.BadResponse = 4004] = "BadResponse",
+        e[e.Unauthorized = 4401] = "Unauthorized",
+        e[e.Forbidden = 4403] = "Forbidden",
+        e[e.SubprotocolNotAcceptable = 4406] = "SubprotocolNotAcceptable",
+        e[e.ConnectionInitialisationTimeout = 4408] = "ConnectionInitialisationTimeout",
+        e[e.ConnectionAcknowledgementTimeout = 4504] = "ConnectionAcknowledgementTimeout",
+        e[e.SubscriberAlreadyExists = 4409] = "SubscriberAlreadyExists",
+        e[e.TooManyInitialisationRequests = 4429] = "TooManyInitialisationRequests"
+    }(Mo || (Mo = {})),
+    function(e) {
+        e.ConnectionInit = "connection_init",
+        e.ConnectionAck = "connection_ack",
+        e.Ping = "ping",
+        e.Pong = "pong",
+        e.Subscribe = "subscribe",
+        e.Next = "next",
+        e.Error = "error",
+        e.Complete = "complete"
+    }(ko || (ko = {}));
+    const xo = ( () => {
+        let e, t = !1, i = !1;
+        const n = () => {
+            t = !0
+        }
+          , o = () => {
+            i = !0
+        }
+        ;
+        function r({reconnectOnClose: r, onConnectedCallback: a, lazyCloseTimeout: s}) {
+            return (!e || r && t || i) && (e = function({onConnectedCallback: e, onCompletedCallback: t, onCloseFunction: i, lazyCloseTimeout: n=5e3}) {
+                let o = !1;
+                return Fo({
+                    url: "wss://gql-realtime.reddit.com/query",
+                    connectionAckWaitTimeout: 5e3,
+                    lazyCloseTimeout: n,
+                    retryAttempts: 1,
+                    shouldRetry: () => o,
+                    on: {
+                        connecting: () => {
+                            o = !1
+                        }
+                        ,
+                        closed: e => {
+                            if (1e3 === e.code)
+                                throw (i(),
+                                new Error("Connection has been terminated."))
+                        }
+                        ,
+                        message: i => {
+                            i.type === ko.ConnectionAck && (e?.(),
+                            o = !0),
+                            i.type === ko.Complete && t?.()
+                        }
+                    },
+                    lazy: !0,
+                    connectionParams: async () => {
+                        const e = await Vo();
+                        return e ? {
+                            Authorization: `Bearer ${e.token}`
+                        } : {}
+                    }
+                });
+            }({
+                onCloseFunction: n,
+                onConnectedCallback: a,
+                onCompletedCallback: o,
+                lazyCloseTimeout: s
+            })),
+            e;
+        }
+        return ({query: e, onData: t, onClose: i, onConnectedCallback: n, reconnectOnClose: o=!1, lazyCloseTimeout: a}) => r({
+            reconnectOnClose: o,
+            onConnectedCallback: n,
+            lazyCloseTimeout: a
+        }).subscribe(e, {
+            next: t,
+            error: e => i?.(e),
+            complete: () => i?.()
+        })
+    }
+    )();
+    var Go;
+    !function(e) {
+        e.Control1 = "control_1",
+        e.Control2 = "control_2"
+    }(Go || (Go = {}));
+    const Ho = e => !!(e => {
+        if (e !== Go.Control1 && e !== Go.Control2)
+            return e || void 0
+    }
+    )(e);
+    function Wo(e) {
+        if (window?.CLIENT_EXPERIMENTS)
+            return window?.CLIENT_EXPERIMENTS?.[e]
+    }
+    function zo(e) {
+        const t = Wo(e);
+        return Ho(t)
+    }
+    let jo = Ro;
+    function Ko({experimentName: e, variant: t, experimentVersion: i}) {
+        if ("true" === document.querySelector("shreddit-app")?.getAttribute("is-cached") && "shreddit_cdn_caching_milestone_1" !== e)
+            return Promise.resolve();
+        const n = {
+            operation: To.ExposeVariant,
+            variables: {
+                input: {
+                    experimentName: e,
+                    variant: t,
+                    experimentVersion: i
+                }
+            }
+        };
+        return jo(n)
+    }
+    class $o {
+        constructor(e) {
+            this.sendPageVisitEvent = async () => {
+                const e = document.querySelector("shreddit-app")?.getAttribute("country")
+                  , t = Ln(e || "")
+                  , {isAcceptableAdsEnabled: i, isAdblockEnabled: n} = await Ei({
+                    skipEyeoPixelCheck: t,
+                    isDetectionUpdateKillswitchEnabled: zo("shreddit_adblock_detection_update_killswitch")
+                })
+                  , o = this.getQueryParamVal(n, i);
+                fetch(`/svc/shreddit/styling-overrides/${`?context=${o}`}`)
+            }
+            ,
+            this.host = e,
+            this.host.addController(this),
+            requestAnimationFrame(this.sendPageVisitEvent)
+        }
+        getQueryParamVal(e, t) {
+            return e && t ? "scoped" : e && !t ? "local" : "namespaced"
+        }
+        hostConnected() {
+            window.addEventListener("afterRoute", this.sendPageVisitEvent)
+        }
+        hostDisconnected() {
+            window.removeEventListener("afterRoute", this.sendPageVisitEvent)
+        }
+    }
+    const qo = () => performance.getEntriesByName("InternalNavigationStart", "mark").length > 0
+      , Yo = () => {
+        const e = performance.getEntriesByName("InternalNavigationStart", "mark");
+        return e.length > 0 ? e[0].startTime : 0
+    }
+      , Qo = e => si({
+        source: "post_detail",
+        action: "navigation_to_post_detail",
+        noun: "comments_paint"
+    }, e)
+      , Jo = e => si({
+        source: "post_detail",
+        action: "navigation_to_post_detail",
+        noun: "comments_interactive"
+    }, e)
+      , Xo = ({TTCPDuration: e, secondaryTTCP: t}) => {
+        if (qo()) {
+            const i = {
+                comments_load: {
+                    viewable_millis: Math.floor(t - Yo())
+                }
+            };
+            return void 0 !== e && (i.timer = {
+                millis: Math.floor(e - Yo()),
+                type: Zt.TTCHybrid
+            }),
+            Qo(i)
+        }
+        {
+            const i = {
+                comments_load: {
+                    viewable_millis: Math.floor(t)
+                }
+            };
+            return void 0 !== e && (i.timer = {
+                millis: e,
+                type: Zt.TTCDeeplink
+            }),
+            Qo(i)
+        }
+    }
+      , Zo = () => "shouldTrackTTC"in window && window.shouldTrackTTC && 0 === window.scrollY
+      , er = e => {
+        window.shouldTrackTTC = e
+    }
+      , tr = "force_seo"
+      , ir = ["enabled", "control_1", "control_2"]
+      , nr = e => {
+        if ("true" === document.querySelector("shreddit-app")?.getAttribute("seeker-session")) {
+            const t = new URL(e)
+              , i = new URLSearchParams(t.search);
+            return i.set("seeker-session", "true"),
+            t.search = i.toString(),
+            t.href
+        }
+        return e
+    }
+      , or = (e, t) => {
+        const i = new URL(e)
+          , n = new URLSearchParams(i.search)
+          , o = t.filter(( ([e]) => !n.has(e)));
+        if (o.length)
+            return o.forEach((e => n.set(...e))),
+            i.search = n.toString(),
+            i.href
+    }
+    ;
+    let rr = window.fetch;
+    const ar = 864e5;
+    let sr = null
+      , dr = []
+      , lr = new Map;
+    const cr = ar
+      , ur = Date.now() + ar
+      , hr = "time-to-first-byte"
+      , pr = "first-contentful-paint";
+    function mr() {
+        const e = Date.now();
+        for (const [t,i] of lr.entries())
+            e - i.lastAccessed > cr && lr.delete(t);
+        if (lr.size <= 25)
+            return;
+        const t = [...lr.entries()].sort(( (e, t) => e[1].lastAccessed - t[1].lastAccessed));
+        lr.delete(t[0][0])
+    }
+    let gr;
+    const _r = [/^\/api\/v1\/.+/, /^\/svc\/shreddit\/oauth-grant.*/, /^\/(login|register|password|username|passwordreset|passwordrecovery)\/?/, /^\/avatar\/(claim|shop)/, /^\/partner\/(persona|stripe)\/.+/, /insights/, /^\/settings\/premium/, /^\/topics\/[a-z0]-\d+/, /^\/user\/.+\/about\/.+\/?/, /^\/user\/.+\/wiki\/.+\/config\/automoderator\/?/, /^\/api\/report_redirect/]
+      , fr = [/^\/user\/(?<username>[^/]+)\/display-collectibles\//];
+    let Er;
+    class vr {
+        constructor(e) {
+            var t;
+            this.overrideQueryParams = null,
+            this.navigationIndicator = document.querySelector("navigation-indicator"),
+            this.ignoreNavigations = !1,
+            this._hybridNavigationCount = 0,
+            this.handleNavigate = e => {
+                const {url: t} = e.destination
+                  , i = new URL(t)
+                  , n = Er.currentEntry?.key ? lr.get(Er.currentEntry.key) : void 0;
+                let o = !1;
+                if (this.ignoreNavigations)
+                    return void (this.currentUrl = t);
+                if (ur < Date.now())
+                    return;
+                if (!e.canIntercept)
+                    return;
+                if ("reload" === e.navigationType)
+                    return;
+                if (["push", "traverse"].includes(e.navigationType) && n?.callbackNavigations) {
+                    const i = Er.currentEntry.index
+                      , o = Er.entries().find((t => t.key === e.destination.key))
+                      , r = o ? Er.entries().indexOf(o) : -1
+                      , a = -1 !== r
+                      , s = a && r === i - 1
+                      , d = a && r === i + 1
+                      , {onForwardNav: l, onBackNav: c} = n.callbackNavigations;
+                    if (d && l)
+                        return l(),
+                        void (this.currentUrl = t);
+                    if (s && c)
+                        return c(),
+                        void (this.currentUrl = t)
+                }
+                if ("replace" === e.navigationType) {
+                    if (t === this.pendingUrl)
+                        return void e.intercept();
+                    if (t !== this.currentUrl || i.hash || t.endsWith("#")) {
+                        if (this._getLocation() === this.currentUrl || this._getLocation() !== t)
+                            return void (this.currentUrl = t);
+                        o = !0
+                    } else
+                        o = !0
+                }
+                if (fr.some((e => e.test(i.pathname))))
+                    return void e.intercept();
+                if (!this.isRoutable(t))
+                    return;
+                if (e.hashChange)
+                    return;
+                const r = function(e) {
+                    const t = e.originalEvent?.composedPath() || [];
+                    for (const e of t)
+                        if ("A" === e.nodeName)
+                            return e;
+                    return
+                }(e);
+                if ("_blank" === r?.target)
+                    return;
+                const a = new URL(this.currentUrl || "")
+                  , s = new URL(t);
+                if (a.hash = "",
+                s.hash = "",
+                !o && s.toString() === a.toString())
+                    return void e.intercept();
+                if (!Er.currentEntry)
+                    throw new Error("navigation.currentEntry is null");
+                const d = this.lastCompletedNavigationKey || Er.currentEntry.key;
+                Er.updateCurrentEntry({
+                    state: {
+                        scrollOffset: window.scrollY
+                    }
+                }),
+                e.intercept({
+                    handler: async () => {
+                        let i;
+                        window.dispatchEvent(new Event("beforeRoute"));
+                        try {
+                            i = await this.hybridNavigate(e, d)
+                        } catch (e) {
+                            console.log(e?.stack)
+                        }
+                        i && (this._hybridNavigationCount++,
+                        window.dispatchEvent(new Event("afterRoute")),
+                        this.lastCompletedNavigationKey = Er.currentEntry?.key,
+                        this.currentUrl = t)
+                    }
+                })
+            }
+            ,
+            this._processActionQueue = () => {
+                for (const e of dr) {
+                    const [t,...i] = e;
+                    this[t](...i)
+                }
+                dr = []
+            }
+            ,
+            this._host = e,
+            this._host.addController(this),
+            gr = document.querySelector("script[nonce]")?.nonce ?? "",
+            this.overrideQueryParams = (t = new URL(this._getLocation()).search,
+            Array.from(new URLSearchParams(t).entries()).filter(( ([e,t]) => ir.includes(t)))),
+            this.currentUrl = this._getLocation()
+        }
+        replace(e) {
+            this.ignoreNavigations = !0,
+            this._replaceState(null, e),
+            this.ignoreNavigations = !1
+        }
+        replaceAndNavigate(e) {
+            this._replaceState(null, e)
+        }
+        push(e, t={}) {
+            const {onBackNav: i, onForwardNav: n} = t;
+            if (Er.currentEntry?.key) {
+                const e = lr.get(Er.currentEntry.key);
+                lr.set(Er.currentEntry.key, {
+                    scrollOffsets: Ir(),
+                    lastAccessed: Date.now(),
+                    callbackNavigations: {
+                        ...e?.callbackNavigations,
+                        onForwardNav: n
+                    }
+                })
+            }
+            if (n?.(),
+            this.ignoreNavigations = !0,
+            this._pushState(null, e),
+            this.ignoreNavigations = !1,
+            Er.currentEntry?.key) {
+                const e = lr.get(Er.currentEntry.key);
+                lr.set(Er.currentEntry.key, {
+                    scrollOffsets: Ir(),
+                    lastAccessed: Date.now(),
+                    callbackNavigations: {
+                        ...e?.callbackNavigations,
+                        onBackNav: i
+                    }
+                })
+            }
+        }
+        async enableHybridNavigation() {
+            await async function() {
+                Sr || (Sr = async function() {
+                    if (Er = window.navigation,
+                    !Er) {
+                        console.log("Navigation API not supported, loading polyfill");
+                        try {
+                            const {applyPolyfill: e} = await SML.di("./apply-polyfill-8aed03a1.js", import.meta.url, "applypolyfill8aed03a1");
+                            Er = e()
+                        } catch {
+                            console.log("Navigation polyfill failed to initialize.")
+                        }
+                    }
+                }());
+                return Sr
+            }(),
+            Er && (Er.addEventListener("navigate", this.handleNavigate),
+            console.log("Navigation listeners online"),
+            this.lastCompletedNavigationKey = Er.currentEntry?.key)
+        }
+        disableHybridNavigation() {
+            window.navigation && (Er = window.navigation,
+            Er.removeEventListener("navigate", this.handleNavigate),
+            console.log("Navigation listeners offline"))
+        }
+        isRoutable(e) {
+            const t = new URL(e);
+            if (t.host !== window.location.host)
+                return !1;
+            if (_r.some((e => e.test(t.pathname))))
+                return !1;
+            return !new RegExp("#main-content$").test(e)
+        }
+        setTimeToCommentData() {
+            performance.clearMarks("InternalNavigationStart"),
+            performance.mark("InternalNavigationStart"),
+            er(!0)
+        }
+        async hybridNavigate(e, t) {
+            let i, n, {url: o} = e.destination;
+            const r = performance.now();
+            if (this.setTimeToCommentData(),
+            o === this.pendingUrl)
+                return;
+            this.overrideQueryParams && (o = or(o, this.overrideQueryParams) ?? o),
+            o = nr(o);
+            const a = this.pendingUrl = o
+              , s = e.destination.key
+              , d = lr.get(s);
+            if (d) {
+                if (!d.fragment)
+                    return console.log("No DOM for history entry, performing full navigation"),
+                    this.pendingUrl = void 0,
+                    void this.fullNavigateTo(o);
+                i = performance.now() - r;
+                const e = Ir()
+                  , a = this.replaceDOM(d.fragment, !0)
+                  , s = lr.get(t) || {};
+                return lr.set(t, {
+                    ...s,
+                    fragment: a,
+                    scrollOffsets: e,
+                    lastAccessed: Date.now()
+                }),
+                mr(),
+                Ar(d.scrollOffsets),
+                n = performance.now() - r,
+                this.pendingUrl = void 0,
+                this._host.handleWebVitalW3Reporting({
+                    [hr]: i || 1,
+                    [pr]: n
+                }, {
+                    hybrid: !0
+                }),
+                !0
+            }
+            let l;
+            this.navigationIndicator?.show?.();
+            try {
+                l = await this.performRequest(e, r)
+            } catch (e) {
+                console.error(e),
+                "AbortError" !== e?.name && this.navigationIndicator?.hide?.()
+            }
+            if (e.signal.aborted)
+                return this.pendingUrl = void 0,
+                this.navigationIndicator?.hide?.(),
+                !1;
+            if (!l)
+                return this.pendingUrl = void 0,
+                !1;
+            if (a !== this.pendingUrl)
+                return !1;
+            this.pendingUrl = void 0,
+            this.navigationIndicator?.hide?.();
+            const c = document.createRange().createContextualFragment(l)
+              , u = Ir();
+            window.scroll({
+                behavior: "instant",
+                top: 0
+            });
+            const h = this.replaceDOM(c);
+            return lr.set(t, {
+                fragment: h,
+                scrollOffsets: u,
+                lastAccessed: Date.now()
+            }),
+            mr(),
+            this.scrollToHash(o),
+            n = performance.now() - r,
+            this._host.handleWebVitalW3Reporting({
+                [pr]: n
+            }, {
+                hybrid: !0
+            }),
+            !0
+        }
+        async performRequest(e, t) {
+            let {url: i} = e.destination;
+            this.overrideQueryParams && (i = or(i, this.overrideQueryParams) ?? i),
+            i = nr(i);
+            const n = new AbortController;
+            this.currentAbort && this.currentAbort.abort(),
+            this.currentAbort = n;
+            const o = () => n.abort();
+            e.signal.addEventListener("abort", o, {
+                once: !0
+            });
+            const r = new URL(i)
+              , a = setTimeout(( () => {
+                this.pendingUrl === i && n.abort()
+            }
+            ), 3e4)
+              , s = {
+                headers: {
+                    nonce: gr,
+                    clienthash: this._host.clientHash,
+                    accept: "text/vnd.reddit.hybrid+html, text/html;q=0.9"
+                },
+                signal: n.signal,
+                referrer: this.currentUrl
+            };
+            e.formData && (s.method = "POST",
+            s.body = e.formData);
+            const d = await rr(r, s);
+            if (d.url !== i && window.addEventListener("afterRoute", ( () => {
+                if (this.pendingUrl = d.url,
+                r.hash) {
+                    const e = new URL(d.url);
+                    e.hash = r.hash,
+                    history.replaceState({}, "", e)
+                } else
+                    history.replaceState({}, "", d.url);
+                this.pendingUrl = void 0
+            }
+            ), {
+                once: !0
+            }),
+            !d.headers?.has("hybrid-route"))
+                return console.log("Not a hybrid response, performing full navigation"),
+                this.fullNavigateTo(i),
+                clearTimeout(a),
+                void this.currentAbort.abort();
+            const l = performance.now() - t;
+            this._host.handleWebVitalW3Reporting({
+                [hr]: l
+            }, {
+                hybrid: !0
+            }),
+            this.currentAbort = void 0;
+            const c = await d.text();
+            return clearTimeout(a),
+            e.signal.removeEventListener("abort", o),
+            c
+        }
+        replaceDOM(e, t=!1) {
+            const i = new DocumentFragment;
+            let n, o;
+            const r = this.findPersistentElements(this._host)
+              , a = this.findPersistentElements(e)
+              , s = new Map([...r.entries()].filter(( ([e]) => a.has(e))))
+              , d = Cr(Rr(this._host, s));
+            this.extractPersistentElements(s),
+            this.insertPersistentElements(e, s);
+            const l = [];
+            if (this._host.childNodes.forEach((e => {
+                yr(e) && " routable page start " === e.data ? n = e : yr(e) && " routable page end " === e.data ? o = e : o || n && l.push(e)
+            }
+            )),
+            !n || !o)
+                throw new Error("Missing boundary comments for DOM replacement");
+            for (const e of l)
+                e.remove(),
+                i.appendChild(e);
+            return this._host.screenViewData = {},
+            this._host.isNavigationControllerRestore = t,
+            this._host.insertBefore(e, o),
+            requestAnimationFrame(( () => {
+                Ar(d)
+            }
+            )),
+            i
+        }
+        findPersistentElements(e) {
+            const t = Array.from(e.querySelectorAll("[id][data-persistent], meta[id][data-persistent-placeholder]"))
+              , i = new Map;
+            for (const e of t)
+                i.set(e.id, e);
+            return i
+        }
+        extractPersistentElements(e) {
+            e.forEach((e => {
+                const t = document.createElement("meta");
+                t.id = e.id,
+                t.setAttribute("data-persistent-placeholder", ""),
+                e.replaceWith(t)
+            }
+            ))
+        }
+        insertPersistentElements(e, t) {
+            const i = this.findPersistentElements(e);
+            t.forEach((e => {
+                const t = i.get(e.id);
+                t ? t.replaceWith(e) : console.error(`Placeholder or target element missing for <${e.nodeName.toLowerCase()} id="${e.id} data-persistent>`)
+            }
+            )),
+            t.clear()
+        }
+        navigateTo(e) {
+            const t = document.createElement("a");
+            t.setAttribute("href", e),
+            t.style.display = "none",
+            document.body.appendChild(t),
+            t.click(),
+            t.remove()
+        }
+        fullNavigateTo(e) {
+            let t = e.startsWith("/") ? `${new URL(window.location.href).origin}${e}` : e;
+            !function() {
+                const e = document.querySelector("shreddit-app");
+                e?.dispatchEvent(new CustomEvent(mn))
+            }(),
+            this.disableHybridNavigation(),
+            this._hybridNavigationCount = 0,
+            window.addEventListener("pageshow", this.enableHybridNavigation),
+            t = or(t, this.overrideQueryParams ?? []) ?? t,
+            this._assignLocation(t)
+        }
+        scrollToHash(e) {
+            const t = new URL(e).hash;
+            t && requestAnimationFrame(( () => {
+                const e = document.getElementById(t.slice(1));
+                if (e) {
+                    const t = e.dataset.scrollBehaviour || "smooth";
+                    e.scrollIntoView({
+                        behavior: t
+                    })
+                }
+            }
+            ))
+        }
+        _getLocation() {
+            return window.location.toString()
+        }
+        _assignLocation(e) {
+            return window.location.assign(e)
+        }
+        _replaceState(e, t) {
+            return history.replaceState(e, "", t)
+        }
+        _pushState(e, t) {
+            return history.pushState(e, "", t)
+        }
+        _getCurrentURL() {
+            return this.currentUrl
+        }
+        _getHistoryStateMap() {
+            return lr
+        }
+        hostConnected() {
+            if (sr)
+                throw new Error("Only one NavigationController may be active at a time.");
+            sr = this,
+            this.enableHybridNavigation().then(this._processActionQueue)
+        }
+        hostDisconnected() {
+            sr = null,
+            this.disableHybridNavigation()
+        }
+        get hybridNavigationCount() {
+            return this._hybridNavigationCount
+        }
+    }
+    let Sr = null;
+    function br(e) {
+        if (sr)
+            return sr.replace(e);
+        dr.push(["replace", e])
+    }
+    function Tr() {
+        return sr?.hybridNavigationCount ?? 0
+    }
+    function yr(e) {
+        return e.nodeType === Node.COMMENT_NODE
+    }
+    function Ir() {
+        const e = Cr(Rr());
+        return e.set(window, {
+            top: window.scrollY,
+            left: window.scrollX
+        }),
+        e
+    }
+    function Cr(e) {
+        const t = new Map;
+        for (const i of e)
+            t.set(i, {
+                top: i.scrollTop,
+                left: i.scrollLeft
+            });
+        return t
+    }
+    function Ar(e) {
+        for (const [t,i] of e)
+            t.scrollTo({
+                behavior: "instant",
+                ...i
+            })
+    }
+    function Rr(e=document, t=new Map) {
+        const i = Array.from(t.values())
+          , n = Array.from(e.querySelectorAll("[data-scroll-restore]"))
+          , o = i.flatMap((e => Array.from(e.querySelectorAll("[data-scroll-restore]"))));
+        return [...new Set([...i, ...n, ...o])]
+    }
+    class Pr {
+        constructor(e) {
+            this.handleObservation = e => {
+                const t = () => {
+                    e.getEntries().forEach((e => {
+                        const t = e;
+                        if (!t?.scripts?.length)
+                            return;
+                        const i = si({
+                            ...this.buildCommon(),
+                            ...this.buildLongAnimationFrame(t)
+                        });
+                        this._host._handleEvent(i)
+                    }
+                    ))
+                }
+                ;
+                this.callbackId = "requestIdleCallback"in window ? requestIdleCallback(t) : setTimeout(t)
+            }
+            ,
+            this._host = e,
+            this._host.addController(this)
+        }
+        hostConnected() {
+            if (this._host.shouldObservePerformance) {
+                if (Pr.activeInstance)
+                    throw new Error("Only one PerformanceObserverController may be active at a time.");
+                Pr.activeInstance = this,
+                this.initObservers()
+            }
+        }
+        hostDisconnected() {
+            this._host.shouldObservePerformance && (this.performanceObserver?.disconnect(),
+            window.clearTimeout(this.callbackId),
+            Pr.activeInstance = void 0)
+        }
+        initObservers() {
+            this.performanceObserver = new window.PerformanceObserver(this.handleObservation),
+            this.performanceObserver.observe({
+                type: "long-animation-frame",
+                buffered: !0
+            })
+        }
+        buildLongAnimationFrame(e) {
+            return {
+                long_animation_frame: {
+                    blocking_duration: Math.round(e.blockingDuration),
+                    duration: Math.round(e.duration),
+                    first_ui_event_start: Math.round(e.firstUIEventTimestamp),
+                    render_start: Math.round(e.renderStart),
+                    scripts_json: this.safeParseJsonString(e.scripts),
+                    start_time: Math.round(e.startTime),
+                    style_and_layout_start: Math.round(e.styleAndLayoutStart)
+                }
+            }
+        }
+        buildCommon() {
+            return {
+                source: "browser",
+                action: "observe",
+                noun: "performance",
+                screenview_id: this._host._visibilityChange._screenviewId,
+                browser_context: {
+                    hybrid_navigation_count: Tr(),
+                    release: this._host.release,
+                    time_origin: Math.round(performance.timeOrigin)
+                },
+                action_info: {
+                    page_type: this._host.pageType,
+                    route_name: this._host.routeName
+                },
+                request: {
+                    canonical_url: this._host.canonicalUrl
+                }
+            }
+        }
+        safeParseJsonString(e) {
+            let t;
+            try {
+                t = JSON.stringify(e)
+            } catch {}
+            return t || "[]"
+        }
+    }
+    var Nr, Or;
+    !function(e) {
+        e.Standard = "hidden",
+        e.Webkit = "webkitHidden"
+    }(Nr || (Nr = {})),
+    function(e) {
+        e.hidden = "visibilitychange",
+        e.webkitHidden = "webkitvisibilitychange",
+        e.mozHidden = "mozvisibilitychange",
+        e.msHidden = "msvisibilitychange"
+    }(Or || (Or = {}));
+    const wr = Object.keys(Or)
+      , Dr = {
+        initialized: !1,
+        visibilityCallbacks: new Array
+    }
+      , Mr = () => {}
+      , kr = wr.find((e => void 0 !== document[e]));
+    var Lr = (e=Mr, t={
+        immediate: !1
+    }) => {
+        const i = Dr.visibilityCallbacks.length;
+        return Dr.visibilityCallbacks.includes(e) || (t.shouldBeCalledFirst ? Dr.visibilityCallbacks.unshift(e) : Dr.visibilityCallbacks.push(e)),
+        !Dr.initialized && kr && (Dr.initialized = !0,
+        document.addEventListener(Or[kr], ( () => {
+            const e = !document[kr];
+            Dr.visibilityCallbacks.forEach((t => t(e)))
+        }
+        )),
+        t.immediate && e(!document[kr])),
+        t.resetInit && (Dr.initialized = !1),
+        i < Dr.visibilityCallbacks.length
+    }
+    ;
+    const Ur = e => {
+        const t = Dr.visibilityCallbacks.length
+          , i = Dr.visibilityCallbacks.indexOf(e);
+        return -1 !== i && Dr.visibilityCallbacks.splice(i, 1),
+        t > Dr.visibilityCallbacks.length
+    }
+    ;
+    class Fr {
+        constructor(e) {
+            this.performanceObserver = null,
+            this.attachCommentsPartialListener = () => {
+                this.performanceObserver?.disconnect(),
+                this.host.isBot || this.host.pageType !== Qt.PostDetail && this.host.pageType !== Qt.SingleCommentThread || this.host.addEventListener("faceplate-load", this.handleCommentsPartialsLoaded)
+            }
+            ,
+            this.handleVisibilityChange = () => {
+                er(!1),
+                this.host.removeEventListener("faceplate-load", this.handleCommentsPartialsLoaded),
+                this.performanceObserver?.disconnect()
+            }
+            ,
+            this.handleCommentsPartialsLoaded = e => {
+                if ("faceplate-load" === e.type && (this.host.pageType === Qt.PostDetail || this.host.pageType === Qt.SingleCommentThread) && "src"in e.detail && e.detail.src.startsWith("/svc/shreddit/comments") && !e.detail.src.includes("inline-refresh=true")) {
+                    const e = performance.now();
+                    this.host.removeEventListener("faceplate-load", this.handleCommentsPartialsLoaded),
+                    PerformanceObserver.supportedEntryTypes && PerformanceObserver.supportedEntryTypes.includes("element") ? (this.performanceObserver = new PerformanceObserver((t => {
+                        t.getEntries().forEach((t => {
+                            if ((e => "identifier"in e && "string" == typeof e.identifier && "renderTime"in e && "number" == typeof e.renderTime)(t) && "TTCP" === t.identifier) {
+                                const i = t.renderTime;
+                                this.performanceObserver?.disconnect(),
+                                Zo() && mt(this.host, Xo({
+                                    TTCPDuration: i,
+                                    secondaryTTCP: e
+                                }))
+                            }
+                        }
+                        ))
+                    }
+                    )),
+                    this.performanceObserver.observe({
+                        type: "element",
+                        buffered: !1
+                    })) : mt(this.host, Xo({
+                        secondaryTTCP: e
+                    }))
+                }
+            }
+            ,
+            this.host = e,
+            e.addController(this)
+        }
+        hostConnected() {
+            Lr(this.handleVisibilityChange),
+            window.addEventListener("afterRoute", this.attachCommentsPartialListener),
+            this.attachCommentsPartialListener()
+        }
+        hostDisconnected() {
+            Ur(this.handleVisibilityChange),
+            window.removeEventListener("afterRoute", this.attachCommentsPartialListener),
+            this.host.removeEventListener("faceplate-load", this.handleCommentsPartialsLoaded),
+            this.performanceObserver?.disconnect()
+        }
+    }
+    let Br, Vr, xr, Gr = !1, Hr = Promise.resolve();
+    function Wr(e) {
+        let t = e;
+        for (; t && t.shadowRoot && t.shadowRoot.activeElement; )
+            t = t.shadowRoot.activeElement;
+        return t
+    }
+    function zr() {
+        const e = document.activeElement;
+        return e ? Wr(e) : null
+    }
+    function jr() {
+        const e = zr();
+        return e instanceof HTMLElement ? e : null
+    }
+    function Kr(e) {
+        const t = e.hasAttribute("tabindex");
+        e.blur(),
+        t || e.setAttribute("tabindex", "0"),
+        e.focus(),
+        t || e.removeAttribute("tabindex")
+    }
+    function $r(e) {
+        Gr || (Gr = !0,
+        Kr(e),
+        Hr = new Promise((t => {
+            setTimeout(( () => {
+                const i = zr();
+                e !== i && Kr(e),
+                Gr = !1,
+                t()
+            }
+            ))
+        }
+        )))
+    }
+    function qr(e) {
+        return e.hasAttribute("hidden") || e.hasAttribute("aria-hidden") && "false" !== e.getAttribute("aria-hidden") || "none" === e.style.display || "0" === e.style.opacity || "hidden" === e.style.visibility || "collapse" === e.style.visibility
+    }
+    function Yr(e) {
+        return "-1" !== e.getAttribute("tabindex") && !qr(e) && !function(e) {
+            return e.hasAttribute("disabled") || e.hasAttribute("aria-disabled") && "false" !== e.getAttribute("aria-disabled")
+        }(e) && (e.hasAttribute("tabindex") || (e instanceof HTMLAnchorElement || e instanceof HTMLAreaElement) && e.hasAttribute("href") || e instanceof HTMLButtonElement || e instanceof HTMLInputElement || e instanceof HTMLTextAreaElement || e instanceof HTMLSelectElement || e instanceof HTMLIFrameElement)
+    }
+    class Qr {
+        constructor(e) {
+            this._focusableElements = null,
+            this._firstFocusable = null,
+            this._lastFocusable = null,
+            this._savedFocusable = null,
+            this._target = e
+        }
+        get size() {
+            var e;
+            return (null === (e = this._focusableElements) || void 0 === e ? void 0 : e.size) || 0
+        }
+        get first() {
+            return this._firstFocusable
+        }
+        get last() {
+            return this._lastFocusable
+        }
+        _focusTarget(e) {
+            var t;
+            return e ? ($r(e),
+            !0) : (null === (t = jr()) || void 0 === t || t.blur(),
+            !1)
+        }
+        _getActiveInternalElement() {
+            if (!this._focusableElements)
+                return null;
+            const e = jr();
+            return e && this._focusableElements.has(e) ? e : null
+        }
+        has(e) {
+            var t;
+            return (null === (t = this._focusableElements) || void 0 === t ? void 0 : t.has(e)) || !1
+        }
+        refresh() {
+            const e = Xr({
+                root: this._target,
+                skipNode: qr,
+                isMatch: Yr
+            });
+            this._firstFocusable = e[0],
+            this._lastFocusable = e[e.length - 1],
+            this._focusableElements = new Set(e)
+        }
+        focus() {
+            if (this._focusableElements)
+                for (const e of this._focusableElements)
+                    if (e.autofocus)
+                        return this._focusTarget(e);
+            return this._focusTarget(this._firstFocusable)
+        }
+        blur() {
+            var e;
+            null === (e = this._savedFocusable) || void 0 === e || e.blur()
+        }
+        focusFirst() {
+            return this._focusTarget(this._firstFocusable)
+        }
+        focusLast() {
+            return this._focusTarget(this._lastFocusable)
+        }
+        saveFocus() {
+            this._savedFocusable = this._getActiveInternalElement()
+        }
+        restoreFocus() {
+            this._focusTarget(this._savedFocusable)
+        }
+    }
+    class Jr extends Qr {
+        constructor(e, t) {
+            super(t),
+            e.addController(this)
+        }
+        hostConnected() {
+            this.refresh()
+        }
+    }
+    function Xr({root: e, skipNode: t, isMatch: i, maxDepth: n=20, depth: o=0}) {
+        const r = [];
+        if (o >= n)
+            return r;
+        const a = e => {
+            const r = e.assignedNodes().filter((e => 1 === e.nodeType));
+            if (r.length > 0) {
+                return Xr({
+                    root: r[0].parentElement,
+                    skipNode: t,
+                    isMatch: i,
+                    maxDepth: n,
+                    depth: o + 1
+                })
+            }
+            return []
+        }
+          , s = Array.from(e.children || []);
+        for (const e of s)
+            t(e) || (i(e) && r.push(e),
+            null != e.shadowRoot ? r.push(...Xr({
+                root: e.shadowRoot,
+                skipNode: t,
+                isMatch: i,
+                maxDepth: n,
+                depth: o + 1
+            })) : "SLOT" === e.tagName ? r.push(...a(e)) : r.push(...Xr({
+                root: e,
+                skipNode: t,
+                isMatch: i,
+                maxDepth: n,
+                depth: o + 1
+            })));
+        return r
+    }
+    class Zr {
+        constructor(e) {
+            this._opts = e,
+            this._frames = []
+        }
+        get top() {
+            return this._frames[this._frames.length - 1]
+        }
+        add(e) {
+            const t = this.top;
+            this._frames.push(e),
+            t ? this._opts.framePaused && this._opts.framePaused(t) : this._opts.stackEntered && this._opts.stackEntered(e),
+            this._opts.frameAdded && this._opts.frameAdded(e)
+        }
+        _pop() {
+            const e = this._frames.pop();
+            if (!e)
+                return;
+            const t = this.top;
+            this._opts.frameRemoved && this._opts.frameRemoved(e),
+            t ? this._opts.frameResumed && this._opts.frameResumed(t) : this._opts.stackExited && this._opts.stackExited(e)
+        }
+        remove(e) {
+            const t = this._frames.indexOf(e);
+            t < 0 || (t === this._frames.length - 1 ? this._pop() : (this._frames.splice(t, 1),
+            this._opts.frameRemoved && this._opts.frameRemoved(e)))
+        }
+    }
+    const ea = new Zr({
+        stackEntered() {
+            document.body.style.pointerEvents && (Br = document.body.style.pointerEvents),
+            document.body.style.pointerEvents = "none",
+            document.body.style.overflow && (Vr = document.body.style.overflow),
+            document.body.style.overflow = "hidden"
+        },
+        stackExited() {
+            Br ? document.body.style.pointerEvents = Br : document.body.style.removeProperty("pointer-events"),
+            Vr ? document.body.style.overflow = Vr : document.body.style.removeProperty("overflow")
+        }
+    })
+      , ta = new Zr({
+        stackEntered() {
+            xr = jr(),
+            window.addEventListener("keydown", ia),
+            window.addEventListener("focusin", na)
+        },
+        stackExited(e) {
+            xr ? $r(xr) : e.blur(),
+            window.removeEventListener("keydown", ia),
+            window.removeEventListener("focusin", na)
+        },
+        frameAdded(e) {
+            e.inFocusTrap = !0,
+            e.focusManager.refresh(),
+            e.focusManager.focus()
+        },
+        frameRemoved(e) {
+            e.inFocusTrap = !1
+        },
+        framePaused(e) {
+            e.focusManager.saveFocus()
+        },
+        frameResumed(e) {
+            e.focusManager.restoreFocus()
+        }
+    });
+    function ia(e) {
+        const t = ta.top;
+        t && ("Escape" === e.key ? t.blocking || (e.stopPropagation(),
+        t.close()) : function(e, t) {
+            if ("Tab" !== e.key)
+                return;
+            if (t.focusManager.size < 1)
+                return e.preventDefault();
+            const i = jr();
+            if (!i)
+                return;
+            if (1 === t.focusManager.size && i === t.focusManager.first)
+                return e.preventDefault();
+            if (e.shiftKey) {
+                if (i === t.focusManager.first)
+                    t.focusManager.focusLast(),
+                    e.preventDefault()
+            } else if (i === t.focusManager.last)
+                t.focusManager.focusFirst(),
+                e.preventDefault()
+        }(e, t))
+    }
+    function na(e) {
+        const t = ta.top;
+        t && function(e, t) {
+            const i = jr();
+            if (!i || i === t)
+                return;
+            if (t.focusManager.has(i))
+                return;
+            t.focusManager.focusFirst() && e.preventDefault()
+        }(e, t)
+    }
+    let oa = class extends e.a {
+        constructor(t) {
+            if (super(t),
+            this.et = e.A,
+            t.type !== e.t.CHILD)
+                throw Error(this.constructor.directiveName + "() can only be used in child bindings")
+        }
+        render(t) {
+            if (t === e.A || null == t)
+                return this.ft = void 0,
+                this.et = t;
+            if (t === e.T)
+                return t;
+            if ("string" != typeof t)
+                throw Error(this.constructor.directiveName + "() called with a non-string value");
+            if (t === this.et)
+                return this.ft;
+            this.et = t;
+            const i = [t];
+            return i.raw = i,
+            this.ft = {
+                _$litType$: this.constructor.resultType,
+                strings: i,
+                values: []
+            }
+        }
+    }
+    ;
+    oa.directiveName = "unsafeHTML",
+    oa.resultType = 1;
+    const ra = e.e(oa);
+    let aa = class extends e.s {
+        constructor() {
+            super(...arguments),
+            this.focusManager = new Jr(this,this),
+            this.open = !1,
+            this.blocking = !1,
+            this.returnValue = "",
+            this.modal = !1,
+            this._inFocusTrap = !1
+        }
+        get inFocusTrap() {
+            return this._inFocusTrap
+        }
+        set inFocusTrap(e) {
+            if (this._inFocusTrap !== e)
+                if (this._inFocusTrap = e,
+                e) {
+                    const e = window.getComputedStyle(this).boxShadow;
+                    e && (this.dataset.faceplateDialogPreviousShadow = e,
+                    this.style.boxShadow = `${e}, 0 0 0 max(100vw, 100vh) var(--color-scrim)`)
+                } else
+                    this.dataset.faceplateDialogPreviousShadow ? this.style.boxShadow = this.dataset.faceplateDialogPreviousShadow : this.style.removeProperty("boxShadow")
+        }
+        get isFocusEnabled() {
+            return this === ta.top
+        }
+        disconnectedCallback() {
+            super.disconnectedCallback(),
+            this.modal && ta.remove(this)
+        }
+        close(e) {
+            void 0 !== e && (this.returnValue = e);
+            const t = v("faceplate-close");
+            this.dispatchEvent(t),
+            t.defaultPrevented || (this.open = !1,
+            this.modal && ta.remove(this))
+        }
+        show() {
+            this.modal = !1,
+            this.open = !0,
+            this.focusManager.focus()
+        }
+        showModal() {
+            if (this.open)
+                throw new Error('The element already has an "open" attribute, and therefore cannot be opened modally');
+            this.modal = !0,
+            this.open = !0,
+            ta.add(this)
+        }
+        static get styles() {
+            return e.i`:host{display:none;inset-inline:0;width:-moz-fit-content;width:fit-content;background:var(--color-ui-modalbackground);border-radius:4px;margin:auto;padding:1rem;box-shadow:var(--boxshadow-modal);pointer-events:all;max-width:95vw;max-height:95vh;overflow:auto}:host([open]){display:block;z-index:1}.backdrop{position:fixed;inset:0;z-index:-1}`
+        }
+        render() {
+            return e.x` ${ra(this.modal ? "\n  <style>\n    :host {\n      top: 50%;\n      transform: translateY(-50%);\n      position: fixed;\n    }\n  </style>\n" : "\n  <style>\n    :host {\n      position: absolute;\n    }\n  </style>\n")} <div class="${this.modal ? "backdrop" : ""}" role="${e.l(this.open ? "dialog" : void 0)}" aria-modal="${e.l(this.open && this.modal ? "true" : void 0)}"></div> <slot></slot> `
+        }
+    }
+    ;
+    t([d({
+        type: Boolean,
+        reflect: !0
+    })], aa.prototype, "open", void 0),
+    t([d({
+        type: Boolean
+    })], aa.prototype, "blocking", void 0),
+    t([d({
+        attribute: !1
+    })], aa.prototype, "modal", void 0),
+    t([l()], aa.prototype, "inFocusTrap", null),
+    aa = t([a("faceplate-dialog")], aa);
+    let sa = class extends e.s {
+        static get styles() {
+            return e.i`:host{clip:rect(1px,1px,1px,1px);clip-path:inset(50%);height:1px;width:1px;margin:-1px;overflow:hidden;padding:0;position:absolute}`
+        }
+        render() {
+            return e.x` <slot></slot> `
+        }
+    }
+    ;
+    var da;
+    function la(e) {
+        return {
+            ...e,
+            createdAt: Date.now(),
+            attempt: 0,
+            statusCodes: []
+        }
+    }
+    function ca(e, t) {
+        const {name: i, value: n, type: o, labels: r, createdAt: a} = e;
+        return {
+            age: Date.now() - a,
+            type: "reddit-w3reporting",
+            url: "",
+            user_agent: navigator.userAgent,
+            body: {
+                sampling_fraction: ua(e, t),
+                type: o,
+                name: i,
+                value: n,
+                labels: r ?? {}
+            }
+        }
+    }
+    function ua(e, t) {
+        return e.isFailure ? t.sampling.failureFraction : t.sampling.successFraction
+    }
+    function ha(e, t) {
+        e.attempt = Math.min(t, e.attempt + 1)
+    }
+    function pa({batch: e, reportQueue: t, maxReportAge: i, lastStatusCode: n}) {
+        for (const t of e)
+            t.attempt += 1,
+            t.statusCodes.push(n);
+        const {maxReportAttempts: o} = ma(i);
+        t.unshift(...e.filter((e => e.attempt < o)))
+    }
+    function ma(e) {
+        const t = Math.floor(Math.log(e / 1e3));
+        return {
+            maxAttempts: t,
+            maxReportAttempts: Math.min(3, t)
+        }
+    }
+    async function ga({config: e, batch: t, maxReportAge: i, isTimeSensitive: n, reportQueue: o, onError: r}) {
+        const a = function(e) {
+            return e.urlIndex = (e.urlIndex + 1) % e.reportingUrls.length,
+            e.reportingUrls[e.urlIndex]
+        }(e);
+        if (!a)
+            return;
+        const s = t.map((t => ca(t, e))).filter((e => e.age < i));
+        if (0 === s.length)
+            return;
+        !async function({batch: e, reportQueue: t, resp: i, isTimeSensitive: n, config: o, maxReportAge: r, onError: a}) {
+            const {maxAttempts: s} = ma(r);
+            switch (i.status) {
+            case 200:
+                n || function(e) {
+                    e.attempt = 0
+                }(o),
+                function(e) {
+                    e.batchSizeMultiplier = 1
+                }(o);
+                break;
+            case 207:
+            case 400:
+                await a(e, i);
+                break;
+            case 413:
+                pa({
+                    batch: e,
+                    reportQueue: t,
+                    maxReportAge: r,
+                    lastStatusCode: i.status
+                }),
+                function(e) {
+                    e.batchSizeMultiplier = e.batchSizeMultiplier / 2
+                }(o);
+                break;
+            default:
+                pa({
+                    batch: e,
+                    reportQueue: t,
+                    maxReportAge: r,
+                    lastStatusCode: i.status
+                }),
+                n || ha(o, s)
+            }
+        }({
+            batch: t,
+            resp: await fetch(a, {
+                method: "POST",
+                headers: {
+                    "Content-Type": "text/plain"
+                },
+                body: JSON.stringify(s),
+                keepalive: !0
+            }),
+            isTimeSensitive: n,
+            maxReportAge: i,
+            config: e,
+            reportQueue: o,
+            onError: r
+        })
+    }
+    function _a({disabled: e, qItem: t, config: i}) {
+        return !e && function(e, t) {
+            const i = ua(e, t);
+            return Math.random() < i
+        }(t, i)
+    }
+    sa = t([a("faceplate-screen-reader-content")], sa),
+    function(e) {
+        e.Counter = "counter",
+        e.Gauge = "gauge",
+        e.Histogram = "histogram"
+    }(da || (da = {}));
+    function fa({policyUrl: e, onError: t, disabled: i, maxReportAge: n=3e5, flushInterval: o=3e3}) {
+        const r = {
+            w3IncludeSubdomains: !1,
+            reportingUrls: [],
+            policyUrl: e ?? "https://w3-reporting.reddit.com/policy",
+            sampling: {
+                successFraction: 1,
+                failureFraction: 1
+            },
+            attempt: 0,
+            batchSizeMultiplier: 1,
+            urlIndex: -1
+        }
+          , a = Boolean(i);
+        let s = null;
+        async function d() {
+            return s || (s = async function(e) {
+                try {
+                    const t = await fetch(e.policyUrl, {
+                        method: "GET"
+                    })
+                      , i = t.headers.get("report-to");
+                    if (i) {
+                        const t = JSON.parse(`[${i}]`)
+                          , n = t?.find(( ({group: e}) => "w3-reporting" === e));
+                        e.w3IncludeSubdomains = Boolean(n?.include_subdomains);
+                        const o = n?.endpoints?.map?.((e => e.url)) || [];
+                        o.length > 0 && (e.reportingUrls = o)
+                    }
+                    const n = t.headers.get("x-reddit-w3reporting");
+                    if (n) {
+                        const t = JSON.parse(n);
+                        "number" == typeof t.success_fraction && (e.sampling.successFraction = t.success_fraction),
+                        "number" == typeof t.failure_fraction && (e.sampling.failureFraction = t.failure_fraction)
+                    }
+                } catch (e) {
+                    window.Sentry?.captureException?.(e)
+                }
+            }(r)),
+            s
+        }
+        let l = [];
+        const {maxAttempts: c} = ma(n);
+        async function u() {
+            if (0 === l.length)
+                return;
+            const e = Math.max(1, Math.floor(l.length * r.batchSizeMultiplier))
+              , i = l.slice(0, e);
+            l = l.slice(e);
+            try {
+                await ga({
+                    batch: i,
+                    isTimeSensitive: !1,
+                    config: r,
+                    maxReportAge: n,
+                    reportQueue: l,
+                    onError: t
+                })
+            } catch (e) {
+                window.Sentry?.captureException?.(e),
+                ha(r, c),
+                pa({
+                    batch: i,
+                    reportQueue: l,
+                    maxReportAge: n,
+                    lastStatusCode: 666
+                })
+            }
+        }
+        let h = [];
+        async function p() {
+            if (0 === h.length)
+                return;
+            const e = [...h];
+            h = [];
+            try {
+                await ga({
+                    batch: e,
+                    isTimeSensitive: !0,
+                    config: r,
+                    maxReportAge: n,
+                    reportQueue: l,
+                    onError: t
+                })
+            } catch (t) {
+                window.Sentry?.captureException?.(t),
+                ha(r, c),
+                pa({
+                    batch: e,
+                    reportQueue: l,
+                    lastStatusCode: 420,
+                    maxReportAge: n
+                })
+            }
+        }
+        return window.setTimeout((async function e() {
+            await u(),
+            window.setTimeout(e, o * Math.exp(r.attempt))
+        }
+        ), o),
+        document.addEventListener("visibilitychange", ( () => {
+            "hidden" === document.visibilityState && u()
+        }
+        )),
+        {
+            w3Report: async function(e) {
+                await d();
+                const t = la(e);
+                _a({
+                    qItem: t,
+                    config: r,
+                    disabled: a
+                }) && l.push(t)
+            },
+            w3ReportNow: async function(e) {
+                await d();
+                const t = la(e);
+                _a({
+                    qItem: t,
+                    config: r,
+                    disabled: a
+                }) && (0 === h.length && setTimeout(p, 0),
+                h.push(t))
+            },
+            printReportQueue: function(e=!1) {
+                const t = e ? h : l;
+                return JSON.stringify(t.map((e => ca(e, r))), null, 2)
+            }
+        }
+    }
+    async function Ea(e, t) {
+        const i = (await t.json())?.invalid.map(function(e, t) {
+            return i => {
+                const n = "number" == typeof i ? e[i] : i
+                  , {labels: o={}} = n
+                  , r = {};
+                for (const e in o)
+                    r[e.replace(/auth/, "a_u_t_h")] = o[e];
+                const a = t ? n.statusCodes.concat(t) : n.statusCodes;
+                return {
+                    name: n.name,
+                    labels: r,
+                    attempt: n.attempt,
+                    statusCodes: a
+                }
+            }
+            ;
+        }(e, t.status));
+        window.Sentry?.withScope((e => {
+            e.setExtra("statusCode", t.status),
+            e.setExtra("reports", JSON.stringify(i)),
+            window.Sentry?.captureMessage("Failed to send W3 reports")
+        }
+        ))
+    }
+    const va = (e, t) => {
+        "function" == typeof navigator.sendBeacon ? navigator.sendBeacon(e, t) : ( (e, t) => {
+            fetch(e, {
+                body: t,
+                headers: {
+                    "Content-Type": "text/plain"
+                },
+                keepalive: !0,
+                method: "POST"
+            })
+        }
+        )(e, t)
+    }
+    ;
+    async function Sa(e) {
+        try {
+            const i = ba();
+            if (t = i,
+            !Boolean("string" == typeof t && t?.length))
+                return;
+            const n = function(e) {
+                const {name: t, value: i, type: n, labels: o} = e
+                  , r = {
+                    age: 1,
+                    type: "reddit-w3reporting",
+                    url: "",
+                    user_agent: navigator.userAgent,
+                    body: {
+                        sampling_fraction: .99,
+                        type: n,
+                        name: t,
+                        value: i,
+                        labels: o ?? {}
+                    }
+                };
+                return JSON.stringify([r])
+            }(e);
+            va(i, n)
+        } catch (t) {
+            !function(e, t) {
+                if (!(e instanceof Error))
+                    return;
+                window.Sentry?.withScope((i => {
+                    i?.setTag("w3", "reportWebVital"),
+                    i?.setTag("w3Url", ba()),
+                    i?.setTag("w3Params", JSON.stringify([t])),
+                    i?.setTag("errorMessage", e.message?.slice?.(0, 200)),
+                    i?.setTag("errorName", e.name?.slice?.(0, 200)),
+                    i?.setTag("errorStack", e.stack?.slice?.(0, 200)?.replaceAll?.("\n", "")),
+                    window.Sentry?.captureMessage?.("Failed to report w3 web vital")
+                }
+                ))
+            }(t, e)
+        }
+        var t
+    }
+    function ba() {
+        return window.CLIENT_CONFIG.W3_REPORTING_WEB_VITAL_REPORTS_URL
+    }
+    const {w3Report: Ta, w3ReportNow: ya, printReportQueue: Ia} = fa({
+        onError: Ea,
+        disabled: Boolean(CLIENT_CONFIG.DISABLE_W3_REPORTING)
+    });
+    var Ca = Object.freeze({
+        __proto__: null,
+        get W3ReportType() {
+            return da
+        },
+        defaultOnError: Ea,
+        printReportQueue: Ia,
+        w3Report: Ta,
+        w3ReportNow: ya,
+        w3ReportWebVital: Sa,
+        w3Reporting: fa
+    });
+    const Aa = "first-comment-updated";
+    var Ra;
+    !function(e) {
+        e.Mobile = "mweb3x",
+        e.Desktop = "web3x"
+    }(Ra || (Ra = {}));
+    const Pa = Ra.Mobile
+      , Na = Object.values(Ra)
+      , Oa = "on-load-embed"
+      , wa = "on-embed-clicked"
+      , Da = "on-embed-entrypoint-clicked"
+      , Ma = "on-embed-entrypoint-viewed";
+    function ka(e, t=0, i={
+        leading: !1,
+        trailing: !0
+    }) {
+        let n, o = !1;
+        return function(...r) {
+            n && clearTimeout(n),
+            i.leading && !n ? (e.apply(this, r),
+            o = !0) : o = !1,
+            n = setTimeout(( () => {
+                i.trailing && !o && e.apply(this, r),
+                n = null
+            }
+            ), t)
+        }
+    }
+    const La = Symbol.for("mixins/with-viewport-height");
+    const Ua = "logged-in"
+      , Fa = "translation-context"
+      , Ba = {
+        shouldDisplayCoachmark: !0,
+        shouldDisplayFeedbackCoachmark: !1,
+        coachmarkDisplayCount: 0,
+        showCommentTranslationModal: !0,
+        showPostTranslationModal: !0
+    };
+    function Va(e, t) {
+        return t in e
+    }
+    const xa = Symbol("mixins/with-navigation-connection")
+      , Ga = new Set;
+    class Ha {
+        constructor(e) {
+            this._host = e,
+            this._host.addController(this)
+        }
+        hostConnected() {
+            window.addEventListener("beforeRoute", this.handleBeforeRoute)
+        }
+        hostDisonnected() {
+            window.removeEventListener("beforeRoute", this.handleBeforeRoute)
+        }
+        handleBeforeRoute() {
+            let e;
+            for (( () => {
+                for (const e of Ga)
+                    e.cleanupSideEffectsBeforeNavigation()
+            }
+            )(); e = ta.top; )
+                ta.remove(e)
+        }
+    }
+    const Wa = ["ar", "kn-IN", "ml-IN", "mr-IN", "ta-IN", "te-IN"]
+      , za = ["ta-IN", "id-ID"]
+      , ja = [...["bn-IN", "da-DK", "de-DE", "cs-CZ", "el-GR", "en-US", "es-ES", "es-MX", "fi-FI", "fil-PH", "fr-FR", "hi-IN", "hu-HU", "it-IT", "ja-JP", "ko-KR", "ms-MY", "nb-NO", "nl-NL", "pl-PL", "pt-BR", "pt-PT", "ro-RO", "ru-RU", "sr-RS", "sv-SE", "th-TH", "tr-TR", "uk-UA", "vi-VN", "zh-CN", "zh-TW"], ...za, ...Wa, ...Object.keys({
+        "ar-test-i18n": "ar",
+        "kn-IN-test-i18n": "kn-IN",
+        "ml-IN-test-i18n": "ml-IN",
+        "mr-IN-test-i18n": "mr-IN",
+        "ta-IN-test-i18n": "ta-IN",
+        "te-IN-test-i18n": "te-IN"
+    })];
+    Object.fromEntries(Wa.map((e => [e, e])));
+    const Ka = Object.fromEntries(za.map((e => [e, e])))
+      , $a = Object.fromEntries(ja.map((e => [e, e])))
+      , qa = "en-US"
+      , Ya = new Map([["bn", $a["bn-IN"]], ["cs", $a["cs-CZ"]], ["da", $a["da-DK"]], ["de", $a["de-DE"]], ["el", $a["el-GR"]], ["es", $a["es-ES"]], ["es-419", $a["es-MX"]], ["fi", $a["fi-FI"]], ["fil", $a["fil-PH"]], ["fr", $a["fr-FR"]], ["hi", $a["hi-IN"]], ["hu", $a["hu-HU"]], ["it", $a["it-IT"]], ["ja", $a["ja-JP"]], ["ko", $a["ko-KR"]], ["ms", $a["ms-MY"]], ["nb", $a["nb-NO"]], ["no", $a["nb-NO"]], ["nl", $a["nl-NL"]], ["pl", $a["pl-PL"]], ["pt", $a["pt-PT"]], ["ro", $a["ro-RO"]], ["ru", $a["ru-RU"]], ["sr", $a["sr-RS"]], ["sv", $a["sv-SE"]], ["th", $a["th-TH"]], ["tr", $a["tr-TR"]], ["uk", $a["uk-UA"]], ["vi", $a["vi-VN"]], ["zh", $a["zh-CN"]], ["zh-hans", $a["zh-CN"]], ["zh-hant", $a["zh-TW"]], ["zh-SG", $a["zh-CN"]], ["zh-HK", $a["zh-TW"]], ["zh-MO", $a["zh-TW"]]]);
+    var Qa, Ja, Xa, Za, es;
+    !function(e) {
+        e.ENABLED = "enabled",
+        e.DISABLED = "disabled"
+    }(Qa || (Qa = {})),
+    function(e) {
+        e.SEO = "seo",
+        e.OTHER = "other"
+    }(Ja || (Ja = {})),
+    function(e) {
+        e.GetOriginal = "get-original",
+        e.GetTranslation = "get-translation"
+    }(Xa || (Xa = {})),
+    function(e) {
+        e.Title = "title",
+        e.TitleBody = "title-body"
+    }(Za || (Za = {})),
+    function(e) {
+        e[e.Posts = 0] = "Posts",
+        e[e.Comments = 1] = "Comments",
+        e[e.Communities = 2] = "Communities"
+    }(es || (es = {}));
+    const ts = "translated-post-changed"
+      , is = "translated-comments-changed"
+      , ns = "translated-posts-changed";
+    var os, rs, as;
+    !function(e) {
+        e.Translated = "translated",
+        e.Untranslated = "untranslated",
+        e.None = ""
+    }(os || (os = {})),
+    function(e) {
+        e.PageLoad = "page_load",
+        e.ToggleChange = "toggle_change",
+        e.Pagination = "pagination",
+        e.LoadMore = "load_more"
+    }(rs || (rs = {})),
+    function(e) {
+        e.MtSeoBot = "mt_seo_crawler",
+        e.MtSeoUser = "mt_seo",
+        e.UserNav = "user_navigation"
+    }(as || (as = {}));
+    const ss = "off"
+      , ds = "on";
+    function ls(e, t) {
+        const [i,n] = e.split("?")
+          , o = new URLSearchParams(n);
+        return o.delete(t),
+        o.toString() ? i + "?" + o.toString() : i
+    }
+    function cs(e, t, i) {
+        if (!t || !i)
+            return e;
+        const [n,o] = e.split("?")
+          , r = new URLSearchParams(o);
+        return r.set(t, i),
+        n + "?" + r.toString()
+    }
+    new Map([["hi-latn", $a["hi-IN"]], ["id-ID", Ka["id-ID"]], ["id", Ka["id-ID"]], ["ta-IN", Ka["ta-IN"]], ["ta", Ka["ta-IN"]]]),
+    Object.keys($a).filter((e => e !== qa));
+    function us(e, t, i) {
+        const [n,o] = e ? e.split("?") : ""
+          , r = new URLSearchParams(o);
+        return t ? (r.set("translated", "1"),
+        i && r.set("tl", i)) : (r.delete("translated"),
+        i && r.delete("tl")),
+        r.toString() ? n + "?" + decodeURIComponent(r.toString()) : n
+    }
+    const hs = (e, t, i, n) => {
+        t = t.trim();
+        const o = "" === (i = i.trim())
+          , r = "" === t
+          , a = t !== i
+          , s = r && o
+          , d = t === i && !o;
+        return e ? !1 === n && o && r ? os.Translated : !1 === n ? os.Untranslated : !0 !== n || o ? d ? os.Untranslated : !o && r ? os.Translated : o && !r ? os.Untranslated : a || s ? os.Translated : os.None : os.Translated : os.Untranslated
+    }
+      , ps = {
+        withPosts: new Set([Qt.Community, Qt.Home, Qt.Popular, Qt.All]),
+        withPost: new Set([Qt.PostDetail]),
+        withComments: new Set([Qt.PostDetail])
+    }
+      , ms = e => ({
+        load_type: e.loadType,
+        scenario: e.scenario,
+        translation_setting_state: e.translationSettingState,
+        target_language: e.targetLanguage,
+        post: e.post ? {
+            id: e.post.id,
+            has_body: e.post.hasBody,
+            post_type: e.post.postType,
+            title_state: e.post.titleState,
+            body_state: e.post.bodyState,
+            is_translatable: e.post.isTranslatable,
+            translated_images: e.post.translatedImages,
+            untranslated_images: e.post.untranslatedImages
+        } : void 0,
+        comments: e.comments ? {
+            total_comments_in_page: e.comments.totalCommentsInPage,
+            translated_comments: e.comments.translatedComments,
+            untranslated_comments: e.comments.untranslatedComments,
+            translatable_comments: e.comments.translatableComments,
+            all_comments_translated: e.comments.allCommentsTranslated,
+            all_comments_untranslated: e.comments.allCommentsUntranslated,
+            translatable_ids: e.comments.translatableIds,
+            translated_ids: e.comments.translatedIds,
+            untranslated_ids: e.comments.untranslatedIds
+        } : void 0,
+        posts: e.posts ? {
+            total_posts_in_page: e.posts.totalPostsInPage,
+            posts_with_translated_title: e.posts.postsWithTranslatedTitle,
+            posts_with_untranslated_title: e.posts.postsWithUntranslatedTitle,
+            posts_with_translated_body: e.posts.postsWithTranslatedBody,
+            posts_with_untranslated_body: e.posts.postsWithUntranslatedBody,
+            translatable_posts: e.posts.translatablePosts,
+            all_post_titles_untranslated: e.posts.allPostTitlesUntranslated,
+            all_post_titles_translated: e.posts.allPostTitlesTranslated,
+            all_post_bodies_untranslated: e.posts.allPostBodiesUntranslated,
+            all_post_bodies_translated: e.posts.allPostBodiesTranslated,
+            translatable_ids: e.posts.translatableIds,
+            translated_ids: e.posts.translatedIds,
+            untranslated_ids: e.posts.untranslatedIds,
+            translated_images: e.posts.translatedImages,
+            untranslated_images: e.posts.untranslatedImages
+        } : void 0
+    });
+    class gs {
+        constructor(e, t={}) {
+            this.pageType = void 0,
+            this.settings = {},
+            this.registeredEvents = 0,
+            this.eventsListened = 0,
+            this.translationMetricsEventData = {
+                scenario: "",
+                translationSettingState: ss
+            },
+            this.getSettings = () => this.settings,
+            this.getPageType = () => this.pageType,
+            this.handleMutationObserverChanges = e => {
+                for (const t of e)
+                    "attributes" === t.type && "routename" === t.attributeName && this.updateSettingsHybridNav()
+            }
+            ,
+            this.registerTranslationChangesEvents = e => {
+                this.pageType && (this.initListeners(),
+                this.initListenersCounters(e))
+            }
+            ,
+            this.initListeners = () => {
+                this.host.addEventListener(ts, this.onTranslatedPostChanged),
+                this.host.addEventListener(is, this.onTranslatedCommentsChanged),
+                this.host.addEventListener(ns, this.onTranslatedPostsChanged)
+            }
+            ,
+            this.initListenersCounters = e => {
+                e.withPost && this.registeredEvents++,
+                e.withComments && this.registeredEvents++,
+                e.withPosts && this.registeredEvents++
+            }
+            ,
+            this.unregisterTranslationChangesEvents = () => {
+                this.host.removeEventListener(ts, this.onTranslatedPostChanged),
+                this.host.removeEventListener(is, this.onTranslatedCommentsChanged),
+                this.host.removeEventListener(ns, this.onTranslatedPostsChanged)
+            }
+            ,
+            this.handleTranslationEvent = (e, t) => {
+                const i = t.detail?.[e];
+                i && (this.translationMetricsEventData.scenario = t.detail?.scenario ?? "",
+                this.translationMetricsEventData.targetLanguage = t.detail?.targetLanguage ?? this.translationMetricsEventData.targetLanguage,
+                this.translationMetricsEventData[e] = i,
+                this.eventsListened++,
+                this.submitPartialTranslationMetrics())
+            }
+            ,
+            this.onTranslatedPostChanged = e => {
+                this.handleTranslationEvent("post", e)
+            }
+            ,
+            this.onTranslatedCommentsChanged = e => {
+                this.handleTranslationEvent("comments", e)
+            }
+            ,
+            this.onTranslatedPostsChanged = e => {
+                this.handleTranslationEvent("posts", e)
+            }
+            ,
+            this.submitPartialTranslationMetrics = () => {
+                if (!this.pageType)
+                    return;
+                if (this.eventsListened < this.registeredEvents)
+                    return;
+                const e = this.host.translationContextValue?.isTranslationActive
+                  , t = this.translationMetricsEventData.scenario === rs.ToggleChange;
+                (e || !e && t) && mt(this.host, ( (e, t, i) => {
+                    const n = si({
+                        source: "machine_translations",
+                        action: "request",
+                        noun: "content"
+                    });
+                    return e.translationSettingState = t ? ds : ss,
+                    e.loadType = as.UserNav,
+                    {
+                        ...n,
+                        action_info: {
+                            ...n.action_info,
+                            page_type: i,
+                            reason: t ? ds : ss
+                        },
+                        translation_metrics: ms(e)
+                    }
+                }
+                )(this.translationMetricsEventData, this.host.translationContextValue?.isTranslationActive || !1, this.pageType)),
+                this.resetTranslationMetricsData()
+            }
+            ,
+            this.resetTranslationMetricsData = () => {
+                this.eventsListened = 0,
+                this.translationMetricsEventData = {
+                    scenario: "",
+                    translationSettingState: ss
+                }
+            }
+            ,
+            this.updateSettingsPageload = () => {
+                var e;
+                this.pageType = this.host.pageType,
+                this.settings = {
+                    ...this.settings,
+                    ...(e = this.pageType,
+                    e ? {
+                        withPosts: ps.withPosts.has(e),
+                        withPost: ps.withPost.has(e),
+                        withComments: ps.withComments.has(e)
+                    } : {
+                        withPosts: !1,
+                        withPost: !1,
+                        withComments: !1
+                    })
+                },
+                this.resetTranslationMetricsData(),
+                this.registerTranslationChangesEvents(this.settings)
+            }
+            ,
+            this.updateSettingsHybridNav = () => {
+                this.registeredEvents = 0,
+                this.updateSettingsPageload()
+            }
+            ,
+            this.host = e,
+            this.host.addController(this),
+            this.settings = t,
+            this.pageType = this.host.pageType
+        }
+        hostConnected() {
+            this.initListeners(),
+            this.updateSettingsPageload(),
+            this.connectObservers()
+        }
+        hostDisconnected() {
+            this.unregisterTranslationChangesEvents(),
+            this.disconnectObservers()
+        }
+        connectObservers() {
+            this._mutationObserver || (this._mutationObserver = new MutationObserver(this.handleMutationObserverChanges)),
+            this._mutationObserver.observe(this.host, {
+                attributes: !0,
+                attributeFilter: ["routename"]
+            })
+        }
+        disconnectObservers() {
+            this._mutationObserver?.disconnect?.()
+        }
+    }
+    function _s(e, t) {
+        return t in e
+    }
+    const fs = Symbol("mixins/with-patched-fetch");
+    function Es() {
+        return !!document.querySelector(".theme-dark") || !document.querySelector(".theme-light") && matchMedia("(prefers-color-scheme: dark)").matches
+    }
+    var vs;
+    !function(e) {
+        e.TIME_TO_FIRST_BYTE = "time-to-first-byte",
+        e.FIRST_CONTENTFUL_PAINT = "first-contentful-paint",
+        e.LARGEST_CONTENTFUL_PAINT = "largest-contentful-paint",
+        e.CUMULATIVE_LAYOUT_SHIFT = "cumulative-layout-shift",
+        e.INTERACTION_TO_NEXT_PAINT = "interaction-to-next-paint",
+        e.FIRST_POST_MEANINGFUL_PAINT = "first-post-meaningful-paint",
+        e.FIRST_COMMENT_MEANINGFUL_PAINT = "first-comment-meaningful-paint",
+        e.TOTAL_PAGE_LOAD = "total-page-load"
+    }(vs || (vs = {}));
+    const Ss = [vs.FIRST_POST_MEANINGFUL_PAINT, vs.FIRST_COMMENT_MEANINGFUL_PAINT]
+      , bs = "screen-reader-only-alert";
+    var Ts;
+    !function(e) {
+        e.polite = "polite",
+        e.assertive = "assertive"
+    }(Ts || (Ts = {}));
+    const ys = (e, t) => {
+        e.dispatchEvent(new CustomEvent(bs,{
+            detail: {
+                ...t
+            },
+            bubbles: !0
+        }))
+    }
+      , Is = "screen-reader-alert-outlet";
+    class Cs extends we {
+        constructor(e) {
+            super(e),
+            this.alertOutletElement = null,
+            this.events = new g(this,( () => window)),
+            this._handleEvent = async e => {
+                e.stopPropagation();
+                const t = this._getAlertOutletElement();
+                if (!t)
+                    throw Error("No screen-reader-alert-outlet element found.");
+                await window.customElements.whenDefined(Is),
+                t.announce(e.detail)
+            }
+            ,
+            e.addController(this),
+            this.events.define(bs, this._handleEvent)
+        }
+        _getAlertOutletElement() {
+            return this.alertOutletElement || (this.alertOutletElement = document.querySelector(Is)),
+            this.alertOutletElement
+        }
+    }
+    var As;
+    async function Rs(e=window) {
+        const t = new URLSearchParams(e.location.search).get("app_installed");
+        if (Object.values(As).includes(t))
+            return t;
+        if (void 0 === e.navigator || "function" != typeof e.navigator.getInstalledRelatedApps || e !== e.top)
+            return As.Unsupported;
+        return void 0 !== (await e.navigator.getInstalledRelatedApps()).find((e => "com.reddit.frontpage" === e.id)) ? As.Installed : As.NotInstalled
+    }
+    !function(e) {
+        e.Installed = "installed",
+        e.NotInstalled = "not_installed",
+        e.Unsupported = "unsupported"
+    }(As || (As = {}));
+    function Ps() {
+        const e = document.querySelector("shreddit-app")?.pageType;
+        return e || void 0
+    }
+    const Ns = {
+        _rplIsReducedMotion: !1,
+        get mediaQuery() {
+            return window.matchMedia("(prefers-reduced-motion: reduce)").matches
+        },
+        get rplIsReducedMotion() {
+            return "function" == typeof this._rplIsReducedMotion ? this._rplIsReducedMotion() : this._rplIsReducedMotion
+        },
+        get isReducedMotion() {
+            return this.rplIsReducedMotion || this.mediaQuery
+        }
+    }
+      , Os = {
+        keyframes: [],
+        options: {
+            duration: 0
+        }
+    }
+      , ws = new Map
+      , Ds = new WeakMap;
+    function Ms(e) {
+        return e ?? Os
+    }
+    function ks(e, t) {
+        ws.set(e, Ms(t))
+    }
+    function Ls(e, t) {
+        const i = Ds.get(e);
+        if (i?.[t])
+            return e?.noAnimate ? Bs(i[t]) : i[t];
+        const n = ws.get(t);
+        return n ? e?.noAnimate ? Bs(n) : n : Os
+    }
+    function Us(e, t, i) {
+        return new Promise((n => {
+            if (i?.duration === 1 / 0)
+                throw new Error("Promise-based animations must be finite.");
+            const o = function(e, t) {
+                return Ns.isReducedMotion ? Bs({
+                    keyframes: e,
+                    options: t
+                }) : {
+                    keyframes: e,
+                    options: t
+                }
+            }(t, i)
+              , r = e.animate(o.keyframes, o.options);
+            r.addEventListener("cancel", n, {
+                once: !0
+            }),
+            r.addEventListener("finish", n, {
+                once: !0
+            })
+        }
+        ))
+    }
+    function Fs(e) {
+        return Promise.all(e.getAnimations().map((e => new Promise((t => {
+            const i = () => requestAnimationFrame(t);
+            e.addEventListener("cancel", i, {
+                once: !0
+            }),
+            e.addEventListener("finish", i, {
+                once: !0
+            }),
+            e.cancel()
+        }
+        )))))
+    }
+    const Bs = ({keyframes: e, options: t}) => ({
+        keyframes: e,
+        options: {
+            ...t,
+            duration: 0
+        }
+    })
+      , Vs = (e, t) => {
+        var i, n;
+        const o = e._$AN;
+        if (void 0 === o)
+            return !1;
+        for (const e of o)
+            null === (n = (i = e)._$AO) || void 0 === n || n.call(i, t, !1),
+            Vs(e, t);
+        return !0
+    }
+      , xs = e => {
+        let t, i;
+        do {
+            if (void 0 === (t = e._$AM))
+                break;
+            i = t._$AN,
+            i.delete(e),
+            e = t
+        } while (0 === (null == i ? void 0 : i.size))
+    }
+      , Gs = e => {
+        for (let t; t = e._$AM; e = t) {
+            let i = t._$AN;
+            if (void 0 === i)
+                t._$AN = i = new Set;
+            else if (i.has(e))
+                break;
+            i.add(e),
+            zs(t)
+        }
+    }
+    ;
+    function Hs(e) {
+        void 0 !== this._$AN ? (xs(this),
+        this._$AM = e,
+        Gs(this)) : this._$AM = e
+    }
+    function Ws(e, t=!1, i=0) {
+        const n = this._$AH
+          , o = this._$AN;
+        if (void 0 !== o && 0 !== o.size)
+            if (t)
+                if (Array.isArray(n))
+                    for (let e = i; e < n.length; e++)
+                        Vs(n[e], !1),
+                        xs(n[e]);
+                else
+                    null != n && (Vs(n, !1),
+                    xs(n));
+            else
+                Vs(this, e)
+    }
+    const zs = t => {
+        var i, n, o, r;
+        t.type == e.t.CHILD && (null !== (i = (o = t)._$AP) && void 0 !== i || (o._$AP = Ws),
+        null !== (n = (r = t)._$AQ) && void 0 !== n || (r._$AQ = Hs))
+    }
+    ;
+    let js = class extends e.a {
+        constructor() {
+            super(...arguments),
+            this._$AN = void 0
+        }
+        _$AT(e, t, i) {
+            super._$AT(e, t, i),
+            Gs(this),
+            this.isConnected = e._$AU
+        }
+        _$AO(e, t=!0) {
+            var i, n;
+            e !== this.isConnected && (this.isConnected = e,
+            e ? null === (i = this.reconnected) || void 0 === i || i.call(this) : null === (n = this.disconnected) || void 0 === n || n.call(this)),
+            t && (Vs(this, e),
+            xs(this))
+        }
+        setValue(t) {
+            if (e.b(this._$Ct))
+                this._$Ct._$AI(t, this);
+            else {
+                const e = [...this._$Ct._$AH];
+                e[this._$Ci] = t,
+                this._$Ct._$AI(e, this, 0)
+            }
+        }
+        disconnected() {}
+        reconnected() {}
+    }
+    ;
+    const Ks = () => new $s;
+    let $s = class {
+    }
+    ;
+    const qs = new WeakMap
+      , Ys = e.e(class extends js {
+        render(t) {
+            return e.A
+        }
+        update(t, [i]) {
+            var n;
+            const o = i !== this.G;
+            return o && void 0 !== this.G && this.ot(void 0),
+            (o || this.rt !== this.lt) && (this.G = i,
+            this.ct = null === (n = t.options) || void 0 === n ? void 0 : n.host,
+            this.ot(this.lt = t.element)),
+            e.A
+        }
+        ot(e) {
+            var t;
+            if ("function" == typeof this.G) {
+                const i = null !== (t = this.ct) && void 0 !== t ? t : globalThis;
+                let n = qs.get(i);
+                void 0 === n && (n = new WeakMap,
+                qs.set(i, n)),
+                void 0 !== n.get(this.G) && this.G.call(this.ct, void 0),
+                n.set(this.G, e),
+                void 0 !== e && this.G.call(this.ct, e)
+            } else
+                this.G.value = e
+        }
+        get rt() {
+            var e, t, i;
+            return "function" == typeof this.G ? null === (t = qs.get(null !== (e = this.ct) && void 0 !== e ? e : globalThis)) || void 0 === t ? void 0 : t.get(this.G) : null === (i = this.G) || void 0 === i ? void 0 : i.value
+        }
+        disconnected() {
+            this.rt === this.lt && this.ot(void 0)
+        }
+        reconnected() {
+            this.ot(this.lt)
+        }
+    }
+    )
+      , Qs = () => {
+        let e = document.activeElement;
+        for (; e?.shadowRoot?.activeElement; )
+            e = e.shadowRoot.activeElement;
+        return e
+    }
+    ;
+    function Js(e, t) {
+        return new Promise((i => {
+            e.addEventListener(t, (function n(o) {
+                o.target === e && (e.removeEventListener(t, n),
+                i())
+            }
+            ))
+        }
+        ))
+    }
+    function Xs(e, t, i={
+        maximumMatches: 1 / 0
+    }) {
+        const n = [];
+        return function o(r) {
+            if (!(n.length >= i.maximumMatches)) {
+                if (r instanceof Element) {
+                    if (i.skipTree?.(r))
+                        return;
+                    !n.includes(r) && e(r) && n.push(r);
+                    r instanceof HTMLSlotElement && (e => e.getRootNode({
+                        composed: !0
+                    })?.host !== t)(r) && r.assignedElements({
+                        flatten: !0
+                    }).forEach(o),
+                    null !== r.shadowRoot && "open" === r.shadowRoot.mode && o(r.shadowRoot)
+                }
+                Array.from(r.children).forEach(o)
+            }
+        }(t),
+        n
+    }
+    const Zs = new Set(["button", "input", "select", "textarea", "audio", "video", "summary"]);
+    function ed(e) {
+        const t = e.tagName.toLowerCase();
+        return !e.hasAttribute("inert") && ("-1" !== e.getAttribute("tabindex") && (!e.hasAttribute("disabled") && (!("input" === t && "radio" === e.getAttribute("type") && !e.hasAttribute("checked")) && (i = e,
+        !!Boolean(i.offsetParent || i.offsetWidth || i.offsetHeight || i.getClientRects().length) && ("hidden" !== window.getComputedStyle(e).visibility && (!("audio" !== t && "video" !== t || !e.hasAttribute("controls")) || (!!e.hasAttribute("tabindex") || (!(!e.hasAttribute("contenteditable") || "false" === e.getAttribute("contenteditable")) || (!("a" !== t || !e.hasAttribute("href")) || Zs.has(t))))))))));
+        var i
+    }
+    function td(e, t) {
+        return Xs(ed, e, {
+            skipTree: t,
+            maximumMatches: 1 / 0
+        })
+    }
+    let id = [];
+    const nd = new Set(["rpl-menu"]);
+    class od {
+        constructor(e) {
+            this.currentFocus = null,
+            this.tabDirection = "forward",
+            this.disableFocusTrap = !1,
+            this.checkFocusRaf = null,
+            this.elementsToIgnoreFocusEventsWithin = new WeakSet,
+            this.handleFocusIn = e => {
+                if (this.isActive()) {
+                    for (const t of e.composedPath())
+                        if (t instanceof HTMLElement && this.elementsToIgnoreFocusEventsWithin.has(t))
+                            return;
+                    this.checkFocus()
+                }
+            }
+            ,
+            this.handleKeyDown = e => {
+                if ("Tab" !== e.key || this.disableFocusTrap || !this.isActive())
+                    return;
+                e.shiftKey ? this.tabDirection = "backward" : this.tabDirection = "forward",
+                e.preventDefault();
+                const t = Qs()
+                  , i = this.getTabbable();
+                let n = i.findIndex((e => e === t));
+                if (-1 === n)
+                    return this.currentFocus = i[0],
+                    void this.currentFocus?.focus({
+                        preventScroll: !0
+                    });
+                const o = "forward" === this.tabDirection ? 1 : -1;
+                n + o >= i.length ? n = 0 : n + o < 0 ? n = i.length - 1 : n += o,
+                this.currentFocus = i[n],
+                this.currentFocus?.focus({
+                    preventScroll: !0
+                }),
+                setTimeout(( () => this.checkFocus()))
+            }
+            ,
+            this.handleKeyUp = () => {
+                this.tabDirection = "forward"
+            }
+            ,
+            this.element = e
+        }
+        getTabbable() {
+            return td(this.element, (e => {
+                const t = e.tagName.toLowerCase();
+                return !!nd.has(t) && (this.elementsToIgnoreFocusEventsWithin.add(e),
+                !0)
+            }
+            ))
+        }
+        activate() {
+            id.push(this.element),
+            document.addEventListener("focusin", this.handleFocusIn),
+            document.addEventListener("keydown", this.handleKeyDown),
+            document.addEventListener("keyup", this.handleKeyUp)
+        }
+        deactivate() {
+            id = id.filter((e => e !== this.element)),
+            this.currentFocus = null,
+            document.removeEventListener("focusin", this.handleFocusIn),
+            document.removeEventListener("keydown", this.handleKeyDown),
+            document.removeEventListener("keyup", this.handleKeyUp)
+        }
+        isActive() {
+            return id[id.length - 1] === this.element
+        }
+        disableFocusTrapping() {
+            this.disableFocusTrap = !0
+        }
+        enableFocusTrapping() {
+            this.disableFocusTrap = !1
+        }
+        checkFocus() {
+            this.isActive() && !this.disableFocusTrap && (this.checkFocusRaf && cancelAnimationFrame(this.checkFocusRaf),
+            this.checkFocusRaf = requestAnimationFrame(( () => {
+                const e = this.getTabbable();
+                if (!this.element.matches(":focus-within")) {
+                    const t = e[0]
+                      , i = e[e.length - 1]
+                      , n = "forward" === this.tabDirection ? t : i;
+                    "function" == typeof n?.focus && (this.currentFocus = n,
+                    this.currentFocus?.focus())
+                }
+            }
+            )))
+        }
+    }
+    const rd = Symbol("mixins/with-event-dispatcher");
+    class ad {
+        constructor(e) {
+            this.host = e
+        }
+        get namespace() {
+            return null !== this.host.eventNamespaceOverride ? this.host.eventNamespaceOverride : this.host.tagName.toLowerCase()
+        }
+        eventId(e) {
+            return "" === e && (e = "generic"),
+            this.namespace + ":" + e
+        }
+        dispatch(e, {bubbles: t=!0, cancelable: i=!0, composed: n=!0, ...o}={
+            bubbles: !0,
+            cancelable: !0,
+            composed: !0
+        }) {
+            return this.host.dispatchEvent(new CustomEvent(this.eventId(e),{
+                bubbles: t,
+                cancelable: i,
+                composed: n,
+                ...o
+            }))
+        }
+    }
+    class sd extends (function(e) {
+        if (Va(e, rd))
+            return e;
+        class t extends e {
+            constructor() {
+                super(...arguments),
+                this.eventNamespaceOverride = null,
+                this.emitter = new ad(this)
+            }
+        }
+        return t[rd] = !0,
+        t
+    }(e.s)) {
+        constructor() {
+            super(...arguments),
+            this.logDebugMessage = (...e) => {}
+        }
+        get isRTL() {
+            return this.matches(":dir(rtl)")
+        }
+    }
+    const dd = e => {
+        const t = document.createElement("style");
+        return t.textContent = e.cssText,
+        document.head.appendChild(t),
+        {
+            remove: () => {
+                document.head.removeChild(t)
+            }
+            ,
+            update: e => {
+                t.textContent = e.cssText
+            }
+        }
+    }
+      , ld = e.i`:host{box-sizing:border-box}:host *,:host ::after,:host ::before{box-sizing:inherit}[hidden]{display:none!important}.sr-only{position:absolute;width:1px;height:1px;padding:0;margin:-1px;overflow:hidden;clip:rect(0,0,0,0);white-space:nowrap;border-width:0}`
+      , cd = e.i`.styled-scrollbar{--_scrollbar-color:var(--scrollbar-color, var(--color-neutral-border));--_scrollbar-background:var(--scrollbar-background, var(--color-neutral-background));scrollbar-color:transparent transparent;scrollbar-width:thin}.styled-scrollbar::-webkit-scrollbar{width:16px;height:16px}.styled-scrollbar::-webkit-scrollbar-track{background:var(--_scrollbar-background)}.styled-scrollbar:hover{scrollbar-color:var(--_scrollbar-color) transparent}.styled-scrollbar:hover::-webkit-scrollbar-thumb{background:var(--_scrollbar-color);border:6px solid var(--_scrollbar-background);border-radius:8px}`;
+    dd(e.i`.rpl-scroll-lock{overflow:hidden!important}`);
+    const ud = new Set;
+    function hd(e) {
+        ud.add(e),
+        document.body.classList.contains("rpl-scroll-lock") || document.body.classList.add("rpl-scroll-lock")
+    }
+    function pd(e) {
+        ud.delete(e),
+        0 === ud.size && document.body.classList.remove("rpl-scroll-lock")
+    }
+    function md(e) {
+        return e.scrollHeight !== e.clientHeight
+    }
+    const gd = {
+        Show: "show",
+        Hide: "hide"
+    }
+      , _d = Symbol("mixins/with-portal")
+      , fd = {
+        _root: document.body,
+        set portalRoot(e) {
+            this._root = e
+        },
+        get portalRoot() {
+            return Ed(this._root)
+        }
+    }
+      , Ed = e => "function" == typeof e ? e() : e;
+    function vd(t) {
+        if (Va(t, _d))
+            return t;
+        class i extends t {
+            get portalRoot() {
+                return Ed(this._portalRoot ?? fd.portalRoot)
+            }
+            set portalRoot(e) {
+                this._portalRoot = e
+            }
+            connectedCallback() {
+                super.connectedCallback(),
+                this.style.display = "none"
+            }
+            attachPortal() {
+                this.portalRoot.appendChild(this.portalContainer)
+            }
+            removePortal() {
+                this.portalContainer.parentElement && this.portalContainer.parentElement.removeChild(this.portalContainer)
+            }
+            createRenderRoot() {
+                return this.portalContainer = document.createElement("div"),
+                this.portalShadowRoot = this.portalContainer.attachShadow(this.constructor.shadowRootOptions),
+                e.S(this.portalShadowRoot, this.constructor.elementStyles),
+                this.portalShadowRoot
+            }
+        }
+        return i[_d] = !0,
+        i
+    }
+    const Sd = Symbol("mixins/with-dialog-child")
+      , bd = Symbol("dialog-child");
+    function Td(e) {
+        var i;
+        if (Va(e, Sd))
+            return e;
+        class n extends e {
+            constructor() {
+                super(...arguments),
+                this[i] = !0,
+                this.dockable = !1,
+                this.docked = !1,
+                this.appearance = void 0
+            }
+            async connectedCallback() {
+                super.connectedCallback(),
+                this.hasUpdated || (await this.updateComplete),
+                this.dispatchEvent(new CustomEvent("rpl-dialog-child-connected",{
+                    bubbles: !0,
+                    composed: !0
+                }))
+            }
+            disconnectedCallback() {
+                this.dispatchEvent(new CustomEvent("rpl-dialog-child-disconnected",{
+                    bubbles: !0,
+                    composed: !0
+                }))
+            }
+        }
+        return i = bd,
+        n[Sd] = !0,
+        t([l()], n.prototype, "dockable", void 0),
+        t([l()], n.prototype, "docked", void 0),
+        t([d({
+            type: String,
+            reflect: !0,
+            attribute: "appearance"
+        })], n.prototype, "appearance", void 0),
+        n
+    }
+    const yd = e => !!e && (bd in e && e instanceof HTMLElement)
+      , Id = Symbol("mixins/with-template-child");
+    function Cd(e) {
+        if (Va(e, Id))
+            return e;
+        class t extends e {
+            constructor() {
+                super(...arguments),
+                this.contentAppended = !1
+            }
+            appendTemplateContentTo(e, t={
+                cache: !0
+            }) {
+                if (t.cache && this.contentAppended)
+                    return;
+                let i = this.firstElementChild;
+                for (; "slot" === i?.tagName.toLowerCase(); ) {
+                    const e = i.assignedElements()[0];
+                    if (!e)
+                        break;
+                    i = e
+                }
+                if ("template" !== i?.tagName.toLowerCase())
+                    return;
+                const n = i.content.cloneNode(!0);
+                e.innerHTML = "",
+                e.appendChild(n),
+                this.contentAppended = !0
+            }
+        }
+        return t[Id] = !0,
+        t
+    }
+    const Ad = {
+        Space: "Space",
+        Enter: "Enter"
+    }
+      , Rd = {
+        Escape: "Escape",
+        Space: Ad.Space,
+        Enter: Ad.Enter
+    }
+      , Pd = Symbol.for("rpl-menu")
+      , Nd = e => Pd in e;
+    let Od = {
+        scrollToStart: "Scroll to start",
+        scrollToEnd: "Scroll to end",
+        closeDialog: "Close Dialog"
+    };
+    const wd = {
+        term: e => Od[e],
+        updateTerms: e => {
+            Od = {
+                ...Od,
+                ...e
+            }
+        }
+    };
+    class Dd extends (function(e) {
+        if (Va(e, xa))
+            return e;
+        class i extends e {
+            constructor() {
+                super(...arguments),
+                this.cleanupSideEffectsBeforeNavigationHasRun = !1,
+                this.dataPersistent = !1
+            }
+            connectedCallback() {
+                super.connectedCallback(),
+                this.dataPersistent || (Ga.add(this),
+                this.cleanupSideEffectsBeforeNavigationHasRun = !1)
+            }
+            disconnectedCallback() {
+                this.cleanupSideEffectsBeforeNavigationHasRun || this.cleanupSideEffectsBeforeNavigation(),
+                super.disconnectedCallback()
+            }
+            cleanupSideEffectsBeforeNavigation() {
+                Ga.delete(this),
+                this.cleanupSideEffectsBeforeNavigationHasRun = !0
+            }
+        }
+        return i[xa] = !0,
+        t([d({
+            type: Boolean,
+            reflect: !0,
+            attribute: "data-persistent"
+        })], i.prototype, "dataPersistent", void 0),
+        i
+    }(Cd(vd(sd)))) {
+        constructor() {
+            super(...arguments),
+            this.styledDialogChildren = new Set,
+            this.originalTrigger = null,
+            this.triggerElement = null,
+            this.shouldOpenOnReconnect = !1,
+            this.dialogRef = Ks(),
+            this.panelRef = Ks(),
+            this.overlayRef = Ks(),
+            this.open = !1,
+            this.overlayBlur = !1,
+            this.dialogId = "",
+            this.dialogClassName = "",
+            this.label = "",
+            this.blocking = !1,
+            this.noAnimate = !1,
+            this.disableCacheContents = !1,
+            this.screenreaderCloseButton = !1,
+            this.eagerAttachTemplateContent = !1,
+            this.persistOnReconnect = !1,
+            this.hiddenInitialLoad = !1,
+            this.handleCloseButtonClicked = e => {
+                e?.stopPropagation(),
+                this.requestClose("close-button")
+            }
+            ,
+            this.handleMenuClose = e => {
+                this.requestClose("menu-closed")
+            }
+            ,
+            this.handleTriggerElementEvent = e => {
+                const t = e.detail;
+                if (t.dialogId === this.dialogId)
+                    return t.action === gd.Hide ? this.hide() : this.handleTriggerShowAction(t)
+            }
+            ,
+            this.handleDocumentKeyDown = e => {
+                "Escape" === e.key && this.modal.isActive() && this.open && (e.stopPropagation(),
+                this.requestClose("keyboard"))
+            }
+        }
+        connectedCallback() {
+            if (super.connectedCallback(),
+            this.portalContainer.id = this.dialogId,
+            this.portalContainer.classList.add(this.tagName.toLowerCase()),
+            this.dialogClassName && this.portalContainer.classList.add(this.dialogClassName),
+            this.modal = new od(this.portalContainer),
+            this.eagerAttachTemplateContent) {
+                if (this.persistOnReconnect)
+                    throw new Error("[RPLDialog]: Cannot set both `eager-attach-template-content` and `persist-on-reconnect`.");
+                this.appendTemplateContentTo(this.portalContainer, {
+                    cache: !this.disableCacheContents
+                }),
+                this.panelAriaHidden = !0,
+                this.attachPortal()
+            }
+            document.addEventListener("rpl-dialog-trigger:trigger-clicked", this.handleTriggerElementEvent),
+            this.shouldOpenOnReconnect && (this.open = !0,
+            this.syncOpenOnRender(this.shouldOpenOnReconnect.modaled),
+            this.shouldOpenOnReconnect = !1)
+        }
+        willUpdate(e) {
+            e.has("open") && this.hasUpdated && this.handleOpenChange(),
+            e.has("litTemplateChildren") && this.handleLitTemplateChildrenChange(),
+            super.willUpdate(e);
+            const t = Array.from(e.entries()).map(( ([e,t]) => ({
+                key: e,
+                changed: t !== this[e],
+                newValue: this[e]
+            })));
+            this.emitter.dispatch("internal-sync", {
+                detail: t
+            })
+        }
+        async firstUpdated() {
+            this.syncOpenOnRender()
+        }
+        syncOpenOnRender(e=!0) {
+            this.dialogRef.value && (this.dialogRef.value.hidden = !this.open),
+            this.panelAriaHidden = !this.open,
+            this.open && (this.attachPortal(),
+            this.litTemplateChildren || this.appendTemplateContentTo(this.portalContainer, {
+                cache: !this.disableCacheContents
+            }),
+            this.addOpenListeners(),
+            this.modal.activate(),
+            e || this.modal.disableFocusTrapping(),
+            this.handleOpenFocus(),
+            e && !this.modal.disableFocusTrap && hd(this))
+        }
+        cleanupSideEffectsBeforeNavigation() {
+            super.cleanupSideEffectsBeforeNavigation(),
+            this.open && this.persistOnReconnect ? this.shouldOpenOnReconnect = {
+                modaled: !this.modal.disableFocusTrap
+            } : this.shouldOpenOnReconnect = !1,
+            this.modal.deactivate(),
+            this.panelAriaHidden = !0,
+            this.removePortal(),
+            this.removeAttribute("open"),
+            pd(this),
+            document.removeEventListener("rpl-dialog-trigger:trigger-clicked", this.handleTriggerElementEvent)
+        }
+        async requestClose(e) {
+            if (this.blocking)
+                return;
+            if (this.emitter.dispatch("request-close", {
+                cancelable: !0,
+                detail: {
+                    source: e
+                }
+            }) || !this.panelRef.value)
+                return this.hide();
+            {
+                const e = Ls(this, this.animationNames.denyClose);
+                Us(this.panelRef.value, e.keyframes, e.options)
+            }
+        }
+        addOpenListeners() {
+            document.addEventListener("keydown", this.handleDocumentKeyDown),
+            this.portalContainer.addEventListener("rpl-modal-card:close-button-clicked", this.handleCloseButtonClicked),
+            this.portalContainer.addEventListener("rpl:menu-close", this.handleMenuClose)
+        }
+        removeOpenListeners() {
+            document.removeEventListener("keydown", this.handleDocumentKeyDown),
+            this.portalContainer.removeEventListener("rpl-modal-card:close-button-clicked", this.handleCloseButtonClicked),
+            this.portalContainer.removeEventListener("rpl:menu-close", this.handleMenuClose)
+        }
+        handleTriggerShowAction(e) {
+            if (!this.open && !this.triggerElement)
+                return this.triggerElement = e.triggerElement,
+                e.noModal ? this.show() : this.showModal()
+        }
+        handleSlotChange(e) {}
+        handleDialogChildConnected(e) {}
+        handleDialogChildDisconnected(e) {}
+        internalHandleDialogChildConnected(e) {
+            const t = e.composedPath()[0];
+            yd(t) && !this.styledDialogChildren.has(t) && (this.styledDialogChildren.add(t),
+            this.handleDialogChildConnected(t))
+        }
+        internalHandleDialogChildDisconnected(e) {
+            const t = e.composedPath()[0];
+            yd(t) && this.styledDialogChildren.has(t) && (this.styledDialogChildren.delete(t),
+            this.handleDialogChildDisconnected(t))
+        }
+        async handleLitTemplateChildrenChange() {
+            await this.updateComplete,
+            e.B(this.litTemplateChildren, this.portalContainer)
+        }
+        async handleOpenFocus(e) {
+            this.originalTrigger = Qs();
+            const t = this.portalContainer.querySelector("[autofocus]");
+            t && t.removeAttribute("autofocus"),
+            e && (await e),
+            requestAnimationFrame(( () => {
+                if (!!this.emitter.dispatch("initial-focus", {
+                    cancelable: !0
+                }))
+                    if (t)
+                        t.focus({
+                            preventScroll: !0
+                        });
+                    else {
+                        const e = Xs(Nd, this.portalContainer, {
+                            maximumMatches: 1
+                        })
+                          , t = e?.[0];
+                        t ? t.focusOnOpen() : this.modal.checkFocus()
+                    }
+                t && t.setAttribute("autofocus", "")
+            }
+            ))
+        }
+        async handleOpenChange() {
+            if (this.hiddenInitialLoad = !1,
+            this.open) {
+                if (this.eagerAttachTemplateContent && this.removePortal(),
+                this.attachPortal(),
+                this.appendTemplateContentTo(this.portalContainer, {
+                    cache: !this.disableCacheContents
+                }),
+                this.emitter.dispatch("show"),
+                this.addOpenListeners(),
+                this.panelAriaHidden = !1,
+                this.modal.activate(),
+                this.triggerElement && this.triggerElement.addOpenAttributes(),
+                this.modal.disableFocusTrap || hd(this),
+                !this.dialogRef.value || !this.overlayRef.value || !this.panelRef.value)
+                    return this.emitter.dispatch("after-show");
+                await this.handleOpenFocus(Promise.all([Fs(this.dialogRef.value), Fs(this.overlayRef.value)])),
+                this.dialogRef.value.hidden = !1;
+                const e = Ls(this, this.animationNames.show)
+                  , t = Ls(this, this.animationNames.overlayShow);
+                return await Promise.all([Us(this.panelRef.value, e.keyframes, e.options), Us(this.overlayRef.value, t.keyframes, t.options)]),
+                this.emitter.dispatch("after-show")
+            }
+            {
+                if (this.emitter.dispatch("hide"),
+                this.removeOpenListeners(),
+                this.modal.deactivate(),
+                this.dialogRef.value && this.overlayRef.value && this.panelRef.value) {
+                    await Promise.all([Fs(this.dialogRef.value), Fs(this.overlayRef.value)]);
+                    const e = Ls(this, this.animationNames.hide)
+                      , t = Ls(this, this.animationNames.overlayHide);
+                    if (!this.overlayRef.value)
+                        return;
+                    await Promise.all([Us(this.overlayRef.value, t.keyframes, t.options).then(( () => {
+                        this.overlayRef.value && (this.overlayRef.value.hidden = !0)
+                    }
+                    )), Us(this.panelRef.value, e.keyframes, e.options).then(( () => {
+                        this.panelRef.value && (this.panelRef.value.hidden = !0)
+                    }
+                    ))])
+                }
+                !this.open && (this.dialogRef.value && (this.dialogRef.value.hidden = !0),
+                pd(this),
+                this.removePortal()),
+                this.overlayRef.value && (this.overlayRef.value.hidden = !1),
+                this.panelRef.value && (this.panelRef.value.hidden = !1),
+                this.triggerElement && (this.triggerElement.removeOpenAttributes(),
+                this.triggerElement = null);
+                const e = this.originalTrigger;
+                return "function" == typeof e?.focus ? new Promise((t => setTimeout(( () => {
+                    e.focus({
+                        preventScroll: !0
+                    }),
+                    this.panelAriaHidden = !0,
+                    t(this.emitter.dispatch("after-hide"))
+                }
+                )))) : (this.panelAriaHidden = !0,
+                this.emitter.dispatch("after-hide"))
+            }
+        }
+        set panelAriaHidden(e) {
+            this.panelRef.value && (this.panelRef.value.ariaHidden = String(e))
+        }
+        async showModal() {
+            if (!this.open)
+                return this.modal.enableFocusTrapping(),
+                this.open = !0,
+                Js(this, this.emitter.eventId("after-show"))
+        }
+        checkFocus() {
+            this.modal.checkFocus()
+        }
+        async show() {
+            if (!this.open)
+                return this.modal.disableFocusTrapping(),
+                this.open = !0,
+                Js(this, this.emitter.eventId("after-show"))
+        }
+        async hide() {
+            if (this.open)
+                return this.open = !1,
+                Js(this, this.emitter.eventId("after-hide"))
+        }
+        renderTopOfDialog() {
+            return e.A
+        }
+        renderScreenreaderCloseButton() {
+            return this.screenreaderCloseButton ? e.x`<button tabindex="-1" @click="${this.handleCloseButtonClicked}" class="sr-only"> ${wd.term("closeDialog")} </button>` : e.x``
+        }
+        render() {
+            return e.x` <div part="base" class="${te({
+                dialog: !0,
+                "dialog-open": this.open,
+                "dialog-hidden-initial-load": !!this.hiddenInitialLoad,
+                ...this.renderDialogBaseClasses()
+            })}" ${Ys(this.dialogRef)}> <div part="overlay" class="${te({
+                "dialog-overlay": !0,
+                "dialog-overlay-blur": this.overlayBlur,
+                "dialog-overlay-no-modal": this.modal.disableFocusTrap
+            })}" @click="${ () => this.requestClose("overlay")}" tabindex="-1" ${Ys(this.overlayRef)}></div> ${this.renderScreenreaderCloseButton()} <div part="panel" class="dialog-panel" role="dialog" aria-modal="${!this.modal.disableFocusTrap}" aria-label="${this.label}" tabindex="-1" ${Ys(this.panelRef)}> ${this.renderTopOfDialog()} <slot @slotchange="${this.handleSlotChange}" @rpl-dialog-child-connected="${this.internalHandleDialogChildConnected}" @rpl-dialog-child-disconnected="${this.internalHandleDialogChildDisconnected}"></slot> </div> </div> `
+        }
+    }
+    t([d({
+        attribute: !1
+    })], Dd.prototype, "dialogRef", void 0),
+    t([d({
+        attribute: !1
+    })], Dd.prototype, "panelRef", void 0),
+    t([d({
+        attribute: !1
+    })], Dd.prototype, "overlayRef", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0
+    })], Dd.prototype, "open", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "overlay-blur"
+    })], Dd.prototype, "overlayBlur", void 0),
+    t([d({
+        reflect: !0,
+        attribute: "dialog-id"
+    })], Dd.prototype, "dialogId", void 0),
+    t([d({
+        reflect: !0,
+        attribute: "dialog-classname"
+    })], Dd.prototype, "dialogClassName", void 0),
+    t([d({
+        reflect: !0
+    })], Dd.prototype, "label", void 0),
+    t([d({
+        type: Boolean
+    })], Dd.prototype, "blocking", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "no-animate"
+    })], Dd.prototype, "noAnimate", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "disable-cache-contents"
+    })], Dd.prototype, "disableCacheContents", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "screenreader-close-button"
+    })], Dd.prototype, "screenreaderCloseButton", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "eager-attach-template-content"
+    })], Dd.prototype, "eagerAttachTemplateContent", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "persist-on-reconnect"
+    })], Dd.prototype, "persistOnReconnect", void 0),
+    t([l()], Dd.prototype, "litTemplateChildren", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "hidden-initial-load"
+    })], Dd.prototype, "hiddenInitialLoad", void 0);
+    var Md = e.i`${ld}:host{--transition-duration:250ms;display:contents}.dialog{display:flex;align-items:center;justify-content:center;position:fixed;inset:0;z-index:var(--z-index-dialog,1000);user-select:none;pointer-events:none}.dialog-panel{display:flex;flex-direction:column;z-index:2;width:fit-content;max-width:calc(100% - var(--spacer-2xl));max-height:calc(100% - var(--spacer-2xl));background-color:var(--color-ui-modalbackground);border-radius:var(--radius-md);box-shadow:var(--boxshadow-modal)}.dialog-variant-plain .dialog-panel{max-width:100%;max-height:100%;background-color:transparent;border-radius:initial;box-shadow:initial}.dialog-panel:focus{outline:0}.dialog-open{user-select:auto}.dialog-open .dialog-overlay,.dialog-open .dialog-panel{pointer-events:auto}.dialog-open .dialog-panel{display:flex;opacity:1}.dialog-overlay{position:fixed;inset:0;background-color:rgba(0,0,0,var(--rpl-dialog-backdrop-opacity,.5))}.dialog-overlay-blur{backdrop-filter:blur(var(--dialog-backdrop-blur, 4px))}.dialog-overlay-no-modal{display:none!important}.dialog-hidden-initial-load{position:absolute!important;inset-inline-start:-9999px!important;top:-9999px!important;overflow:hidden;max-width:100%}.dialog-hidden-initial-load .dialog-overlay{display:none!important}`;
+    let kd = class extends Dd {
+        constructor() {
+            super(...arguments),
+            this.animationNames = {
+                show: "dialog.show",
+                hide: "dialog.hide",
+                denyClose: "dialog.denyClose",
+                overlayShow: "dialog.overlay.show",
+                overlayHide: "dialog.overlay.hide"
+            },
+            this.variant = "default"
+        }
+        handleDialogChildConnected(e) {
+            e.appearance = "modal",
+            "plain" !== this.variant && this.styledDialogChildren.size > 0 && (this.variant = "plain")
+        }
+        renderDialogBaseClasses() {
+            return {
+                [`dialog-variant-${this.variant}`]: !0
+            }
+        }
+    }
+    ;
+    kd.styles = Md,
+    t([d({
+        type: String,
+        reflect: !0
+    })], kd.prototype, "variant", void 0),
+    kd = t([a("rpl-dialog")], kd),
+    ks("dialog.show", {
+        keyframes: [{
+            opacity: 0,
+            scale: .8
+        }, {
+            opacity: 1,
+            scale: 1
+        }],
+        options: {
+            duration: 250,
+            easing: "ease"
+        }
+    }),
+    ks("dialog.hide", {
+        keyframes: [{
+            opacity: 1,
+            scale: 1
+        }, {
+            opacity: 0,
+            scale: .8
+        }],
+        options: {
+            duration: 250,
+            easing: "ease"
+        }
+    }),
+    ks("dialog.denyClose", {
+        keyframes: [{
+            scale: 1
+        }, {
+            scale: 1.02
+        }, {
+            scale: 1
+        }],
+        options: {
+            duration: 250
+        }
+    }),
+    ks("dialog.overlay.show", {
+        keyframes: [{
+            opacity: 0
+        }, {
+            opacity: 1
+        }],
+        options: {
+            duration: 250
+        }
+    }),
+    ks("dialog.overlay.hide", {
+        keyframes: [{
+            opacity: 1
+        }, {
+            opacity: 0
+        }],
+        options: {
+            duration: 250
+        }
+    });
+    const Ld = async e => {
+        const t = () => new Promise((e => setTimeout(e, 0)));
+        return e.hasUpdated || (await e.updateComplete),
+        t();
+    }
+    ;
+    class Ud {
+        constructor(e, t) {
+            this.host = e,
+            this.config = t,
+            this.rafId = null,
+            this._connectedElements = new Map,
+            this._wasObserving = [],
+            e.addController(this)
+        }
+        async hostConnected() {
+            const e = this.host.hasUpdated;
+            if (this.resizeObserver ?? (this.resizeObserver = new ResizeObserver(( (e, t) => {
+                this.rafId && cancelAnimationFrame(this.rafId),
+                this.rafId = requestAnimationFrame(( () => (this.rafId = null,
+                this.config.callback.call(this.host).call(this.host, e, t))))
+            }
+            ))),
+            e) {
+                for (const e of this._wasObserving)
+                    this.connectElement(e);
+                this._wasObserving = []
+            }
+            !e && this.config.observeAllOnFirstUpdate && (await Ld(this.host),
+            this.observeAllElements())
+        }
+        hostDisconnected() {
+            this._wasObserving = this.connectedElements,
+            this.unobserveAllElements()
+        }
+        fetchElement(e) {
+            return this.config.elements[e]?.call(this.host) ?? null
+        }
+        get connectedElements() {
+            return Array.from(this._connectedElements.keys())
+        }
+        get unconnectedElements() {
+            return Object.keys(this.config.elements).filter((e => !this._connectedElements.has(e)))
+        }
+        connectElement(e) {
+            const t = this.fetchElement(e);
+            return t && (this._connectedElements.has(e) && this.resizeObserver.unobserve(this._connectedElements.get(e)),
+            this.resizeObserver.observe(t, {
+                box: "border-box"
+            }),
+            this._connectedElements.set(e, t)),
+            !!t
+        }
+        observeAllElements() {
+            for (const e of this.unconnectedElements)
+                this.connectElement(e)
+        }
+        unobserveAllElements() {
+            this.resizeObserver.disconnect(),
+            this._connectedElements.clear()
+        }
+        replaceObservedElement(e) {
+            return this.connectElement(e)
+        }
+    }
+    var Fd = e.i`${ld}${cd}:host{--background-color:var(--color-ui-modalbackground);--_overlay-height:var(--scrollbox-overlay-height, 2.5em);--_overlay-margin:calc(var(--_overlay-height) * -1);--_overlay-z-index:var(--overlay-z-index, 1)}@media (prefers-color-scheme:dark){:host{--background-color-transparent:rgba(0, 0, 0, 0)}}@media (prefers-color-scheme:light){:host{--background-color-transparent:rgba(255, 255, 255, 0)}}:host{display:flex;flex-direction:column;min-height:0;flex-shrink:1;flex-grow:0;overflow:auto;padding:0 4px;margin:0 -4px}:host{-ms-overflow-style:none;scrollbar-width:none}:host::-webkit-scrollbar{display:none;width:0!important}.visibility-ref-bottom,.visibility-ref-top{pointer-events:none}.visibility-ref-bottom{position:relative;bottom:1px}.bottom-overlay,.top-overlay{position:sticky;height:var(--_overlay-height);min-height:var(--_overlay-height);margin-top:var(--_overlay-margin);opacity:1;transition:opacity .2s;pointer-events:none;z-index:var(--_overlay-z-index)}.overlay--hidden{opacity:0}.top-overlay{top:-1px;background:linear-gradient(to bottom,var(--background-color) 20%,var(--background-color-transparent))}.bottom-overlay{bottom:-1px;background:linear-gradient(to top,var(--background-color) 20%,var(--background-color-transparent))}`;
+    class Bd extends sd {
+        constructor() {
+            super(...arguments),
+            this.visibilityEls = {},
+            this.showTopOverlay = !1,
+            this.showBottomOverlay = !1,
+            this.disableOverlay = !1,
+            this.updateOverlayVisibility = e => {
+                for (const t of e) {
+                    if (!(t.target instanceof HTMLElement))
+                        continue;
+                    const {position: e} = t.target.dataset
+                      , i = !t.isIntersecting;
+                    "bottom" === e && (this.showBottomOverlay = i),
+                    "top" === e && (this.showTopOverlay = i)
+                }
+                this.emitter.dispatch("visibility-change")
+            }
+            ,
+            this.createVisibilityRef = e => {
+                if (!(e instanceof HTMLElement))
+                    return;
+                const t = e.dataset.position;
+                this.visibilityEls[t] && this.intersectionObserver.unobserve(this.visibilityEls[t]),
+                this.intersectionObserver.observe(e),
+                this.visibilityEls[t] = e
+            }
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            this.intersectionObserver = new IntersectionObserver(this.updateOverlayVisibility,{
+                root: this,
+                threshold: [0, 1]
+            })
+        }
+        render() {
+            return e.x` <div class="${te({
+                "top-overlay": !0,
+                "overlay--hidden": !this.showTopOverlay || this.disableOverlay
+            })}"></div> <div class="visibility-ref-top" ${Ys(this.createVisibilityRef)} data-position="top"></div> <slot></slot> <div class="visibility-ref-bottom" ${Ys(this.createVisibilityRef)} data-position="bottom"></div> <div class="${te({
+                "bottom-overlay": !0,
+                "overlay--hidden": !this.showBottomOverlay || this.disableOverlay
+            })}"></div> `
+        }
+    }
+    t([l()], Bd.prototype, "showTopOverlay", void 0),
+    t([l()], Bd.prototype, "showBottomOverlay", void 0),
+    t([l()], Bd.prototype, "disableOverlay", void 0);
+    let Vd = class extends Bd {
+    }
+    ;
+    Vd.styles = Fd,
+    Vd = t([a("rpl-scrollbox")], Vd);
+    class xd extends (Td(sd)) {
+        constructor() {
+            super(...arguments),
+            this.resizeController = new Ud(this,{
+                observeAllOnFirstUpdate: !0,
+                callback: () => this.handleResize,
+                elements: {
+                    content: () => this.contentRef
+                }
+            }),
+            this.isFooterEmpty = !0,
+            this.shouldContentScroll = !1,
+            this.scrollableContent = !1,
+            this.autoClose = !1,
+            this.autoDock = !1,
+            this.contentRef = void 0,
+            this.headerRef = Ks(),
+            this.footerRef = Ks(),
+            this.emitCloseButtonClickEvent = () => {
+                this.emitter.dispatch("close-button-clicked", {
+                    bubbles: !0,
+                    composed: !0,
+                    detail: {}
+                })
+            }
+            ,
+            this.emitDockButtonClickEvent = () => {
+                this.emitter.dispatch("dock-button-clicked", {
+                    bubbles: !0,
+                    composed: !0,
+                    detail: {}
+                })
+            }
+            ,
+            this.handleCloseButtonClick = e => {
+                e.stopPropagation(),
+                this.autoClose && this.emitCloseButtonClickEvent()
+            }
+            ,
+            this.handleCloseButtonKeydown = e => {
+                this.autoClose && "Enter" === e.key && this.emitCloseButtonClickEvent()
+            }
+            ,
+            this.handleDockButtonClick = e => {
+                this.autoDock && this.emitDockButtonClickEvent()
+            }
+            ,
+            this.handleDockButtonKeydown = e => {
+                this.autoDock && "Enter" === e.key && this.emitDockButtonClickEvent()
+            }
+            ,
+            this.handleResize = () => {
+                this.updateShouldContentScroll(),
+                this.emitter.dispatch("resize")
+            }
+            ,
+            this.updateShouldContentScroll = async () => {
+                this.shouldContentScroll = !!this.contentRef && md(this.contentRef),
+                this.style.setProperty("--modal-card-scrollbar-width", this.contentRef?.offsetWidth - this.contentRef?.clientWidth + "px")
+            }
+        }
+        willUpdate(e) {
+            if (e.has("docked")) {
+                const e = this.shadowRoot?.querySelector("rpl-scrollbox");
+                if (!e)
+                    return;
+                this.docked ? (e.style.scrollBehavior = "auto",
+                e.scrollTo({
+                    top: 0,
+                    behavior: "auto"
+                }),
+                e.style.scrollBehavior = "",
+                e.style.overflow = "hidden") : e.style.overflow = ""
+            }
+        }
+        setContentRef(e) {
+            if (!e)
+                return;
+            const t = e;
+            this.contentRef = t,
+            this.resizeController.replaceObservedElement("content")
+        }
+        get headerHeight() {
+            return this.headerRef.value?.clientHeight
+        }
+        handleSlotChange(e) {
+            this.isFooterEmpty = !(this.footerSlot?.length || this.primaryButtonSlot?.length || this.secondaryButtonSlot?.length || this.tertiaryButtonSlot?.length)
+        }
+        render() {
+            const t = this.dockable && "bottom-sheet" === this.appearance
+              , i = e.x` <div class="${te({
+                "header-action-container": !0,
+                "header-action-container-floating": this.shouldContentScroll
+            })}" part="header-action-container"> ${t ? e.x`<slot name="dock-button" part="dock-button" class="${te({
+                "dock-button-docked": this.docked
+            })}" @click="${this.handleDockButtonClick}" @keydown="${this.handleDockButtonKeydown}"></slot>` : e.A} <slot name="close-button" part="close-button" @click="${this.handleCloseButtonClick}" @keydown="${this.handleCloseButtonKeydown}"></slot> </div>`
+              , n = e.x` <div class="modal-card-header-container" part="header-container"> <div part="header" class="${te({
+                "modal-card-header": !0,
+                "modal-card-header-with-icon": this.titleGraphic.length > 0,
+                "modal-card-header-with-collapse": t
+            })}" ${Ys(this.headerRef)}> <div part="title-graphic" class="modal-card-title-graphic" aria-hidden="true"> <slot name="title-graphic"></slot> </div> <slot name="title"></slot> </div> ${this.scrollableContent ? e.x`<rpl-scrollbox .disableOverlay="${this.docked}"><slot></slot></rpl-scrollbox>` : e.x`<slot></slot>`} </div>`;
+            return e.x` ${this.shouldContentScroll ? i : e.A} <div class="${te({
+                "modal-card-content": !0,
+                "styled-scrollbar": !0,
+                "modal-card-content-docked": this.docked
+            })}" part="content"> <rpl-scrollbox ${Ys(this.setContentRef)} .disableOverlay="${this.docked}"> ${[this.shouldContentScroll ? e.A : i, n]} </rpl-scrollbox> </div> <div part="footer" class="${te({
+                "modal-card-footer": !0,
+                "modal-card-footer-sticky": this.shouldContentScroll,
+                "modal-card-footer-empty": this.isFooterEmpty
+            })}" ?hidden="${t && this.docked}" ${Ys(this.footerRef)}> <slot name="tertiary-button" @slotchange="${this.handleSlotChange}"></slot> <div class="primary-secondary-button-container"> <slot name="secondary-button" @slotchange="${this.handleSlotChange}"></slot> <slot name="primary-button" @slotchange="${this.handleSlotChange}"></slot> </div> <slot name="footer" @slotchange="${this.handleSlotChange}"></slot> </div> `
+        }
+    }
+    t([l()], xd.prototype, "isFooterEmpty", void 0),
+    t([l()], xd.prototype, "shouldContentScroll", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "scrollable-content"
+    })], xd.prototype, "scrollableContent", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "auto-close"
+    })], xd.prototype, "autoClose", void 0),
+    t([d({
+        type: Boolean,
+        reflect: !0,
+        attribute: "auto-dock"
+    })], xd.prototype, "autoDock", void 0),
+    t([p({
+        slot: "title-graphic"
+    })], xd.prototype, "titleGraphic", void 0),
+    t([p({
+        slot: "footer",
+        flatten: !0
+    })], xd.prototype, "footerSlot", void 0),
+    t([p({
+        slot: "primary-button",
+        flatten: !0
+    })], xd.prototype, "primaryButtonSlot", void 0),
+    t([p({
+        slot: "secondary-button",
+        flatten: !0
+    })], xd.prototype, "secondaryButtonSlot", void 0),
+    t([p({
+        slot: "tertiary-button",
+        flatten: !0
+    })], xd.prototype, "tertiaryButtonSlot", void 0);
+    var Gd = e.i`${ld}:host{--scrollbar-background:var(--color-ui-modalbackground);--default-slot-padding:var(--spacer-xs) 0;display:flex;flex-direction:column;align-items:center;height:100%;position:relative;font-size:16px;box-sizing:border-box;max-height:inherit;min-height:inherit;overflow:auto;padding:0;background-color:var(--color-ui-modalbackground)}:host([appearance=modal]){border-radius:var(--rem16);box-shadow:var(--boxshadow-modal)}:host([appearance=bottom-sheet]){border-start-start-radius:var(--radius-md);border-start-end-radius:var(--radius-md);width:100%;max-height:calc(var(--bottom-sheet-expanded-height) - 1rem)}:host(.no-input-margins) rpl-scrollbox{padding:0;margin:0}.modal-card-content{box-sizing:border-box;padding:var(--content-padding,var(--spacer-md));width:100%;display:flex;flex-direction:column;flex:1 1;overflow-y:auto;overflow-x:hidden}:host([appearance=bottom-sheet]) .modal-card-content{padding:0 var(--content-padding,var(--spacer-md)) var(--content-padding,var(--spacer-md))}:host([appearance=bottom-sheet]) .modal-card-content-docked{padding:0 var(--content-padding,var(--spacer-md)) 0}.header-action-container{display:inline-flex;position:absolute;top:0;inset-inline-end:0;margin:var(--content-padding,var(--spacer-md));z-index:2;gap:var(--spacer-xs)}:host([appearance=bottom-sheet]) .header-action-container{margin:0 var(--content-padding,var(--spacer-md)) var(--content-padding,var(--spacer-md))}.header-action-container.header-action-container-floating{margin:var(--content-padding,var(--spacer-md)) calc(var(--content-padding,var(--spacer-md)) + var(--modal-card-scrollbar-width)) var(--content-padding,var(--spacer-md))}:host([appearance=bottom-sheet]) .header-action-container.header-action-container-floating{margin:0 calc(var(--content-padding,var(--spacer-md)) + var(--modal-card-scrollbar-width)) var(--content-padding,var(--spacer-md))}slot:not([name]){padding:var(--default-slot-padding);font-size:var(--rem14);display:flex;flex-direction:column;min-height:0}:host([scrollable-content]) slot:not([name]){display:contents}:host([scrollable-content]) slot:not([name])::slotted(.rpl-modal-card-scrollable){min-height:0;flex-shrink:1;overflow:auto}slot[name=title]{font-size:var(--rem18);font-weight:700;text-align:start}slot[name=tertiary-button]{font-size:14px;text-align:center}slot[name=close-button],slot[name=dock-button]{display:inline-flex;transition:transform .2s;transform-origin:center}slot[name=dock-button].dock-button-docked{transform:rotate(180deg)}.modal-card-close-button-floating slot[name=close-button],.modal-card-close-button-floating slot[name=dock-button]{box-shadow:var(--elevation-sm);border-radius:999px}.modal-card-header{display:flex;align-items:center;width:100%;max-width:calc(100% - var(--spacer-3xl));box-sizing:border-box;text-align:start}:host([appearance=bottom-sheet]) .modal-card-header{padding-bottom:var(--rem8)}.modal-card-header,.modal-card-header-with-icon{flex-direction:row;padding-inline:0 var(--spacer-2xl)}.modal-card-header-with-collapse{padding-inline:0 5rem}.modal-card-title-graphic{display:flex;align-items:center}.modal-card-header-with-icon .modal-card-title-graphic{padding-inline-end:var(--spacer-sm)}.modal-card-footer{display:flex;flex-direction:column;width:100%;background:var(--color-ui-modalbackground);padding:var(--spacer-md);box-sizing:border-box;gap:var(--spacer-sm)}.modal-card-footer-empty{display:none}.modal-card-footer-sticky{box-shadow:var(--elevation-md)}.primary-secondary-button-container{gap:var(--spacer-sm);display:flex;flex-direction:column}@media (min-width:640px){:host([appearance=bottom-sheet]) slot[name=tertiary-button],:host([appearance=modal]) slot[name=tertiary-button]{align-items:center}:host([appearance=bottom-sheet]) .modal-card-footer,:host([appearance=modal]) .modal-card-footer{flex-direction:row;align-items:center;justify-content:space-between}:host([appearance=bottom-sheet]) .primary-secondary-button-container,:host([appearance=modal]) .primary-secondary-button-container{flex-direction:row;margin-inline-start:auto}}`;
+    let Hd = class extends xd {
+    }
+    ;
+    Hd.styles = Gd,
+    Hd = t([a("rpl-modal-card")], Hd);
+    let Wd = 0;
+    const zd = "push-token-last-refresh-ms";
+    var jd;
+    !function(e) {
+        e.Enabled = "Enabled",
+        e.Pending = "Pending",
+        e.NoServiceWorker = "NoServiceWorker",
+        e.NoPushManager = "NoPushManager",
+        e.NoSubscription = "NoSubscription",
+        e.NoNotificationAPI = "NoNotificationAPI",
+        e.Blocked = "Blocked",
+        e.Error = "Error"
+    }(jd || (jd = {}));
+    const Kd = e => si({
+        source: "notification_system_settings",
+        action: e,
+        noun: "push_notifications"
+    });
+    let $d = !1;
+    function qd(...e) {
+        const t = document.querySelector("shreddit-app");
+        t && mt(t, si(...e))
+    }
+    async function Yd(e=!1, t=navigator.serviceWorker) {
+        const i = await (t?.getRegistration());
+        if (!i)
+            return !1;
+        let n = await i.pushManager.getSubscription();
+        if (n && !e)
+            return !0;
+        const o = {
+            userVisibleOnly: !0,
+            applicationServerKey: "BJ2nJR9HeBwCWe4s7bKfKgWZkx2Q8Q59yBdSVLxWIhPaWuzHDUxQ2YJnhLvbAVujWBZYuQv60V6a6oipSw09FT0"
+        };
+        $d = !0;
+        try {
+            return qd({
+                source: "notification",
+                action: "request",
+                noun: "pushToken"
+            }),
+            n = await i.pushManager.subscribe(o),
+            n ? (await async function(e) {
+                const t = await Ro({
+                    operation: To.RegisterPushToken,
+                    variables: {
+                        pushToken: e,
+                        language: document.documentElement.lang || $a["en-US"],
+                        timezoneName: Intl.DateTimeFormat().resolvedOptions().timeZone || "America/Los_Angeles",
+                        timestamp: (new Date).toISOString()
+                    }
+                });
+                if (!t.data.registerWebPushToken?.ok)
+                    throw new Error("Error registering push token");
+                Yi.setItem(zd, Date.now().toString())
+            }(JSON.stringify(n)),
+            qd({
+                source: "notification",
+                action: "register",
+                noun: "pushToken"
+            }),
+            !0) : !1
+        } catch {
+            return qd({
+                source: "notification",
+                action: "bail",
+                noun: "pushToken"
+            }),
+            !1
+        } finally {
+            $d = !1
+        }
+    }
+    const Qd = () => "Notification"in globalThis && void 0 !== globalThis.Notification ? Notification : null;
+    async function Jd(e=navigator.serviceWorker, t=Qd()) {
+        if (!t)
+            return jd.NoNotificationAPI;
+        try {
+            await tl.promise;
+            const i = await (e?.getRegistration());
+            if (!i)
+                return jd.NoServiceWorker;
+            if (!i.pushManager)
+                return jd.NoPushManager;
+            if ("denied" === t.permission)
+                return jd.Blocked;
+            if ("default" === t.permission)
+                return jd.Pending;
+            return (await i.pushManager.getSubscription()) ? jd.Enabled : $d ? jd.Pending : jd.NoSubscription;
+        } catch {
+            return jd.Error
+        }
+    }
+    async function Xd(e=navigator.serviceWorker, t=Qd()) {
+        if ("denied" === t.permission)
+            return await Zd(),
+            !1;
+        const i = await t.requestPermission();
+        if ("granted" === i) {
+            const t = await Yd(!1, e);
+            return t && qd(Kd("enable")),
+            t
+        }
+        return "denied" === i && (await Zd(),
+        !1)
+    }
+    function Zd() {
+        return async function(t) {
+            let i = null;
+            const n = `alert-dialog-${Wd}`
+              , o = t.closeText || "Fechar caixa de diálogo"
+              , r = t.okText || "Ok"
+              , a = e => {
+                e.stopPropagation(),
+                i?.hide()
+            }
+              , s = e.x`<rpl-modal-card> ${t.title ? e.x`<h2 slot="title" class="text-16 font-semibold">${t.title}</h2>` : e.A} <p>${t.text}</p> <div slot="primary-button"> ${R({
+                children: r,
+                appearance: "primary",
+                attributes: {
+                    "aria-label": r,
+                    onclick: a
+                }
+            })} </div> <div slot="close-button"> ${R({
+                appearance: "secondary",
+                shape: "pill",
+                leadingIcon: e.O({
+                    size: e.I.Small
+                }),
+                size: S.Small,
+                attributes: {
+                    "aria-label": o,
+                    onclick: a
+                }
+            })} </div> </rpl-modal-card>`
+              , d = document.createDocumentFragment();
+            e.B(e.x`<rpl-dialog open id="${n}" dialog-id="${n}" label="${t.title}" .litTemplateChildren="${s}"></rpl-dialog>`, d),
+            Wd++,
+            document.body.appendChild(d),
+            i = document.querySelector(`rpl-dialog#${n}`),
+            i.showModal(),
+            await new Promise((e => {
+                i?.addEventListener("rpl-dialog:after-hide", ( () => e()), {
+                    once: !0
+                })
+            }
+            )),
+            i.remove()
+        }({
+            title: "Notificações desabilitadas",
+            text: "Use o menu de configurações do navegador para permitir notificações deste site."
+        });
+    }
+    let el = !1;
+    const tl = new Ue
+      , il = (e=navigator.serviceWorker) => {
+        if (!e)
+            return;
+        const t = document.getElementsByTagName("shreddit-app")?.[0]
+          , i = {
+            action_info: {
+                page_type: Ps()
+            },
+            screen: {
+                height: window?.screen.height,
+                width: window?.screen.width
+            },
+            referrer: oi(t?.getAttribute("referrer") || document.referrer, window.location.href)
+        };
+        e.controller?.postMessage({
+            command: "registerClient",
+            v2EventBoilerPlate: i,
+            disablePNs: "true" === t?.getAttribute("disable-pns")
+        })
+    }
+      , nl = (e=navigator.serviceWorker) => {
+        e?.addEventListener("message", (t => {
+            const {data: i} = t;
+            if ("registerWithServiceWorker" === (i.command || i.type))
+                return il(e)
+        }
+        ))
+    }
+      , ol = new Ue;
+    window.addEventListener("beforeinstallprompt", (e => {
+        e.preventDefault(),
+        ol.resolve(e)
+    }
+    )),
+    window.addEventListener("appinstalled", ( () => {
+        const e = si({
+            source: "mweb",
+            action: "install",
+            noun: "pwa"
+        })
+          , t = document.querySelector("shreddit-app");
+        t && mt(t, e)
+    }
+    ));
+    const rl = (e=window) => !!e.matchMedia?.("(display-mode: standalone), (display-mode: minimal-ui), (display: window-controls-overlay)").matches
+      , al = "join";
+    window._pubsubControllerInstances ?? (window._pubsubControllerInstances = new Set);
+    const sl = new Map;
+    class dl {
+        constructor(e) {
+            this.handlers = {},
+            this.host = e,
+            this.host.addController(this)
+        }
+        hostConnected() {
+            window._pubsubControllerInstances.add(this)
+        }
+        hostDisconnected() {
+            window._pubsubControllerInstances.delete(this)
+        }
+        subscribe(e, t, i=!0, n=!1) {
+            this.handlers[e] || (this.handlers[e] = new Set),
+            this.handlers[e].add(t),
+            i && sl.has(e) && (t(sl.get(e)),
+            n && sl.delete(e))
+        }
+        unsubscribe(e, t) {
+            this.handlers[e] && this.handlers[e].delete(t)
+        }
+        publish(e, t) {
+            return ll(e, t)
+        }
+    }
+    function ll(e, t) {
+        sl.set(e, t);
+        for (const i of window._pubsubControllerInstances)
+            if (i.handlers[e]?.size)
+                for (const n of i.handlers[e])
+                    n(t)
+    }
+    var cl;
+    !function(e) {
+        e.AchievementsModalShowById = "achievements-modal-show-by-id",
+        e.AchievementsProgressToast = "achievements-progress-toast",
+        e.AddRemovalReasonClose = "add_removal_reason_close",
+        e.AdReminderRsvpSubscribe = "ad_reminder_rsvp_subscribe",
+        e.AdReminderRsvpUnsubscribe = "ad_reminder_rsvp_unsubscribe",
+        e.AdUpdated = "ad_updated",
+        e.AgeGateBirthdateSubmitted = "age_gate_birthday_submitted",
+        e.AMAEnded = "ama_ended",
+        e.AMAOpenExamplesModal = "ama_open_examples_modal",
+        e.AMAOpenSelfieTooltip = "ama_open_selfie_tooltip",
+        e.AMAPostRsvpSubscribe = "ama_post_rsvp_subscribe",
+        e.AMAPostRsvpUnsubscribe = "ama_post_rsvp_unsubscribe",
+        e.AMAStarted = "ama_started",
+        e.AMATryEnd = "ama_try_end",
+        e.AMATryStartEarly = "ama_try_start_early",
+        e.AvatarStateUpdated = "avatar_state_updated",
+        e.AvatarUpdated = "avatar_updated",
+        e.AwardContent = "award_content",
+        e.AwardDialogClose = "award_dialog_close",
+        e.AwardDialogGoldTopUpRequest = "award_dialog_gold_top_up_request",
+        e.AwardDialogNavigateTo = "award_dialog_navigate_to",
+        e.AwardOnContentUpdated = "award_on_content_updated",
+        e.BanEvasionSummaryUpdate = "ban_evasion_summary_update",
+        e.BlockPdpAdClick = "block_pdp_ad_click",
+        e.CancelCommunitySubscription = "cancel_community_subscription",
+        e.CommentComposerBlurred = "comment_composer_blurred",
+        e.CommentComposerFocused = "comment_composer_focused",
+        e.CommentCreated = "comment_created",
+        e.CommentDeleted = "comment_deleted",
+        e.CommentDownvoted = "comment_downvoted",
+        e.CommentFilterUpdated = "comment_filter_updated",
+        e.CommentSort = "comment_sort",
+        e.CommentTreeAdsLoaded = "comment_tree_ads_loaded",
+        e.CommentUpdated = "comment_updated",
+        e.CommentUpvoted = "comment_upvoted",
+        e.CommunityAuthorFlairUpdated = "community_author_flair_updated",
+        e.CommunityGuideUpdated = "community_guide_updated",
+        e.CommunityOnboardingUpdated = "community_onboarding_updated",
+        e.CTLReportInit = "ctl_report_init",
+        e.CustomFeedCreated = "custom_feed_created",
+        e.CustomFeedDeleted = "custom_feed_deleted",
+        e.CustomFeedSourcesUpdated = "custom_feed_sources_updated",
+        e.CustomFeedUpdated = "custom_feed_updated",
+        e.DsaTransparencyModal = "dsa_transparency_modal",
+        e.EntityFilterView = "entity_filter_view",
+        e.ExplainerClosed = "explainer_closed",
+        e.FeatureActivated = "feature_activated",
+        e.GoldPurchased = "gold_purchased",
+        e.GuidesCitationMismatch = "guides_citation_mismatch",
+        e.GuidesDeactivateCustomQuoteLink = "guides_deactivate_custom_quote_link",
+        e.GuidesDeactivateLink = "guides_deactivate_link",
+        e.GuidesEntrypointTooltipOpen = "guides_entrypoint_tooltip_open",
+        e.GuidesRenderNewQuestionContainer = "guides_render_new_question_container",
+        e.GuidesRenderNewQuestionContainerStarted = "guides_render_new_question_container_started",
+        e.GuidesRenderSplitScreenPostsView = "guides_render_split_screen_posts_view",
+        e.GuidesRenderSplitScreenSourcesView = "guides_render_split_screen_sources_view",
+        e.GuidesRenderSplitScreenView = "guides_render_split_screen_view",
+        e.GuidesResponseContainerSsrRendered = "guides_response_container_ssr_rendered",
+        e.GuidesRetryRequested = "guides_retry_requested",
+        e.GuidesStartGoodVisitTimer = "guides_start_good_visit_timer",
+        e.GuidesStopGoodVisitTimer = "guides_stop_good_visit_timer",
+        e.GuidesStoreGoodVisit = "guides_store_good_visit",
+        e.GuidesStreamingEnded = "guides_streaming_ended",
+        e.GuidesStreamingRateLimitDetails = "guides_streaming_rate_limit_details",
+        e.GuidesStreamingStarted = "guides_streaming_started",
+        e.GuidesStreamingUserQuota = "guides_streaming_user_quota",
+        e.GuidesSubscriptionConnected = "guides_subscription_connected",
+        e.GuidesSubscriptionDisconnected = "guides_subscription_disconnected",
+        e.GuidesSubscriptionResponded = "guides_subscription_responded",
+        e.GuidesSuggestionLoadingStarted = "guides_suggestion_loading_started",
+        e.GuidesUnavailableQueryClicked = "guides_unavailable_query_clicked",
+        e.Hotkeys = "hotkeys_listener",
+        e.I18nCommentTranslationOverride = "i18n_comment_translation_override",
+        e.I18nLanguageAndTranslationsModalToggle = "i18n_language_and_translations_modal_toggle",
+        e.I18nMoreCommentsPostMetrics = "i18n_more_comments_post_metrics",
+        e.I18nPostTranslationOverride = "i18n_post_translation_override",
+        e.InboxCountChanged = "inbox_count_changed",
+        e.InboxReadAllEvent = "notification_inbox_notification_read_all_event",
+        e.LightboxClose = "lightbox_close",
+        e.LightboxClosed = "lightbox_closed",
+        e.LightboxOpen = "lightbox_open",
+        e.LightboxOpened = "lightbox_opened",
+        e.LoidLoaded = "loid_loaded",
+        e.MediaAutoplayAttempt = "media_autoplay_attempt",
+        e.MediaSyncPlayback = "media_sync_playback",
+        e.MediaSyncVolume = "media_sync_volume",
+        e.ModActivityPanelForceClose = "mod_activity_panel_force_close",
+        e.ModChatChannelsChannelDetailsClosed = "mod_chat_channels_channel_details_closed",
+        e.ModChatChannelsDeleteAction = "mod_chat_channels_delete_action",
+        e.ModChatChannelsDeleteCancelled = "mod_chat_channels_delete_cancelled",
+        e.ModChatChannelsSaveAction = "mod_chat_channels_save_action",
+        e.ModChatChannelsSaveCancelled = "mod_chat_channels_save_cancelled",
+        e.ModChatChannelsSettingsDialogData = "mod_chat_channels_settings_dialog_data",
+        e.ModChatChannelsSettingsDialogOptimisticSave = "mod_chat_channels_settings_dialog_optimistic_save",
+        e.ModChatChannelsSettingsDialogSaveError = "mod_chat_channels_settings_dialog_save_error",
+        e.ModChatChannelsSettingsDialogSaveSuccess = "mod_chat_channels_settings_dialog_save_success",
+        e.ModChatChannelsSettingsDialogSaving = "mod_chat_channels_settings_dialog_saving",
+        e.ModNotesCreated = "mod_notes_created",
+        e.ModNotesDeleted = "mod_notes_deleted",
+        e.ModNotesLogFilter = "mod_notes_log_filter",
+        e.ModNotesOpenLog = "mod_notes_open_log",
+        e.ModNotesOpenLogFocus = "mod_notes_open_log_focus",
+        e.ModNotesOpenUserFlairEdditor = "mod_notes_open_user_flair_editor",
+        e.ModNotesRailClose = "mod_notes_rail_close",
+        e.ModNotesRailForceClose = "mod_notes_rail_force_close",
+        e.ModNotesRailOpen = "mod_notes_rail_open",
+        e.ModQueueActivityPanelClosed = "mod_queue_activity_panel_closed",
+        e.ModQueueActivityPanelOpened = "mod_queue_activity_panel_opened",
+        e.ModQueueBulkSelection = "mod_queue_bulk_selection",
+        e.ModQueueKeyboardShortcuts = "modqueue_keyboard_shortcuts",
+        e.ModQueuePdpLinkClick = "mod_queue_pdp_link_click",
+        e.ModQueuePdpPanelClosed = "mod_queue_pdp_panel_closed",
+        e.ModQueuePdpPanelOpened = "mod_queue_pdp_panel_opened",
+        e.ModQueueThingSelected = "mod_queue_thing_selected",
+        e.ModQueueTutorialOpen = "mod_queue_tutorial_open",
+        e.ModRealtimeUpdate = "mod_realtime_update",
+        e.ModReportsToggle = "mod_reports_toggle",
+        e.ModRuleEditModalClosed = "mod_rules_rule_edit_modal_closed",
+        e.ModRuleEditModalOpened = "mod_rules_rule_edit_modal_opened",
+        e.ModRuleEditModalSaved = "mod_rules_rule_edit_modal_saved",
+        e.ModRulesCloseRuleDetails = "mod_rules_close_rule_details",
+        e.ModRulesConfirmRuleEditRejection = "mod_rules_confirm_rule_edit_rejection",
+        e.ModRulesCreateRule = "mod_rules_create_rule",
+        e.ModRulesOpenRuleDetails = "mod_rules_open_rule_details",
+        e.ModRulesRuleDeleted = "mod_rules_rule_deleted",
+        e.ModRulesRuleDetailsClosed = "mod_rules_rule_details_closed",
+        e.ModRulesSaveRuleDetails = "mod_rules_save_rule_details",
+        e.ModRulesShowCloseConfirmModal = "mod_rules_show_close_confirm_modal",
+        e.ModRulesShowRuleDeleteModal = "mod_rules_show_rule_delete_modal",
+        e.ModRulesShowRuleReasonModal = "mod_rules_show_rule_reason_modal",
+        e.ModToolsEmojiReloadTable = "mod_tools_emoji_reload_table",
+        e.MultiredditFavoriteStatusChange = "multireddit_favorite_status_change",
+        e.NotificationCloseSidebar = "notification_close_sidebar",
+        e.NotificationInboxNotificationHideEvent = "notification_inbox_notification_hide_event",
+        e.NotificationOpenSidebar = "notification_open_sidebar",
+        e.PageDataLoaded = "page_data_loaded",
+        e.PageDataRequested = "page_data_requested",
+        e.PmArchiveDeleteConfirmationModalSuccess = "pm_archive_delete_confirmation_modal_success",
+        e.PostDownvoted = "post_downvoted",
+        e.PostFlairUpdated = "post_flair_updated",
+        e.PostUpdated = "post_updated",
+        e.PostUpvoted = "post_upvoted",
+        e.PremiumPurchased = "premium_purchased",
+        e.PromotePostSuccess = "promote_post_success",
+        e.PurchaseCheckout = "purchase_checkout",
+        e.PurchaseCheckoutMetadata = "purchase_checkout_metadata",
+        e.PurchaseDialogClose = "purchase_dialog_close",
+        e.PurchaseDialogGoldTopUpRequest = "purchase_dialog_gold_top_up_request",
+        e.PurchaseDialogNavigateTo = "purchase_dialog_navigate_to",
+        e.RedoAvatarAction = "redo_avatar_action",
+        e.ReloadHighlights = "reload_highlights",
+        e.RemovalReasonStatus = "removal_reason_status",
+        e.ReportFlowClose = "report_flow_close",
+        e.ReportFlowInit = "report_flow_init",
+        e.ReportPageSummaryUpdate = "report_page_summary_update",
+        e.RequestAvatarState = "request_avatar_state",
+        e.ScreenViewDataLoaded = "screenview_data_loaded",
+        e.SearchFlairExpansionStateChanged = "search_flair_expansion_state_changed",
+        e.SearchShowFiltersEntrypoint = "search_show_filters_entrypoint",
+        e.SearchTypeaheadFlairClick = "search_typeahead_flair_click",
+        e.SearchTypeaheadScopeAdjusterDismiss = "search_typeahead_scope_adjuster_dismiss",
+        e.SmartEscalationsClose = "smart_escalations_close",
+        e.SmartEscalationsDismiss = "smart_escalations_dismiss",
+        e.SmartEscalationsInit = "smart_escalations_init",
+        e.SmartEscalationsOpen = "smart_escalations_open",
+        e.SmartEscalationsStatus = "smart_escalations_status",
+        e.SubredditFavoriteStatusChange = "subreddit_favorite_status_change",
+        e.SubredditMuteStatusChange = "subreddit_mute_status_change",
+        e.SubredditSubscriptionChange = "subreddit_subscription_change",
+        e.ThemeCookieSetByUser = "theme_cookie_set_by_user",
+        e.ThemeCookieSyncedFromUserPreference = "theme_cookie_synced_from_user_preference",
+        e.TopicPageSeeAllClicked = "topic_page_see_all_clicked",
+        e.TopicPageTabChanged = "topic_page_tab_changed",
+        e.TranslationToggled = "translation_toggled",
+        e.TriggerAdReminderModal = "trigger_ad_reminder_modal",
+        e.TriggerAmaRemindMeModal = "trigger_ama_remind_me_modal",
+        e.TriggerCommentBlockingAuth = "trigger_comment_blocking_auth",
+        e.TriggerCommunityAppearanceMenu = "trigger_community_appearance_menu",
+        e.TriggerEducationalDeeplinkPrompt = "trigger_educational_deeplink_prompt",
+        e.TriggerFeedErrorBanner = "trigger_feed_error_banner",
+        e.TriggerLightboxOpen = "trigger_lightbox_open",
+        e.UndoAvatarAction = "undo_avatar_action",
+        e.UpdateAvatarState = "update_avatar_state",
+        e.UserModActionsBan = "user_mod_actions_ban",
+        e.UserModActionsBanCancel = "user_mod_actions_ban_cancel",
+        e.UserModActionsBanFailure = "user_mod_actions_ban_failure",
+        e.UserModActionsMute = "user_mod_actions_mute",
+        e.UserModActionsMuteCancel = "user_mod_actions_mute_cancel",
+        e.UserModActionsMuteFailure = "user_mod_actions_mute_failure",
+        e.UserModActionsUnban = "user_mod_actions_unban",
+        e.UserModActionsUnmute = "user_mod_actions_unmute",
+        e.WikiTimerAlert = "wiki-timer-alert",
+        e.WikiVersionSelected = "wiki-version-selected"
+    }(cl || (cl = {}));
+    let ul = null
+      , hl = class extends e.s {
+        constructor() {
+            super(...arguments),
+            this._activatedFeatures = new Set,
+            this.pubSubController = new dl(this),
+            this._onFeatureActivated = e => {
+                this.registerFeatureActivation(e.name)
+            }
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            ul = this;
+            const e = this.dataset.activatedFeatures?.split("|").filter((e => e)) ?? [];
+            this._activatedFeatures = new Set(e),
+            this.pubSubController.subscribe(cl.FeatureActivated, this._onFeatureActivated, !1)
+        }
+        _refreshDataset() {
+            this.dataset.activatedFeatures = Array.from(this._activatedFeatures).join("|")
+        }
+        registerFeatureActivation(e) {
+            this._activatedFeatures.add(e),
+            this._refreshDataset()
+        }
+        hasFeatureBeenActivated(e) {
+            return this._activatedFeatures.has(e)
+        }
+    }
+    ;
+    hl = t([a("shreddit-activated-feature-meta")], hl);
+    const pl = e => !!ul && ul.hasFeatureBeenActivated(e)
+      , ml = new Set;
+    window.addEventListener("beforeRoute", ( () => {
+        ml.clear()
+    }
+    ));
+    const gl = async ({name: e, queryParams: t, routeParams: i, bodyParams: n, renderMode: o, root: r=document}) => {
+        const a = r.querySelector(`faceplate-loader[name=${e}]`)
+          , s = r.querySelector(`faceplate-iframe[name=${e}], faceplate-partial[name=${e}]`)
+          , d = s instanceof pt
+          , l = d && o && o !== ye.Replace;
+        if ((ml.has(e) || pl(e)) && !l)
+            return;
+        if (!s)
+            throw new Error(`${e} not found`);
+        if (a && s && a.nextElementSibling !== s)
+            throw new Error(`Both loader and loader element for ${e} was found, but they are not siblings`);
+        if (a && a?.loading !== Se.Programmatic || s?.loading !== Se.Programmatic)
+            throw new Error(`${e} cannot be activated`);
+        const c = s.src
+          , u = d ? s.renderMode : void 0
+          , h = new URLSearchParams(t).toString();
+        if (h) {
+            const e = s.src.includes("?");
+            s.src = `${s.src}${e ? "&" : "?"}${h}`
+        }
+        if (i)
+            for (const e in i) {
+                const t = i[e];
+                s.src = s.src.replace(`/:${e}`, t ? `/${t}` : "")
+            }
+        const p = s.getAttribute("method");
+        n && (s.setAttribute("method", Te.Post),
+        Object.entries(n).forEach(( ([e,t]) => {
+            const i = document.createElement("input");
+            i.setAttribute("type", "hidden"),
+            i.setAttribute("name", e),
+            i.setAttribute("value", t),
+            s.appendChild(i)
+        }
+        ))),
+        o && d && (s.renderMode = o),
+        l || ml.add(e);
+        const m = await Promise.allSettled([a?.load(), s.load()]);
+        return l && (s.src = c,
+        u && (s.renderMode = u),
+        p ? s.setAttribute("method", p) : null === p && s.removeAttribute("method")),
+        ll(cl.FeatureActivated, {
+            name: e
+        }),
+        ll(`activate-${e}`),
+        m
+    }
+    ;
+    var _l, fl, El, vl;
+    !function(e) {
+        e[e.UserAccountCreated = 200] = "UserAccountCreated"
+    }(_l || (_l = {})),
+    function(e) {
+        e.Email = "register_email",
+        e.EmailVerification = "register_email_verification",
+        e.UsernameAndPassword = "register_username_and_password",
+        e.Username = "register_username",
+        e.Password = "register_password"
+    }(fl || (fl = {})),
+    fl.Email,
+    fl.EmailVerification,
+    fl.UsernameAndPassword,
+    fl.Email,
+    fl.EmailVerification,
+    fl.Username,
+    fl.Password,
+    function(e) {
+        e[e.UserLoggedIn = 200] = "UserLoggedIn",
+        e[e.TwoFARequired = 202] = "TwoFARequired",
+        e[e.InvalidInput = 400] = "InvalidInput",
+        e[e.RecaptchaFailed = 401] = "RecaptchaFailed"
+    }(El || (El = {})),
+    function(e) {
+        e.ConfirmOTPApp = "login_otp_app",
+        e.ConfirmOTPBackup = "login_otp_backup",
+        e.UsernameAndPassword = "login_username_and_password",
+        e.OIDCCallbackAccountPicker = "login_oidc_callback_account_picker"
+    }(vl || (vl = {}));
+    const Sl = "googleid-signin"
+      , bl = `${Sl}-script`
+      , Tl = "appleid-signin"
+      , yl = `${Tl}-script`;
+    var Il, Cl, Al, Rl, Pl;
+    !function(e) {
+        e.ConfirmOTPApp = "link_account_otp_app",
+        e.ConfirmOTPBackup = "link_account_otp_backup",
+        e.ConfirmPassword = "link_account_password",
+        e.SelectAccount = "link_account_select_account"
+    }(Il || (Il = {})),
+    function(e) {
+        e[e.UserLoggedIn = 200] = "UserLoggedIn",
+        e[e.UserAccountCreated = 201] = "UserAccountCreated",
+        e[e.MultipleAccountsFound = 202] = "MultipleAccountsFound",
+        e[e.GoogleCredentialMismatch = 203] = "GoogleCredentialMismatch"
+    }(Cl || (Cl = {})),
+    function(e) {
+        e.AddPhone = "add-phone",
+        e.UpdatePhone = "update-phone",
+        e.AddEmailWithPhone = "add-email"
+    }(Al || (Al = {})),
+    function(e) {
+        e.EnterPhone = "phone_auth_enter_phone",
+        e.OTP = "new_phone_auth_otp"
+    }(Rl || (Rl = {})),
+    function(e) {
+        e.AddPhone = "add_phone",
+        e.UpdatePhone = "update_phone",
+        e.RemovePhone = "remove_phone",
+        e.AddEmail = "add_email",
+        e.DeactivateAccount = "deactivate_account",
+        e.Onboarding = "onboarding"
+    }(Pl || (Pl = {}));
+    var Nl, Ol, wl;
+    !function(e) {
+        e.Login = "login",
+        e.Password = "password",
+        e.PasswordRecovery = "passwordrecovery",
+        e.Register = "register",
+        e.RegisterEmailOnly = "register-email-only",
+        e.RegisterPrompt = "register-prompt",
+        e.Onboarding = "onboarding",
+        e.PhoneAuth = "phone_auth",
+        e.HighFlyerRegister = "high_flyer_register",
+        e.AnswersRegister = "answers_register",
+        e.LoggedInAction = "logged_in_action",
+        e.CommunityValueRegister = "community_value_register"
+    }(Nl || (Nl = {})),
+    function(e) {
+        e.Login = "login-standalone",
+        e.Password = "password-standalone",
+        e.PasswordRecovery = "passwordrecovery-standalone",
+        e.Register = "register-standalone"
+    }(Ol || (Ol = {})),
+    function(e) {
+        e.GoogleOneTapPrompt = "googleOneTapPrompt",
+        e.SignupDrawerPrompt = "signupDrawerPrompt",
+        e.InlineAuthLandingExperienceXpromo = "inlineAuthLandingExperienceXpromo"
+    }(wl || (wl = {}));
+    const Dl = {
+        ...wl,
+        ...Nl
+    };
+    var Ml, kl, Ll, Ul, Fl, Bl, Vl, xl, Gl, Hl, Wl;
+    !function(e) {
+        e.IncorrectUsernamePassword = "INCORRECT_USERNAME_PASSWORD",
+        e.InvalidClient = "INVALID_CLIENT",
+        e.InvalidScope = "INVALID_SCOPE",
+        e.NotFound = "NOT_FOUND",
+        e.RateLimit = "RATELIMIT",
+        e.TwoFARequired = "TWO_FA_REQUIRED",
+        e.WrongOTP = "WRONG_OTP"
+    }(Ml || (Ml = {})),
+    function(e) {
+        e.Apple = "apple",
+        e.Google = "google",
+        e.Reddit = "reddit"
+    }(kl || (kl = {})),
+    function(e) {
+        e.Login = "login",
+        e.OneTap = "one_tap",
+        e.Register = "register",
+        e.RegisterEmailOnly = "register-email-only",
+        e.SignupDrawer = "signup_drawer",
+        e.Username = "username",
+        e.Password = "password",
+        e.PasswordRecovery = "passwordrecovery",
+        e.PhoneAuth = "phone_auth",
+        e.XpromoLogin = "xpromo_login",
+        e.InlineUpsell = "upsell_unit",
+        e.Onboarding = "onboarding",
+        e.AccountSettings = "account_settings",
+        e.SSOLinking = "sso_linking",
+        e.DesktopAuthPrompt = "desktop_auth_prompt",
+        e.HighFlyerRegister = "high_flyer_register",
+        e.AnswersRegister = "answers_register",
+        e.LoggedInAction = "logged_in_action",
+        e.CommunityValueRegister = "community_value_register",
+        e.Unknown = "unknown",
+        e.NsfwBlockAuth = "nsfw_block_auth",
+        e.MagicLinkLogin = "magic_link_login"
+    }(Ll || (Ll = {})),
+    function(e) {
+        e.Open = "auth-flow-modal-open"
+    }(Ul || (Ul = {})),
+    function(e) {
+        e.App = "app",
+        e.Backup = "backup"
+    }(Fl || (Fl = {})),
+    function(e) {
+        e.DeleteBirthdate = "/svc/shreddit/account/delete-birthdate",
+        e.DeactivateAccount = "/svc/shreddit/account/deactivate_account",
+        e.DeactivateAccountWithPhoneToken = "/svc/shreddit/account/deactivate_account_with_phone_token",
+        e.IdentityProviderCreate = "/svc/shreddit/account/identity_provider_create",
+        e.IdentityProviderLink = "/svc/shreddit/account/identity_provider_link",
+        e.IdentityProviderSignin = "/svc/shreddit/account/identity_provider_signin",
+        e.LinkExternalIdentity = "/svc/shreddit/account/link-external-identity",
+        e.Login = "/svc/shreddit/account/login",
+        e.LoginOTP = "/svc/shreddit/account/login/otp",
+        e.Logout = "/svc/shreddit/account/logout",
+        e.PasswordResetInitialize = "/svc/shreddit/account/password_reset_initialize",
+        e.PasswordResetAccounts = "/svc/shreddit/account/password_reset_accounts",
+        e.PasswordReset = "/svc/shreddit/account/password_reset",
+        e.EmailVerifyInitialize = "/svc/shreddit/account/email_verify_initialize",
+        e.EmailVerifyConfirm = "/verification/:token",
+        e.UpdateEmail = "/svc/shreddit/account/update-email",
+        e.UnlinkExternalIdentity = "/svc/shreddit/account/unlink-external-identity",
+        e.UpdatePassword = "/svc/shreddit/account/update-password",
+        e.UpdatePhoneNumberWithPassword = "/svc/shreddit/account/update-phone-with-password",
+        e.UpdatePhoneNumberWithCurrentPhoneNumber = "/svc/shreddit/account/update-phone-with-phone",
+        e.UpdateEmailWithPhoneNumber = "/svc/shreddit/account/update-email-with-phone",
+        e.UpdateBirthdate = "/svc/shreddit/account/update-birthdate",
+        e.RemovePhoneWithPhone = "/svc/shreddit/account/remove-phone-with-phone",
+        e.VerifyPhoneByAccountInitialize = "/svc/shreddit/account/verify-phone-by-account-initialize",
+        e.VerifyPhoneByAccount = "/svc/shreddit/account/verify-phone-by-account",
+        e.VerifyPhoneByCodeInitialize = "/svc/shreddit/account/verify_phone_by_code_initialize",
+        e.VerifyPhoneByCode = "/svc/shreddit/account/verify_phone_by_code",
+        e.LoginWithPhoneNumber = "/svc/shreddit/account/login_with_phone_number",
+        e.RegisterPhone = "/svc/shreddit/account/register_phone",
+        e.RegisterEmail = "/svc/shreddit/account/register_email",
+        e.RegisterEmailVerifyInitialize = "/svc/shreddit/account/register_email_verify_initialize",
+        e.RegisterEmailVerifyCheck = "/svc/shreddit/account/register_email_verify_check",
+        e.EnableMFA = "/svc/shreddit/account/enable_mfa",
+        e.DisableMFA = "/svc/shreddit/account/disable_mfa",
+        e.GenerateOTP = "/svc/shreddit/account/generate_otp",
+        e.GenerateBackup = "/svc/shreddit/account/generate_backup",
+        e.CheckIsOIDCRequired = "/svc/shreddit/account/login/check_is_oidc_required",
+        e.GetOIDCProviderLoginUrl = "/svc/shreddit/account/login/get_oidc_provider_login_url",
+        e.SetOIDCCallbackData = "/svc/shreddit/account/login/set_oidc_callback_data",
+        e.SetOIDCAccountPickerChoice = "/svc/shreddit/account/login/set_oidc_account_picker_choice",
+        e.MagicLinkInitialize = "/svc/shreddit/account/login/magic_link/initialize"
+    }(Bl || (Bl = {})),
+    function(e) {
+        e.RecoverUsername = "recover_username",
+        e.CheckInbox = "recover_username_check_inbox"
+    }(Vl || (Vl = {})),
+    function(e) {
+        e.ResetPassword = "forgot_password",
+        e.CheckInbox = "reset_password_check_inbox"
+    }(xl || (xl = {})),
+    function(e) {
+        e.PasswordRecovery = "reset_password",
+        e.CheckInbox = "check_inbox"
+    }(Gl || (Gl = {})),
+    function(e) {
+        e.AccountSelection = "account_selector",
+        e.ResetPassword = "enter_new_password"
+    }(Hl || (Hl = {})),
+    function(e) {
+        e.EnterEmail = "enter_email",
+        e.CheckInbox = "check_inbox"
+    }(Wl || (Wl = {}));
+    Object.values(Nl).join("|");
+    const zl = [Il.SelectAccount, Il.ConfirmPassword, Il.ConfirmOTPApp, Il.ConfirmOTPBackup, vl.UsernameAndPassword, vl.ConfirmOTPApp, vl.ConfirmOTPBackup, fl.Email, fl.UsernameAndPassword, fl.Username, fl.Password, xl.ResetPassword, xl.CheckInbox, Vl.RecoverUsername, Vl.CheckInbox];
+    var jl, Kl;
+    !function(e) {
+        e.login = "login_with_password",
+        e.sso = "login_with_external_identity",
+        e.register = "register_email",
+        e.verifyPhone = "verify_phone",
+        e.loginWithPhone = "login_with_phone",
+        e.registerPhone = "register_phone"
+    }(jl || (jl = {})),
+    function(e) {
+        e.login = "v1/web/login_with_password",
+        e.sso = "v1/web/login_with_external_identity",
+        e.register = "v1/web/register_email",
+        e.verifyPhone = "v1/web/verify_phone",
+        e.loginWithPhone = "v1/web/login_with_phone",
+        e.registerPhone = "v1/web/register_phone"
+    }(Kl || (Kl = {}));
+    const $l = new Set([vl.UsernameAndPassword, fl.Email, ...Object.values(xl), ...Object.values(Gl), ...Object.values(Hl), ...Object.values(Vl)]);
+    let ql = gl;
+    const Yl = Symbol("mixins/with-overlays");
+    let Ql = window.location;
+    const Jl = /^(\w*Error:)/
+      , Xl = e => Jl.exec(e)?.[1]?.toLocaleLowerCase().replace(":", "") || "unknown"
+      , Zl = e => {
+        const t = e.detail;
+        let i = t.sourceElement
+          , n = t.cause;
+        const o = e.target instanceof Element;
+        if (!i && o && (i = e.target.tagName),
+        !o || "FACEPLATE-ALERT" !== i && ec(e.target))
+            "FACEPLATE-PARTIAL" === i && o && (i = `${i}[name=${e.target.getAttribute("name")}]`);
+        else {
+            const t = tc(e.target);
+            t && (i = `${i}__${t.tagName}`)
+        }
+        if ("partial-request-fetch-failure" === t.cause) {
+            const e = "string" == typeof t.meta ? t.meta : "";
+            if (e.includes("Connection has been terminated"))
+                n = "partial-request-fetch-failure__connection-terminated";
+            else {
+                n = `partial-request-fetch-failure__${Xl(e)}`
+            }
+        }
+        return v("faceplate-alert", {
+            ...t,
+            sourceElement: i,
+            cause: n,
+            _shredditEnriched: !0
+        })
+    }
+    ;
+    function ec(e) {
+        return e.tagName.includes("-")
+    }
+    function tc(e) {
+        return null === e.parentElement || ec(e.parentElement) ? e.parentElement : tc(e.parentElement)
+    }
+    const ic = {
+        FetchFailure: "fetch-failure",
+        FetchBadResponse: "fetch-bad-response",
+        QueryBadResponse: "query-bad-response",
+        UserInteractionFailed: "user-interaction-failed",
+        UncaughtError: "uncaught-error",
+        UserWentOffline: "user-went-offline"
+    }
+      , nc = e => {
+        if (!(e instanceof Error))
+            return ic.UncaughtError;
+        if ("ClientGQLNetworkError" === e.name)
+            return ic.FetchBadResponse;
+        const t = Xl(e.toString());
+        return "error" === t ? ic.UncaughtError : `${ic.UncaughtError}__${t}`
+    }
+    ;
+    let oc, rc;
+    const ac = () => {
+        return void 0 !== rc || (e = document.querySelector("shreddit-app")?.microAppName ?? void 0,
+        rc = void 0 !== e ? e : "unknown"),
+        rc;
+        var e
+    }
+    ;
+    function sc(e, t) {
+        const i = dc();
+        return (sc = function(e, t) {
+            return i[e -= 145]
+        }
+        )(e, t)
+    }
+    !function(e) {
+        const t = sc
+          , i = e();
+        for (; ; )
+            try {
+                if (796058 === parseInt(t(151)) / 1 * (-parseInt(t(170)) / 2) + parseInt(t(156)) / 3 + -parseInt(t(150)) / 4 + parseInt(t(171)) / 5 + -parseInt(t(157)) / 6 * (parseInt(t(168)) / 7) + -parseInt(t(147)) / 8 * (-parseInt(t(160)) / 9) + parseInt(t(146)) / 10)
+                    break;
+                i.push(i.shift())
+            } catch (e) {
+                i.push(i.shift())
+            }
+    }(dc);
+    function dc() {
+        const e = ["function", "apply", "14tFMsmW", "number", "627422wNyHoP", "1866785TVkeXq", "prototype", "0000", "toJSON", "length", "18174360UumULI", "2975848ppCdsT", "toString", "hasOwnProperty", "3897780mrtjJw", "3gHXetd", "push", "null", "GSON.stringify", "stringify", "226821TEuBDg", "896178OkJeGf", "join", "object", "18tXsNWV", "call", "charCodeAt", "string", "boolean", "test"];
+        return (dc = function() {
+            return e
+        }
+        )()
+    }
+    const lc = cc;
+    function cc(e, t) {
+        const i = uc();
+        return (cc = function(e, t) {
+            return i[e -= 323]
+        }
+        )(e, t)
+    }
+    function uc() {
+        const e = ["344CRimaV", '"page_type":"', "An error: ", "shreddit-app", "floor", "18385BLAWLO", "headers", "pauseIncomingRequests", "Invalid len argument supplied. Must be greater than ", "development", "slice", "6611KFYeUg", "getAttribute", "51abnogJ", "basic", "5910JYtFpt", "other_error", "type", "underCachingExperiment", "post", "v2-events-sent", "length", "includes", "HTTP Response Code: ", "status", "7020916ukSqvI", "find", "ctn", "822hlOhNW", "querySelector", "has", "token_csrf", "stringify", "862966BUuIZK", "shouldNotRetryIfFail", "dispatchEvent", "push", "text/PLAIN", "x-set-loid", "120438LkKlBL", "resolvePendingRequests", "production", "736394qxGQLX", "info", "no-resolve", "parse", "59612UeeLjI", "random", "csrf_token", "function", "x-set-session", "3WHBzpP", "some", "84GdlbkN"];
+        return (uc = function() {
+            return e
+        }
+        )()
+    }
+    !function(e) {
+        const t = cc
+          , i = e();
+        for (; ; )
+            try {
+                if (614264 === -parseInt(t(338)) / 1 * (-parseInt(t(329)) / 2) + parseInt(t(354)) / 3 * (parseInt(t(333)) / 4) + parseInt(t(346)) / 5 * (parseInt(t(369)) / 6) + -parseInt(t(366)) / 7 + parseInt(t(341)) / 8 * (parseInt(t(326)) / 9) + parseInt(t(356)) / 10 * (-parseInt(t(352)) / 11) + -parseInt(t(340)) / 12 * (parseInt(t(374)) / 13))
+                    break;
+                i.push(i.shift())
+            } catch (e) {
+                i.push(i.shift())
+            }
+    }(uc);
+    const hc = ( () => {
+        const e = sc
+          , t = {}
+          , i = /[\\"\u0000-\u001f\u007f-\u009f\u00ad\u0600-\u0604\u070f\u17b4\u17b5\u200c-\u200f\u2028-\u202f\u2060-\u206f\ufeff\ufff0-\uffff]/g;
+        let n, o, r, a;
+        function s(e) {
+            const t = sc;
+            return i.lastIndex = 0,
+            i[t(165)](e) ? '"' + e.replace(i, (function(e) {
+                const i = t
+                  , n = r[e];
+                return typeof n === i(163) ? n : "\\u" + (i(173) + e[i(162)](0)[i(148)](16)).slice(-4)
+            }
+            )) + '"' : '"' + e + '"'
+        }
+        function d(e, t) {
+            const i = sc;
+            let r, l, c, u;
+            const h = n;
+            let p, m = t[e];
+            switch (m && typeof m === i(159) && typeof m[i(174)] === i(166) && (m = m.toJSON(e)),
+            typeof a === i(166) && (m = a[i(161)](t, e, m)),
+            typeof m) {
+            case i(163):
+                return s(m);
+            case i(169):
+                return isFinite(m) ? String(m) : "null";
+            case i(164):
+                return String(m);
+            case i(159):
+                if (!m)
+                    return i(153);
+                if (n += o,
+                p = [],
+                "[object Array]" === Object[i(172)].toString[i(167)](m)) {
+                    for (u = m[i(145)],
+                    r = 0; r < u; r += 1)
+                        p[r] = d(r, m) || "null";
+                    return c = 0 === p[i(145)] ? "[]" : n ? "[\n" + n + p[i(158)](",\n" + n) + "\n" + h + "]" : "[" + p[i(158)](",") + "]",
+                    n = h,
+                    c
+                }
+                if (a && typeof a === i(159))
+                    for (u = a.length,
+                    r = 0; r < u; r += 1)
+                        typeof a[r] === i(163) && (l = a[r],
+                        c = d(l, m),
+                        c && p[i(152)](s(l) + (n ? ": " : ":") + c));
+                else
+                    for (l in m)
+                        Object[i(172)][i(149)][i(161)](m, l) && (c = d(l, m),
+                        c && p[i(152)](s(l) + (n ? ": " : ":") + c));
+                return c = 0 === p[i(145)] ? "{}" : n ? "{\n" + n + p.join(",\n" + n) + "\n" + h + "}" : "{" + p.join(",") + "}",
+                n = h,
+                c
+            }
+        }
+        return "function" != typeof t[e(155)] && (r = {
+            "\b": "\\b",
+            "\t": "\\t",
+            "\n": "\\n",
+            "\f": "\\f",
+            "\r": "\\r",
+            '"': '\\"',
+            "\\": "\\\\"
+        },
+        t[e(155)] = function(t, i, r) {
+            const s = e;
+            let l;
+            if (n = "",
+            o = "",
+            "number" == typeof r)
+                for (l = 0; l < r; l += 1)
+                    o += " ";
+            else
+                typeof r === s(163) && (o = r);
+            if (a = i,
+            i && "function" != typeof i && ("object" != typeof i || typeof i[s(145)] !== s(169)))
+                throw new Error(s(154));
+            return d("", {
+                "": t
+            })
+        }
+        ),
+        t
+    }
+    )();
+    let pc = [];
+    let mc;
+    const gc = () => {
+        const e = cc;
+        return !mc && (mc = document[e(370)](e(344))),
+        mc
+    }
+      , _c = async ({eventsBuffer: e, errorText: t, v2EventsRoute: i}) => {
+        const n = cc;
+        if (!e[n(362)])
+            return !0;
+        const o = {
+            v2EventsRoute: i,
+            options: {
+                nowSendingDropEvent: !0,
+                shouldNotRetryIfFail: !0
+            }
+        }
+          , r = t ?? n(357);
+        return 1 === e[n(362)] ? await Ec({
+            ...o,
+            eventsBuffer: [(a = e[0],
+            s = r,
+            si({
+                source: D.Global,
+                action: M.Drop,
+                noun: w.Event
+            }, {
+                ...a,
+                dropped_data: {
+                    event_source: a.source,
+                    event_action: a.action,
+                    event_noun: a.noun,
+                    event_batch_size: 1
+                },
+                action_info: {
+                    ...a.action_info,
+                    reason: s.toLowerCase()
+                }
+            }))]
+        }) : await Ec({
+            ...o,
+            eventsBuffer: [Pi(e[0], r, e[n(362)])]
+        });
+        var a, s
+    }
+      , fc = async ({url: e, eventsBuffer: t, microapp: i, options: n}) => {
+        const o = cc
+          , r = document[o(370)](o(344))?.[o(353)](o(368)) ?? o(372)
+          , a = wt.get(o(335)) ?? ""
+          , s = {
+            [r]: a,
+            info: t
+        }
+          , d = hc[o(373)](s);
+        let l;
+        try {
+            l = await fetch(e, {
+                body: d,
+                headers: {
+                    "Content-Type": o(324),
+                    "x-sh-microapp-route": i || "monolith"
+                },
+                keepalive: !0,
+                method: o(360),
+                credentials: "same-origin"
+            })
+        } catch (i) {
+            return !n?.[o(359)] && (n?.[o(375)] ? !n?.nowSendingDropEvent && (await _c({
+                eventsBuffer: t,
+                errorText: o(343) + i,
+                v2EventsRoute: e
+            })) : await Ec({
+                eventsBuffer: t,
+                options: {
+                    shouldNotRetryIfFail: !0
+                }
+            }),
+            !0);
+        }
+        if (l?.ok) {
+            const e = (e => {
+                const t = cc
+                  , i = JSON[t(332)](e)
+                  , n = i?.[t(330)]
+                  , o = n[t(367)](Mi);
+                if (!o)
+                    return !1;
+                const r = hc[t(373)](o);
+                return !!pc[t(339)]((e => hc.stringify(e) === r)) || (pc[t(362)] > 100 ? pc = [] : pc[t(323)](o),
+                !1)
+            }
+            )(d);
+            l[o(358)] === o(355) && l[o(347)][o(371)](k) && Li(d) && (e => {
+                const t = cc;
+                return e[t(363)](t(342) + Ps() + '"')
+            }
+            )(d) && !e ? (gc()?.[o(327)](),
+            window[o(376)](new CustomEvent("force-refresh"))) : "production" === o(350) && null !== Li(d) && window.dispatchEvent(new CustomEvent("no-resolve",{
+                detail: {
+                    correctResponseType: l[o(358)] === o(355),
+                    correctHeaders: l[o(347)].has(k),
+                    correctStringifiedEvents: Li(d),
+                    hasSeenIdentiticalGVSEvent: e
+                }
+            })),
+            e && (gc()?.[o(348)](),
+            o(328) === o(350) && window[o(376)](new CustomEvent(o(331),{
+                detail: {
+                    hasSeenIdentiticalGVSEvent: e
+                }
+            })));
+            const t = l[o(347)].get(o(325)) || void 0
+              , i = l[o(347)].get(o(337)) || void 0;
+            window[o(376)](new CustomEvent(o(361),{
+                detail: {
+                    loid: t,
+                    session_tracker: i
+                }
+            }))
+        } else if (!n?.nowSendingDropEvent)
+            return await _c({
+                eventsBuffer: t,
+                errorText: o(364) + l?.[o(365)],
+                v2EventsRoute: e
+            });
+        return !0
+    }
+      , Ec = async ({eventsBuffer: e, options: t}) => {
+        const i = ( () => {
+            if (typeof fetch === lc(336))
+                return fc
+        }
+        )();
+        return void 0 === i || (await i({
+            url: "/svc/shreddit/events",
+            eventsBuffer: e,
+            microapp: ac(),
+            options: t
+        }));
+    }
+    ;
+    let vc, Sc, bc = [];
+    const Tc = new Set(["global__view__screen", "global__view__embed", "global__leave__app", "post_detail__click__comments", "post_detail__click__post", "global__view__heartbeat", "post__view__comments", "post__consume__comments", "post__click__ad", "client_ad__view__ad", "client_ad__view__video", "client_ad__click__ad"]);
+    Yi.isAvailable() && Yi.removeItem("events-buffer");
+    function yc(e) {
+        if (bc.push(e),
+        (e => {
+            if (!e)
+                return !1;
+            const {source: t, action: i, noun: n} = e
+              , o = `${t}__${i}__${n}`;
+            return Tc.has(o)
+        }
+        )(e)) {
+            const e = bc.slice();
+            bc = [],
+            Ic(e)
+        } else if (bc.length >= 40) {
+            const e = bc.slice();
+            bc = [],
+            Ic(e)
+        } else
+            vc || (vc = setTimeout(( () => {
+                const e = bc.slice();
+                bc = [],
+                Ic(e)
+            }
+            ), 3e3))
+    }
+    function Ic(e) {
+        !function() {
+            vc && clearTimeout(vc);
+            vc = void 0
+        }(),
+        async function(e, t=Ec, i=Rc) {
+            const n = await t({
+                eventsBuffer: e,
+                options: {
+                    underCachingExperiment: !0
+                }
+            });
+            if (!Yi.isAvailable())
+                return;
+            if (!n) {
+                const t = Ac();
+                t.push(e);
+                try {
+                    Yi.setItem(qi.EventsBuffer, JSON.stringify(t))
+                } catch {}
+            }
+            i()
+        }(e)
+    }
+    function Cc() {
+        const e = bc.slice();
+        bc = [],
+        e.length > 0 && Ic(e)
+    }
+    const Ac = () => {
+        try {
+            return JSON.parse(Yi.getItem(qi.EventsBuffer) ?? "[]")
+        } catch (e) {
+            return Yi.removeItem(qi.EventsBuffer),
+            []
+        }
+    }
+    ;
+    function Rc() {
+        Sc || (Sc = setTimeout(( () => {
+            !async function(e=Ec) {
+                if (function() {
+                    Sc && clearTimeout(Sc);
+                    Sc = void 0
+                }(),
+                !Yi.isAvailable())
+                    return;
+                const t = Ac();
+                for (; t.length > 0; ) {
+                    if (!(await e({
+                        eventsBuffer: t[0],
+                        options: {
+                            underCachingExperiment: !0
+                        }
+                    })))
+                        return void Rc();
+                    t.shift();
+                    try {
+                        Yi.setItem(qi.EventsBuffer, JSON.stringify(t))
+                    } catch (e) {
+                        continue
+                    }
+                }
+            }()
+        }
+        ), 3e3))
+    }
+    class Pc extends $t {
+        report(e) {
+            if ("network" === e.alertDetails?.kind) {
+                const t = bo(e.alertDetails.response);
+                return super.report({
+                    ...e,
+                    message: t
+                })
+            }
+            return super.report(e)
+        }
+    }
+    const Nc = function(e) {
+        if (_s(e, fs))
+            return e;
+        class i extends e {
+            constructor(...e) {
+                super(...e),
+                this.canLoadRequests = !1,
+                this._canLoadRequests = !1,
+                this.resolvePendingRequests = () => {
+                    this._canLoadRequests = !0,
+                    this._pendingRequestsResolver?.()
+                }
+                ,
+                this.pauseIncomingRequests = () => {
+                    this._canLoadRequests = !1
+                }
+                ;
+                const t = [];
+                new Promise((e => {
+                    this._pendingRequestsResolver = e
+                }
+                )).then(( () => {
+                    t.forEach(( ([e,t]) => {
+                        e(t)
+                    }
+                    ))
+                }
+                )),
+                window.fetch = new Proxy(window.fetch,{
+                    apply: (e, i, [n,o]) => {
+                        const r = o?.headers?.Accept?.includes("text/vnd.reddit.partial+html") || "string" == typeof n && n.includes("render-mode=partial") || n instanceof URL && n.search.includes("render-mode=partial");
+                        return this._canLoadRequests || !r ? e(n, o) : new Promise((i => {
+                            t.push([i, e(n, o)])
+                        }
+                        ))
+                    }
+                }),
+                window.Response = new Proxy(window.Response,{
+                    construct(e, [t,i]) {
+                        const n = Reflect.construct(e, [t, i]);
+                        return (i?.headers instanceof Headers && i?.headers?.has(k) || i?.headers?.[k]) && n.headers.delete(k),
+                        n
+                    }
+                }),
+                window.Headers.prototype.set = new Proxy(window.Headers.prototype.set,{
+                    apply(e, t, [i,n]) {
+                        if (i !== k)
+                            return Reflect.apply(e, t, [i, n])
+                    }
+                })
+            }
+            connectedCallback() {
+                super.connectedCallback(),
+                this._canLoadRequests = this.canLoadRequests
+            }
+        }
+        return i[fs] = !0,
+        t([d({
+            type: Boolean,
+            attribute: "can-load-requests"
+        })], i.prototype, "canLoadRequests", void 0),
+        i
+    }(function(e) {
+        var t;
+        return La in e ? e : (t = class extends e {
+            constructor() {
+                super(...arguments),
+                this.supportsDvh = !1,
+                this._cleanupDvhPolyfill = () => {}
+                ,
+                this._updateHeight = () => {
+                    this._setDynamicViewportUnit((document.documentElement.clientHeight / 100).toFixed(1) + "px")
+                }
+                ,
+                this._updateHeightDebounced = ka(this._updateHeight, 50)
+            }
+            connectedCallback() {
+                super.connectedCallback(),
+                this.supportsDvh = CSS.supports("height: 100dvh"),
+                this._polyfillDvh()
+            }
+            disconnectedCallback() {
+                super.disconnectedCallback(),
+                this._cleanupDvhPolyfill()
+            }
+            _polyfillDvh() {
+                if (this.supportsDvh)
+                    this._setDynamicViewportUnit("1dvh");
+                else {
+                    const e = window.matchMedia?.("(orientation: landscape)");
+                    e?.addEventListener?.("change", this._updateHeightDebounced),
+                    window.addEventListener("resize", this._updateHeightDebounced),
+                    this._updateHeight(),
+                    this._cleanupDvhPolyfill = () => {
+                        window.removeEventListener("resize", this._updateHeightDebounced),
+                        e?.removeEventListener?.("change", this._updateHeightDebounced)
+                    }
+                }
+            }
+            _setDynamicViewportUnit(e) {
+                document.documentElement.style?.setProperty?.("--dvh-unit", e),
+                document.documentElement.style?.setProperty?.("--viewport-height", "calc(calc(var(--dvh-unit) * 100))")
+            }
+        }
+        ,
+        t[La] = !0,
+        t)
+    }(function(e) {
+        if (_s(e, Yl))
+            return e;
+        class t extends e {
+            goToMweb() {
+                Ql.href = `${CLIENT_CONFIG.ORIGIN}/register/`
+            }
+            getAuthFlowManager() {
+                return document.querySelector("auth-flow-manager")
+            }
+            constructor(...e) {
+                super(...e),
+                this.isUserLoggedIn = !1,
+                this._overlayEvents = new g(this),
+                this.displays = [],
+                this.handleLoggedInAction = async (e, t) => {
+                    if (!this.isUserLoggedIn)
+                        if (window.navigator.onLine) {
+                            await this.updateComplete;
+                            (await this.displayAuthFlow({
+                                ...e.detail,
+                                ...t
+                            })) || this.goToMweb()
+                        } else
+                            this.showBrowserOfflineToast()
+                }
+                ,
+                this.onLoggedInAction = (e, t) => {
+                    const i = this.getActionSourceFromEvent(e)
+                      , n = e.detail?.thingType
+                      , o = e.detail?.username
+                      , r = e.detail?.subreddit_name;
+                    this.handleLoggedInAction(e, {
+                        ...t,
+                        ...(n ? {
+                            thingType: n
+                        } : {}),
+                        ...(o ? {
+                            username: o
+                        } : {}),
+                        ...(r ? {
+                            subredditName: r
+                        } : {}),
+                        actionSource: i
+                    })
+                }
+                ,
+                this.handleFaceplateTrack = (e, t) => {
+                    const i = e.SAN ?? gt(e.detail)
+                      , n = e.detail?.popup?.button_text;
+                    (function(e, t, i) {
+                        return e.some((e => {
+                            const [n,o] = e.split(":");
+                            return t === n && (!o || i === o)
+                        }
+                        ))
+                    }
+                    )(J, i, n) && this.handleLoggedInAction(e, {
+                        ...t,
+                        actionSource: this.getActionSource(e.detail?.action, e.detail?.noun),
+                        san: i
+                    })
+                }
+                ,
+                this.registerDisplay = this._overlayEvents.define("register-overlay-display", (e => {
+                    const t = e.detail.display;
+                    -1 === this.displays.indexOf(t) && this.displays.push(t)
+                }
+                )),
+                this.unregisterDisplay = this._overlayEvents.define("unregister-overlay-display", (e => {
+                    const t = e.detail.display
+                      , i = this.displays.indexOf(t);
+                    -1 !== i && this.displays.splice(i, 1)
+                }
+                )),
+                this.dismissOverlay = this._overlayEvents.define("dismiss-overlay", ( () => {
+                    for (const e of this.displays)
+                        e.dismissOverlay()
+                }
+                )),
+                this._overlayEvents.define(Y.upvote, this.onLoggedInAction),
+                this._overlayEvents.define(Y.upvoteTry, this.onLoggedInAction),
+                this._overlayEvents.define(Y.downvote, this.onLoggedInAction),
+                this._overlayEvents.define(Y.downvoteTry, this.onLoggedInAction),
+                this._overlayEvents.define(Y.reply, this.onLoggedInAction),
+                this._overlayEvents.define(Y[al], this.onLoggedInAction),
+                this._overlayEvents.define(Y.signup, this.onLoggedInAction),
+                this._overlayEvents.define(Y.save, this.onLoggedInAction),
+                this._overlayEvents.define(Y.follow, this.onLoggedInAction),
+                this._overlayEvents.define(Y.awards, this.onLoggedInAction),
+                this._overlayEvents.define(Y.purchaseProduct, this.onLoggedInAction),
+                this._overlayEvents.define(Y.vaultLogin, this.onLoggedInAction),
+                this._overlayEvents.define(Y.report, this.onLoggedInAction),
+                this._overlayEvents.define(Y[q], this.onLoggedInAction),
+                this._overlayEvents.define(Y[K], this.handleFaceplateTrack)
+            }
+            displayOverlay(e, t) {
+                let i = !1;
+                for (const n of this.displays)
+                    n.displayOverlay(e, t),
+                    i = !0;
+                return i
+            }
+            async displayAuthFlow(e={}) {
+                const t = this.getAuthFlowManager();
+                if (Q.includes(e.san ?? ""))
+                    return t.show(Nl.Login);
+                {
+                    const i = e.permalink ?? (e.details && e.details.permalink) ?? "";
+                    try {
+                        if (t.hasStep(Nl.LoggedInAction))
+                            return t.show(Nl.LoggedInAction, {
+                                queryParams: e
+                            });
+                        {
+                            const t = new URLSearchParams(window.location.search).get("token") ?? void 0;
+                            return await ql({
+                                name: "SignupDrawer_LcD4fG",
+                                renderMode: ye.Contents,
+                                queryParams: {
+                                    ...e,
+                                    ...(t && {
+                                        token: t
+                                    }),
+                                    permalink: i
+                                }
+                            }),
+                            !0;
+                        }
+                    } catch (n) {
+                        return t.show(Nl.Register, {
+                            queryParams: {
+                                thingId: e.thingId,
+                                actionSource: e.actionSource,
+                                permalink: i
+                            }
+                        })
+                    }
+                }
+            }
+            showBrowserOfflineToast() {
+                const e = v("faceplate-alert", {
+                    level: ve.warning,
+                    message: "Sem conexão com a internet. Por favor, tente novamente."
+                });
+                this.dispatchEvent(e)
+            }
+            getActionSource(e, t) {
+                if ("click" === e)
+                    switch (t) {
+                    case W.UpvoteComment:
+                        return H.Upvote;
+                    case W.DownvoteComment:
+                        return H.Downvote;
+                    case W.ReplyComment:
+                        return H.Reply;
+                    case W.Report:
+                        return H.Report
+                    }
+            }
+            getActionSourceFromEvent(e) {
+                return e.type === Y.upvoteTry ? H.Upvote : e.type === Y.downvoteTry ? H.Downvote : e.type
+            }
+        }
+        return t[Yl] = !0,
+        t
+    }(e.s)))
+      , Oc = () => {}
+      , wc = [vs.FIRST_CONTENTFUL_PAINT, ...Ss];
+    let Dc = class extends Nc {
+        get csrfProviderToken() {
+            return wt.get("csrf_token") ?? ""
+        }
+        constructor() {
+            super(),
+            this.isUserLoggedIn = !1,
+            this.isBfCacheRestore = !1,
+            this.isNavigationControllerRestore = !1,
+            this.translationContextValue = Ba,
+            this.prefetch = !1,
+            this.debug = !1,
+            this.isBlank = !1,
+            this.routeName = "",
+            this.serverRenderId = "",
+            this.correlationId = "",
+            this.feedCorrelationId = "",
+            this.loid = "",
+            this.canonicalUrl = "",
+            this.deviceType = qt.MOBILE,
+            this.referrer = document.referrer,
+            this.referrerType = Yt.Reddit,
+            this.country = "US",
+            this.browser = "unknown",
+            this.isCanary = !1,
+            this.shouldUpdateRecaptcha = !0,
+            this.shouldTrackAppInstalled = !1,
+            this.appName = Pa,
+            this.shouldObservePerformance = !1,
+            this.release = "unknown",
+            this.microAppName = "unknown",
+            this.microAppPool = "unknown",
+            this.microAppDeployment = "unknown",
+            this.clientHash = "",
+            this.seekerSession = !1,
+            this.commentsPartialSSR = "",
+            this.disablePNs = !1,
+            this.reportTranslationMetrics = !1,
+            this.hasNonImmersiveTranslations = !1,
+            this.paidUaEnabled = !1,
+            this.isBot = !1,
+            this._alertControllerElement = null,
+            this.perfMetrics = {},
+            this.ttfb_fcp_sent = !1,
+            this.lcp_sent = !1,
+            this.cls_sent = !1,
+            this.inp_sent = !1,
+            this.tpl_sent = !1,
+            this.success = !0,
+            this.screenViewData = {},
+            this._events = new g(this),
+            this._v2Events = new xt(this,( () => {}
+            )),
+            this._alertReporter = new Pc(this),
+            this._screenReaderAlertReceiver = new Cs(this),
+            this._w3Reporter = new $i(this,( () => ({
+                auth_state: this.isUserLoggedIn ? "logged_in" : "logged_out",
+                browser: this.browser,
+                deployment_type: this.isCanary ? "canary" : "main",
+                device_type: this.deviceType,
+                page_type: (this.pageType ?? "").toLowerCase(),
+                referrer_type: this.referrerType
+            }))),
+            this._visibilityChange = new zn(this),
+            this._navigationController = new vr(this),
+            this._navigationSideEffectController = new Ha(this),
+            this._alertsBuffer = [],
+            this._connectBufferTimeMs = 2500,
+            this._isAlertBuffering = !1,
+            this.timeToCommentController = new Fr(this),
+            this.updateTranslationContextCookie = () => {
+                Un({
+                    country: this.country,
+                    name: wn,
+                    value: JSON.stringify(this.translationContextValue),
+                    options: Rn
+                })
+            }
+            ,
+            this.clearActiveToasts = () => {
+                if (!(this._alertControllerElement && this._alertControllerElement.parentElement || (this._alertControllerElement = document.querySelector("alert-controller"),
+                null !== this._alertControllerElement)))
+                    return;
+                const {toaster: e} = this._alertControllerElement;
+                Array.from(e?.querySelectorAll("faceplate-toast") || []).forEach((e => e.remove()))
+            }
+            ,
+            this.closeOfflineBannersIfOnline = () => {
+                navigator.onLine && this.clearActiveToasts()
+            }
+            ,
+            this.handleOnline = () => {
+                window.removeEventListener("faceplate-alert", Oc),
+                this.closeOfflineBannersIfOnline()
+            }
+            ,
+            this.handleOffline = () => {
+                this.clearActiveToasts(),
+                this._alertReporter.report({
+                    level: ve.warning,
+                    message: "Parece que você está offline.",
+                    meta: {
+                        disableAutoDismiss: !0
+                    },
+                    namedContent: {
+                        icon: e.c({
+                            size: e.I.Large
+                        })
+                    },
+                    sourceElement: this.tagName,
+                    cause: ic.UserWentOffline
+                }),
+                window.addEventListener("faceplate-alert", Oc)
+            }
+            ,
+            this.handleFaceplateTrack = e => {
+                const t = this.querySelector("#canonical-url-updater")
+                  , i = t?.getAttribute("value") ?? "";
+                i && i !== this.canonicalUrl && (this.canonicalUrl = i);
+                const n = e.detail
+                  , o = {
+                    ...si(n),
+                    action_info: {
+                        ...n.action_info,
+                        page_type: n.action_info?.page_type || this._getPageType()
+                    },
+                    request: {
+                        ...n.request,
+                        canonical_url: this.canonicalUrl
+                    }
+                };
+                this._handleEvent(o),
+                this._logIfMissingCorrelationId(o, "faceplate-track")
+            }
+            ,
+            this.handleUpdateTranslationContext = e => {
+                if (this.hasNonImmersiveTranslations)
+                    return;
+                const t = e?.detail;
+                t && "object" == typeof t && (this.translationContextValue = {
+                    ...this.translationContextValue,
+                    ...t
+                },
+                this.updateTranslationContextCookie())
+            }
+            ,
+            this.toggleSidebar = this._events.define("logo-click", ( () => {
+                this.classList.toggle("sidebar-open")
+            }
+            )),
+            this.onPageHide = () => {
+                Cc()
+            }
+            ,
+            this.onPageShow = async e => {
+                const t = performance.getEntriesByType("navigation").some((e => "back_forward" === e.type)) || performance.navigation.type === PerformanceNavigation.TYPE_BACK_FORWARD
+                  , i = e.persisted
+                  , n = await this._w3Reporter.getW3ReportSender();
+                t && (this.isBfCacheRestore = i,
+                n({
+                    name: "shreddit_page_shows_total",
+                    type: da.Counter,
+                    value: 1,
+                    labels: {
+                        browser: this.browser,
+                        cached: `${i}`,
+                        auth_state: this.isUserLoggedIn ? "logged_in" : "logged_out",
+                        page_type: this._getPageType()
+                    }
+                })),
+                this.closeOfflineBannersIfOnline()
+            }
+            ,
+            this.updateCorrelationIdsFromStorage = () => {
+                let e = {};
+                try {
+                    e = JSON.parse(this.dataset.faceplateTrackingContext || "{}")
+                } catch (e) {
+                    window.Sentry?.captureException?.(e)
+                }
+                try {
+                    const t = window.sessionStorage.getItem(un)
+                      , i = window.sessionStorage.getItem(hn);
+                    t && (this.correlationId = t,
+                    window.sessionStorage.removeItem(un)),
+                    i && (this.feedCorrelationId = this.feedCorrelationId || i,
+                    window.sessionStorage.removeItem(hn)),
+                    this.isCached() && !this.correlationId && (this.correlationId = Vt());
+                    const n = {
+                        correlation_id: this.correlationId,
+                        ...(this.feedCorrelationId ? {
+                            feed: {
+                                correlation_id: this.feedCorrelationId
+                            }
+                        } : {})
+                    };
+                    _t(n, e),
+                    this.dataset.faceplateTrackingContext = JSON.stringify(n)
+                } catch (e) {
+                    window.Sentry?.captureException?.(e)
+                }
+            }
+            ,
+            this.isErrorPage = () => !!(document.querySelector("#shreddit-forbidden") || document.querySelector("guard-community-modal") || document.querySelector(".subreddit-content-error")),
+            this.isCached = () => "true" === this.getAttribute("is-cached"),
+            this.onFaceplateRequest = e => {
+                this.addCSRFToken(e);
+                const {body: t} = e.detail.request;
+                if (t?.meta && (t.meta.page_not_found = ""),
+                "/svc/shreddit/perfMetrics" === e.detail.resource) {
+                    t.meta = {
+                        ...t.meta,
+                        route_name: this.routeName,
+                        page_type: this.pageType || "",
+                        prefetch: this.prefetch.toString(),
+                        microapp_name: this.microAppName,
+                        device_type: this.deviceType,
+                        is_ssr: this.commentsPartialSSR ? this.commentsPartialSSR : "unknown"
+                    },
+                    this.success = !this.isErrorPage();
+                    !!document.querySelector("#shreddit-forbidden-not_found") && (t.meta.page_not_found = 1);
+                    const i = this.getPerformanceAttribution(t);
+                    this.handleWebVitalW3Reporting(t.metrics, {
+                        hybrid: !1,
+                        attribution: i
+                    }),
+                    this.batchPerfV2Event(t.metrics, {
+                        attribution: i
+                    }),
+                    Object.keys(t.metrics).every((e => !wc.includes(e))) && e.preventDefault()
+                }
+            }
+            ,
+            this.onPixelFired = e => {
+                const t = {
+                    level: ve.debug,
+                    name: "pixel",
+                    meta: e.detail
+                };
+                !this._alertReporter.report(t) && this._isAlertBuffering && this._alertsBuffer.push(t)
+            }
+            ,
+            this._enrichScreenView = this._events.define("screenview-data-loaded", (e => {
+                this.screenViewData = e.detail
+            }
+            )),
+            this._updateCanonicalUrl = this._events.define("canonical-url-updated", (e => {
+                this.canonicalUrl = e.detail
+            }
+            )),
+            this._firstCommentUpdate = this._events.define(Aa, ( () => {
+                const e = this.querySelector("faceplate-partial.lb-lazy-preload");
+                e && e.classList.remove("hidden")
+            }
+            )),
+            this._pageviewUnsuccessful = this._events.define("unsuccessful-pageview", ( () => {
+                this.success = !1
+            }
+            )),
+            this._handleEvent = e => {
+                if (!this.shouldOmitRblGVS(e) && (yc(e),
+                this.debug)) {
+                    const t = {
+                        level: ve.debug,
+                        name: "v2event",
+                        meta: JSON.stringify(e)
+                    };
+                    !this._alertReporter.report(t) && this._isAlertBuffering && this._alertsBuffer.push(t)
+                }
+            }
+            ,
+            this._logIfMissingCorrelationId = (e, t) => {
+                if (!this.isCached())
+                    try {
+                        const i = Me(this, "faceplateTrackingContext");
+                        e.correlation_id || window.Sentry?.captureMessage?.(`${t} missing correlation-id`, {
+                            tags: {
+                                connected: this.isConnected,
+                                updated: this.hasUpdated,
+                                event: `${e.source}|${e.action}|${e.noun}`,
+                                correlationId: !!this.correlationId,
+                                faceplateTrackingCorrelationId: !(!i || !i.correlation_id)
+                            }
+                        }),
+                        this.feedCorrelationId && !e.feed?.correlation_id && window.Sentry?.captureMessage?.(`${t} missing correlation-id`, {
+                            tags: {
+                                connected: this.isConnected,
+                                updated: this.hasUpdated,
+                                event: `${e.source}|${e.action}|${e.noun}`,
+                                feedCorrelationId: !!this.feedCorrelationId,
+                                faceplateTrackingFeedCorrelationId: !(!i || !i.feed?.correlation_id)
+                            }
+                        })
+                    } catch (e) {
+                        window.Sentry?.captureMessage?.(`Error reporting on ${t} with missing correlation_id: ${e.message}`)
+                    }
+            }
+            ,
+            this._trackEvent = this._events.define("track-event", (async e => {
+                const t = this._addEventDetails(e);
+                this._handleEvent(t),
+                this._logIfMissingCorrelationId(t, "track-event")
+            }
+            )),
+            this._setTimeoutForAlertBuffer = () => {
+                if (this._isAlertBuffering)
+                    return;
+                this._isAlertBuffering = !0;
+                const e = e => {
+                    this._isAlertBuffering && (e.stopImmediatePropagation(),
+                    this._alertsBuffer.push(e.detail))
+                }
+                  , t = () => {
+                    this._alertsBuffer = this._alertsBuffer.filter((e => !this._alertReporter.report(e)))
+                }
+                ;
+                this.addEventListener("faceplate-alert", e);
+                const i = setInterval(t, 250);
+                setTimeout(( () => {
+                    clearInterval(i),
+                    t(),
+                    this.removeEventListener("faceplate-alert", e),
+                    this._isAlertBuffering = !1,
+                    this._alertsBuffer = []
+                }
+                ), this._connectBufferTimeMs)
+            }
+            ,
+            this._getPageType = () => (this.pageType ?? "").toLowerCase(),
+            this._onLoadEmbed = this._events.define(Oa, ( () => {
+                var e;
+                mt(this, (e = this.screenViewData,
+                si({
+                    source: D.Global,
+                    action: M.Load,
+                    noun: w.Embed
+                }, e)))
+            }
+            )),
+            this._onEmbedClicked = this._events.define(wa, (e => {
+                mt(this, ( (e, t) => {
+                    const i = {
+                        ...e,
+                        action_info: {
+                            ...e?.action_info,
+                            type: Ni.Whitespace
+                        }
+                    };
+                    return t?.post && (i.post = t.post),
+                    t?.action_info?.position && (i.action_info.position = t.action_info.position),
+                    si({
+                        source: D.Global,
+                        action: M.Click,
+                        noun: w.Embed
+                    }, i)
+                }
+                )(this.screenViewData, e.detail.details))
+            }
+            )),
+            this._onEmbedEntrypointClicked = this._events.define(Da, (e => {
+                mt(this, ( (e, t) => {
+                    const i = {
+                        ...e
+                    };
+                    return t?.comment && (i.comment = t?.comment),
+                    si({
+                        source: D.Share,
+                        action: M.Click,
+                        noun: w.SnippetEmbed
+                    }, i)
+                }
+                )(this.screenViewData, e.detail.details))
+            }
+            )),
+            this._onEmbedEntrypointViewed = this._events.define(Ma, (e => {
+                mt(this, ( (e, t) => {
+                    const i = {
+                        ...e,
+                        action_info: {
+                            ...e?.action_info,
+                            type: Ni.HighlightTextComponent
+                        }
+                    };
+                    return t?.comment && (i.comment = t?.comment),
+                    si({
+                        source: D.Share,
+                        action: M.View,
+                        noun: w.HighlightMenu
+                    }, i)
+                }
+                )(this.screenViewData, e.detail.details))
+            }
+            )),
+            this._storeCorrelationId = this._events.define(pn, ( () => {
+                try {
+                    this.correlationId && window.sessionStorage.setItem(un, this.correlationId)
+                } catch (e) {
+                    window.Sentry?.captureException?.(e)
+                }
+            }
+            )),
+            this._storeFeedCorrelationId = this._events.define(mn, ( () => {
+                try {
+                    this.feedCorrelationId && window.sessionStorage.setItem(hn, this.feedCorrelationId)
+                } catch (e) {
+                    window.Sentry?.captureException?.(e)
+                }
+            }
+            )),
+            this._enrichErrorBannerEvents = this._events.define("faceplate-alert", (e => {
+                if (e.detail.level !== ve.error || !e.target || (e => {
+                    const t = e.detail;
+                    return "_shredditEnriched"in t && !0 === t._shredditEnriched
+                }
+                )(e))
+                    return;
+                e.stopImmediatePropagation();
+                const t = Zl(e);
+                e.target.dispatchEvent(t)
+            }
+            ), {
+                capture: !0
+            }),
+            this.addEventListener("update-translation-context", this.handleUpdateTranslationContext),
+            this.addEventListener("faceplate-request", this.onFaceplateRequest),
+            window.addEventListener("pixelFired", this.onPixelFired),
+            window.addEventListener("faceplate-track", this.handleFaceplateTrack),
+            window.addEventListener("offline", this.handleOffline),
+            window.addEventListener("online", this.handleOnline),
+            window.addEventListener("beforeRoute", Cc),
+            window.addEventListener("afterRoute", this._setTimeoutForAlertBuffer);
+            const t = this.querySelector("#canonical-url-updater");
+            this.canonicalUrl = t?.getAttribute("value") ?? "",
+            this._setTimeoutForAlertBuffer()
+        }
+        static get styles() {
+            return [ee, X(":host {\n  display: block;\n}\n")]
+        }
+        render() {
+            return e.x` <devvit-wrapper loid="${this.loid}" ?is-desktop-viewport="${this.deviceType === qt.DESKTOP}" ?is-dark-mode-enabled="${Es()}"> <slot></slot> </devvit-wrapper> `
+        }
+        initScreenViewData() {
+            const e = this.getAttribute("serverrenderid")
+              , t = this.getAttribute("loid")
+              , i = wt.get("loid");
+            if (!this.isCached() || t && t === i || !i) {
+                if (t !== i) {
+                    const e = t?.split(".")[2] || (t ? "NE" : "E")
+                      , n = i?.split(".")[2] || (i ? "NE" : "E");
+                    this._handleEvent(di({
+                        name: "shreddit_client_loid_mismatch",
+                        label_values: ["v,2", `sla,${e}`, `cla,${n}`],
+                        value: 1
+                    }))
+                }
+            } else
+                this.loid = i;
+            if (this.isCached() && !e) {
+                const e = wt.get("server_request_id") ?? Vt();
+                this.serverRenderId = e,
+                wt.remove("server_request_id")
+            }
+            try {
+                const e = this.querySelector("shreddit-screenview-data")
+                  , t = e?.getAttribute("data") || "{}";
+                this.screenViewData = JSON.parse(t)
+            } catch (e) {
+                console.error("invalid screenview data")
+            }
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            new Pr(this),
+            this.updateCorrelationIdsFromStorage(),
+            window.addEventListener("pageshow", this.onPageShow),
+            window.addEventListener("pagehide", this.onPageHide),
+            Eo.deviceType = this.deviceType,
+            this.success = !this.isErrorPage(),
+            this.initScreenViewData(),
+            this._visibilityChange.trackScreenview(),
+            this.styleOverrideController = new $o(this),
+            Es() && !document.documentElement.classList.contains("theme-dark") && document.documentElement.classList.add("theme-dark"),
+            this.shouldTrackAppInstalled && (async (e=window) => si({
+                source: "onboarding",
+                action: "check",
+                noun: "app_install"
+            }, {
+                action_info: {
+                    type: await Rs(e)
+                }
+            }))().then((e => mt(this, e))),
+            (async (e, t=window) => {
+                if (rl(t) && (Un({
+                    name: "pwa",
+                    value: "1",
+                    country: e,
+                    options: Rn
+                }),
+                !Yi.getItem("pwa-pn-prompt"))) {
+                    const e = await Jd();
+                    [jd.Pending, jd.NoSubscription].includes(e) && (Xd(),
+                    Yi.setItem("pwa-pn-prompt", `${Date.now()}`))
+                }
+            }
+            )(this.country),
+            this.pageType !== Qt.Embed && (async (e=navigator.serviceWorker) => {
+                const t = window.CLIENT_EXPERIMENTS ?? {}
+                  , i = "enabled" === t.shreddit_service_worker_registration;
+                if ("enabled" === t.shreddit_service_worker_killswitch) {
+                    const t = await (e?.getRegistrations());
+                    for (const e of t)
+                        e.unregister()
+                } else if (i) {
+                    try {
+                        const t = await (e?.register("/sw.js", {
+                            type: "module",
+                            updateViaCache: "all"
+                        }));
+                        tl.resolve(t)
+                    } catch (e) {
+                        return void tl.reject(e)
+                    }
+                    il(e),
+                    nl(e),
+                    el || (window.addEventListener("afterRoute", ( () => il(e))),
+                    el = !0)
+                }
+            }
+            )().then(( () => {
+                !async function(e=navigator.serviceWorker, t=Qd()) {
+                    if ((await Jd(e, t)) !== jd.Enabled)
+                        return !1;
+                    const i = Number(Yi.getItem(zd) ?? "0");
+                    !(Date.now() - i < 144e5) && Yd(!0, e)
+                }()
+            }
+            )),
+            this.reportTranslationMetrics && (this._translationMetricsController = new gs(this)),
+            on(this.closeOfflineBannersIfOnline)
+        }
+        willUpdate(e) {
+            this.hasUpdated && (e.has("correlationId") || e.has("feedCorrelationId")) && this.updateCorrelationIdsFromStorage()
+        }
+        disconnectedCallback() {
+            super.disconnectedCallback(),
+            window.removeEventListener("pageshow", this.onPageShow),
+            window.removeEventListener("pagehide", this.onPageHide),
+            window.removeEventListener("pixelFired", this.onPixelFired),
+            window.removeEventListener("faceplate-track", this.handleFaceplateTrack),
+            window.removeEventListener("offline", this.handleOffline),
+            window.removeEventListener("online", this.handleOnline),
+            window.removeEventListener("afterRoute", this._setTimeoutForAlertBuffer),
+            this._alertControllerElement = null
+        }
+        getPerformanceAttribution(e) {
+            return Object.keys(e.metrics).reduce(( (t, i) => {
+                const n = e.meta[i] ?? {};
+                if (i === vs.LARGEST_CONTENTFUL_PAINT && !this.lcp_sent) {
+                    const {lcpEntry: e, timeToFirstByte: t} = n;
+                    n.expectedLcpElement = ue(e?.element),
+                    "number" == typeof t && (n.expectedLcpTtfb = Math.round(t))
+                }
+                return Object.assign(t, {
+                    [i]: n
+                })
+            }
+            ), {})
+        }
+        addCSRFToken(e) {
+            const t = e.detail.request.body;
+            t && ("function" != typeof t.append ? Object.getPrototypeOf(t) === Object.getPrototypeOf({}) && (t.csrf_token = this.csrfProviderToken) : t.append("csrf_token", this.csrfProviderToken))
+        }
+        trackClickWordmark() {
+            mt(this, Gi())
+        }
+        async buildPerfEvent(e, t) {
+            t.cache_status = "true" === this.getAttribute("is-cached") ? "true" : "false",
+            performance.getEntriesByType("navigation").forEach((e => {
+                if (e instanceof PerformanceNavigationTiming && e.serverTiming) {
+                    const i = e.serverTiming.find((e => "exp" === e.name))
+                      , n = i?.description?.split(":");
+                    if (2 === n?.length) {
+                        Ko({
+                            experimentName: "shreddit_cdn_caching_milestone_1",
+                            variant: n[0],
+                            experimentVersion: n[1]
+                        })
+                    }
+                    const o = e.serverTiming.find((e => "cache" === e.name));
+                    o?.description && (t.cache_status = o?.description)
+                }
+            }
+            )),
+            t.serving_cluster = this.getAttribute("cluster") || "",
+            t.gql_served = await function() {
+                if (null !== Mc)
+                    return Mc;
+                if ("function" == typeof window.__servedBy?.then) {
+                    const e = new Promise((e => setTimeout(( () => e("timeout")), 300)));
+                    return Promise.race([window.__servedBy, e]).then((e => (Mc = e || "unknown",
+                    Mc)))
+                }
+                return Promise.resolve("unknown")
+            }(),
+            t.serving_pop = this.getAttribute("spp") || "";
+            const i = {
+                source: "client",
+                action: "record",
+                noun: e,
+                perf_metrics: t,
+                request: {
+                    canonical_url: this.canonicalUrl
+                },
+                browser_context: {
+                    hybrid_navigation_count: Tr(),
+                    release: this.release,
+                    time_origin: Math.round(performance.timeOrigin)
+                },
+                action_info: {
+                    page_type: this.pageType,
+                    route_name: this.routeName
+                }
+            };
+            return this._visibilityChange._screenviewId && (i.screenview_id = this._visibilityChange._screenviewId),
+            i
+        }
+        batchPerfV2Event(e, {attribution: t}) {
+            const i = {
+                ...this.perfMetrics,
+                ...e
+            };
+            if (this.perfMetrics = i,
+            this.debug && (window.perfMetrics = this.perfMetrics),
+            !this.ttfb_fcp_sent && void 0 !== i["first-contentful-paint"] && void 0 !== i["time-to-first-byte"]) {
+                const e = {
+                    time_to_first_byte: i["time-to-first-byte"],
+                    first_contentful_paint: i["first-contentful-paint"]
+                };
+                this.buildPerfEvent("ttfb_fcp", e).then((e => {
+                    this._handleEvent(si(e))
+                }
+                )),
+                this.ttfb_fcp_sent = !0
+            }
+            if (!this.inp_sent && void 0 !== i[vs.INTERACTION_TO_NEXT_PAINT]) {
+                const e = {
+                    interaction_to_next_paint: i[vs.INTERACTION_TO_NEXT_PAINT]
+                };
+                this.buildPerfEvent("inp", e).then((e => {
+                    this._handleEvent(si(e))
+                }
+                )),
+                this.inp_sent = !0
+            }
+            if (!this.cls_sent && void 0 !== i[vs.CUMULATIVE_LAYOUT_SHIFT]) {
+                const e = {
+                    cumulative_layout_shift_float: i[vs.CUMULATIVE_LAYOUT_SHIFT]
+                };
+                this.buildPerfEvent("cls", e).then((e => {
+                    this._handleEvent(si(e))
+                }
+                )),
+                this.cls_sent = !0
+            }
+            if (!this.lcp_sent && void 0 !== i[vs.LARGEST_CONTENTFUL_PAINT]) {
+                const e = {
+                    largest_contentful_paint: i[vs.LARGEST_CONTENTFUL_PAINT]
+                }
+                  , {expectedLcpElement: n, expectedLcpTtfb: o} = t?.[vs.LARGEST_CONTENTFUL_PAINT] ?? {};
+                e.expected_lcp_element = n,
+                null != o && (e.expected_lcp_ttfb = o),
+                this.buildPerfEvent("lcp", e).then((e => {
+                    this._handleEvent(si(e))
+                }
+                )),
+                this.lcp_sent = !0
+            }
+            if (!this.tpl_sent && null != i[vs.TOTAL_PAGE_LOAD]) {
+                const e = {
+                    total_page_load: i[vs.TOTAL_PAGE_LOAD]
+                };
+                this.buildPerfEvent("total_page_load", e).then((e => {
+                    this._handleEvent(si(e))
+                }
+                )),
+                this.tpl_sent = !0
+            }
+        }
+        handleWebVitalW3Reporting(e, {hybrid: t, attribution: i}) {
+            Object.entries(e).forEach(( ([e,n]) => {
+                if (!(isFinite(n) && n > 0))
+                    return;
+                const o = {
+                    device_type: this.deviceType,
+                    is_logged_in: this.isUserLoggedIn ? "true" : "false",
+                    microapp_deployment: this.microAppDeployment,
+                    microapp_name: this.microAppName,
+                    microapp_pool: this.microAppPool,
+                    page_type: this.pageType || "",
+                    route_name: this.routeName,
+                    hybrid_nav: t ? "true" : "false",
+                    comments_lit_ssr: this.commentsPartialSSR ? this.commentsPartialSSR : "unknown",
+                    is_cached: this.isCached() ? "true" : "false"
+                };
+                switch (e) {
+                case vs.FIRST_CONTENTFUL_PAINT:
+                    this._w3ReportWebVital({
+                        name: "shreddit_first_contentful_paint_seconds",
+                        type: da.Histogram,
+                        value: n / 1e3,
+                        labels: o
+                    });
+                    break;
+                case vs.LARGEST_CONTENTFUL_PAINT:
+                    {
+                        const {expectedLcpElement: e} = i?.[vs.LARGEST_CONTENTFUL_PAINT] ?? {};
+                        o.expected_lcp_element = e,
+                        this._w3ReportWebVital({
+                            name: "shreddit_largest_contentful_paint_seconds",
+                            type: da.Histogram,
+                            value: n / 1e3,
+                            labels: o
+                        });
+                        break
+                    }
+                case vs.TIME_TO_FIRST_BYTE:
+                    this._w3ReportWebVital({
+                        name: "shreddit_time_to_first_byte_seconds",
+                        type: da.Histogram,
+                        value: n / 1e3,
+                        labels: o
+                    });
+                    break;
+                case vs.CUMULATIVE_LAYOUT_SHIFT:
+                    this._w3ReportWebVital({
+                        name: "shreddit_cumulative_layout_shift",
+                        type: da.Histogram,
+                        value: n,
+                        labels: o
+                    });
+                    break;
+                case vs.INTERACTION_TO_NEXT_PAINT:
+                    this._w3ReportWebVital({
+                        name: "shreddit_interaction_to_next_paint_seconds",
+                        type: da.Histogram,
+                        value: n / 1e3,
+                        labels: o
+                    })
+                }
+            }
+            ))
+        }
+        _w3ReportWebVital(...e) {
+            return Sa(...e)
+        }
+        shouldOmitRblGVS(e) {
+            const t = (i = e,
+            "global" === i?.source && "view" === i.action && "screen" === i.noun);
+            var i;
+            const n = e.action_info?.page_type === Qt.AdsRblSurvey;
+            return t && n
+        }
+        _addEventDetails(e) {
+            const t = e.composedPath()
+              , i = e.detail.details;
+            for (const e of t)
+                if (e instanceof HTMLElement) {
+                    const t = Me(e, "faceplateTrackingContext");
+                    t && _t(i, t)
+                }
+            return _t(i, {
+                action_info: {
+                    page_type: this._getPageType()
+                },
+                request: {
+                    canonical_url: this.canonicalUrl
+                }
+            }),
+            i
+        }
+    }
+    ;
+    t([Rt({
+        context: Ua
+    }), d({
+        type: Boolean,
+        attribute: "user-logged-in"
+    })], Dc.prototype, "isUserLoggedIn", void 0),
+    t([Rt({
+        context: Fa
+    }), l()], Dc.prototype, "translationContextValue", void 0),
+    t([d({
+        type: Boolean
+    })], Dc.prototype, "prefetch", void 0),
+    t([d({
+        type: Boolean
+    })], Dc.prototype, "debug", void 0),
+    t([d({
+        type: Boolean
+    })], Dc.prototype, "isBlank", void 0),
+    t([d({
+        type: String
+    })], Dc.prototype, "routeName", void 0),
+    t([d({
+        type: String
+    })], Dc.prototype, "pageType", void 0),
+    t([d({
+        type: String,
+        reflect: !0
+    })], Dc.prototype, "serverRenderId", void 0),
+    t([d({
+        type: String,
+        attribute: "correlation-id",
+        reflect: !0
+    })], Dc.prototype, "correlationId", void 0),
+    t([d({
+        type: String,
+        attribute: "feed-correlation-id",
+        reflect: !0
+    })], Dc.prototype, "feedCorrelationId", void 0),
+    t([d({
+        type: String,
+        reflect: !0
+    })], Dc.prototype, "loid", void 0),
+    t([d({
+        type: String
+    })], Dc.prototype, "canonicalUrl", void 0),
+    t([d({
+        type: String
+    })], Dc.prototype, "deviceType", void 0),
+    t([d({
+        type: String,
+        attribute: "referrer"
+    })], Dc.prototype, "referrer", void 0),
+    t([d({
+        type: String,
+        attribute: "referrer-type"
+    })], Dc.prototype, "referrerType", void 0),
+    t([d({
+        type: String,
+        attribute: "country"
+    })], Dc.prototype, "country", void 0),
+    t([d({
+        type: String,
+        attribute: "browser"
+    })], Dc.prototype, "browser", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "is-canary"
+    })], Dc.prototype, "isCanary", void 0),
+    t([d({
+        type: Boolean
+    })], Dc.prototype, "shouldUpdateRecaptcha", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "should-track-app-installed"
+    })], Dc.prototype, "shouldTrackAppInstalled", void 0),
+    t([d({
+        type: String,
+        attribute: "app-name"
+    })], Dc.prototype, "appName", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "should-observe-performance"
+    })], Dc.prototype, "shouldObservePerformance", void 0),
+    t([d({
+        type: String,
+        attribute: "release"
+    })], Dc.prototype, "release", void 0),
+    t([d({
+        type: String,
+        attribute: "microapp-name"
+    })], Dc.prototype, "microAppName", void 0),
+    t([d({
+        type: String,
+        attribute: "microapp-pool"
+    })], Dc.prototype, "microAppPool", void 0),
+    t([d({
+        type: String,
+        attribute: "microapp-deployment"
+    })], Dc.prototype, "microAppDeployment", void 0),
+    t([d({
+        type: String,
+        attribute: "clienthash"
+    })], Dc.prototype, "clientHash", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "seeker-session"
+    })], Dc.prototype, "seekerSession", void 0),
+    t([d({
+        type: String,
+        attribute: "comments-partial-ssr"
+    })], Dc.prototype, "commentsPartialSSR", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "disable-pns"
+    })], Dc.prototype, "disablePNs", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "report-translation-metrics"
+    })], Dc.prototype, "reportTranslationMetrics", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "has-non-immersive-translations"
+    })], Dc.prototype, "hasNonImmersiveTranslations", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "paid-ua-enabled"
+    })], Dc.prototype, "paidUaEnabled", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "is-bot"
+    })], Dc.prototype, "isBot", void 0),
+    t([l()], Dc.prototype, "perfMetrics", void 0),
+    Dc = t([a("shreddit-app")], Dc);
+    let Mc = null;
+    e.m("shreddit-logo", '<svg xmlns="http://www.w3.org/2000/svg"\n    viewBox="0 0 216 216"\n    xmlns:xlink="http://www.w3.org/1999/xlink"\n    xml:space="preserve">\n      <defs>\n        <linearGradient id="orangeredGradient" gradientTransform="rotate(90)">\n          <stop offset="0%" stop-color="#FE7B0E"></stop>\n          <stop offset="100%" stop-color="#EF0A22"></stop>\n        </linearGradient>\n      </defs>\n      <defs><radialGradient id="snoo-radial-gradient" cx="169.75" cy="92.19" r="50.98" fx="169.75" fy="92.19" gradientTransform="matrix(1 0 0 .87 0 11.64)" gradientUnits="userSpaceOnUse"><stop offset="0" stop-color="#feffff"/><stop offset=".4" stop-color="#feffff"/><stop offset=".51" stop-color="#f9fcfc"/><stop offset=".62" stop-color="#edf3f5"/><stop offset=".7" stop-color="#dee9ec"/><stop offset=".72" stop-color="#d8e4e8"/><stop offset=".76" stop-color="#ccd8df"/><stop offset=".8" stop-color="#c8d5dd"/><stop offset=".83" stop-color="#ccd6de"/><stop offset=".85" stop-color="#d8dbe2"/><stop offset=".88" stop-color="#ede3e9"/><stop offset=".9" stop-color="#ffebef"/></radialGradient><radialGradient xlink:href="#snoo-radial-gradient" id="snoo-radial-gradient-2" cx="47.31" r="50.98" fx="47.31"/><radialGradient xlink:href="#snoo-radial-gradient" id="snoo-radial-gradient-3" cx="109.61" cy="85.59" r="153.78" fx="109.61" fy="85.59" gradientTransform="matrix(1 0 0 .7 0 25.56)"/><radialGradient id="snoo-radial-gradient-4" cx="-6.01" cy="64.68" r="12.85" fx="-6.01" fy="64.68" gradientTransform="matrix(1.07 0 0 1.55 81.08 27.26)" gradientUnits="userSpaceOnUse"><stop offset="0" stop-color="#f60"/><stop offset=".5" stop-color="#ff4500"/><stop offset=".7" stop-color="#fc4301"/><stop offset=".82" stop-color="#f43f07"/><stop offset=".92" stop-color="#e53812"/><stop offset="1" stop-color="#d4301f"/></radialGradient><radialGradient xlink:href="#snoo-radial-gradient-4" id="snoo-radial-gradient-5" cx="-73.55" cy="64.68" r="12.85" fx="-73.55" fy="64.68" gradientTransform="matrix(-1.07 0 0 1.55 62.87 27.26)"/><radialGradient id="snoo-radial-gradient-6" cx="107.93" cy="166.96" r="45.3" fx="107.93" fy="166.96" gradientTransform="matrix(1 0 0 .66 0 57.4)" gradientUnits="userSpaceOnUse"><stop offset="0" stop-color="#172e35"/><stop offset=".29" stop-color="#0e1c21"/><stop offset=".73" stop-color="#030708"/><stop offset="1"/></radialGradient><radialGradient xlink:href="#snoo-radial-gradient" id="snoo-radial-gradient-7" cx="147.88" cy="32.94" r="39.77" fx="147.88" fy="32.94" gradientTransform="matrix(1 0 0 .98 0 .54)"/><radialGradient id="snoo-radial-gradient-8" cx="131.31" cy="73.08" r="32.6" fx="131.31" fy="73.08" gradientUnits="userSpaceOnUse"><stop offset=".48" stop-color="#7a9299"/><stop offset=".67" stop-color="#172e35"/><stop offset=".75"/><stop offset=".82" stop-color="#172e35"/></radialGradient><style>.snoo-cls-11,.snoo-cls-9{stroke-width:0}.snoo-cls-9{fill:#842123}.snoo-cls-11{fill:#ffc49c}</style></defs><path d="M108 0C48.35 0 0 48.35 0 108c0 29.82 12.09 56.82 31.63 76.37l-20.57 20.57C6.98 209.02 9.87 216 15.64 216H108c59.65 0 108-48.35 108-108S167.65 0 108 0Z" style="fill:#ff4500;stroke-width:0"/><circle cx="169.22" cy="106.98" r="25.22" style="stroke-width:0;fill:url(#snoo-radial-gradient)#fff"/><circle cx="46.78" cy="106.98" r="25.22" style="fill:url(#snoo-radial-gradient-2)#fff;stroke-width:0"/><ellipse cx="108.06" cy="128.64" rx="72" ry="54" style="fill:url(#snoo-radial-gradient-3)#fff;stroke-width:0"/><path d="M86.78 123.48c-.42 9.08-6.49 12.38-13.56 12.38s-12.46-4.93-12.04-14.01c.42-9.08 6.49-15.02 13.56-15.02s12.46 7.58 12.04 16.66Z" style="fill:url(#snoo-radial-gradient-4)#fc4301;stroke-width:0"/><path d="M129.35 123.48c.42 9.08 6.49 12.38 13.56 12.38s12.46-4.93 12.04-14.01c-.42-9.08-6.49-15.02-13.56-15.02s-12.46 7.58-12.04 16.66Z" style="fill:url(#snoo-radial-gradient-5)#fc4301;stroke-width:0"/><ellipse cx="79.63" cy="116.37" class="snoo-cls-11" rx="2.8" ry="3.05"/><ellipse cx="146.21" cy="116.37" class="snoo-cls-11" rx="2.8" ry="3.05"/><path d="M108.06 142.92c-8.76 0-17.16.43-24.92 1.22-1.33.13-2.17 1.51-1.65 2.74 4.35 10.39 14.61 17.69 26.57 17.69s22.23-7.3 26.57-17.69c.52-1.23-.33-2.61-1.65-2.74-7.77-.79-16.16-1.22-24.92-1.22Z" style="fill:url(#snoo-radial-gradient-6)#000;stroke-width:0"/><circle cx="147.49" cy="49.43" r="17.87" style="fill:url(#snoo-radial-gradient-7)#fff;stroke-width:0"/><path d="M107.8 76.92c-2.14 0-3.87-.89-3.87-2.27 0-16.01 13.03-29.04 29.04-29.04 2.14 0 3.87 1.73 3.87 3.87s-1.73 3.87-3.87 3.87c-11.74 0-21.29 9.55-21.29 21.29 0 1.38-1.73 2.27-3.87 2.27Z" style="fill:url(#snoo-radial-gradient-8)#000;stroke-width:0"/><path d="M62.82 122.65c.39-8.56 6.08-14.16 12.69-14.16 6.26 0 11.1 6.39 11.28 14.33.17-8.88-5.13-15.99-12.05-15.99s-13.14 6.05-13.56 15.2c-.42 9.15 4.97 13.83 12.04 13.83h.52c-6.44-.16-11.3-4.79-10.91-13.2ZM153.3 122.65c-.39-8.56-6.08-14.16-12.69-14.16-6.26 0-11.1 6.39-11.28 14.33-.17-8.88 5.13-15.99 12.05-15.99 7.07 0 13.14 6.05 13.56 15.2.42 9.15-4.97 13.83-12.04 13.83h-.52c6.44-.16 11.3-4.79 10.91-13.2Z" class="snoo-cls-9"/>\n    </svg>\n  ');
+    let kc = class extends e.s {
+        static get styles() {
+            return X(":host {\n  display: flex;\n  justify-content: center;\n  align-items: center;\n  position: relative;\n  height: 192px;\n  isolation: isolate;\n}\n:host:before {\n  content: '';\n  position: absolute;\n  width: 64px;\n  height: 64px;\n  background-color: var(--color-global-orangered);\n  opacity: 0.75;\n  border-radius: 100%;\n  animation: scaleout 1.5s infinite ease-in-out;\n}\n:host shreddit-logo {\n  font-size: 64px;\n  height: 64px;\n  width: 64px;\n  z-index: 1;\n}\n@keyframes scaleout {\n  0% {\n    transform: scale(1);\n  }\n  100% {\n    transform: scale(1.5);\n    opacity: 0;\n  }\n}\n")
+        }
+        render() {
+            return e.x` <shreddit-logo></shreddit-logo> `
+        }
+    }
+    ;
+    kc = t([a("shreddit-loading")], kc);
+    class Lc extends e.s {
+        render() {
+            return e.x` <slot></slot> `
+        }
+    }
+    Lc.styles = e.i`:host{display:block}`;
+    let Uc = class extends Lc {
+        constructor() {
+            super(...arguments),
+            this.pageTitle = ""
+        }
+        update(e) {
+            super.update(e),
+            this.setPageTitle(this.pageTitle)
+        }
+        setPageTitle(e) {
+            document.title = e,
+            ys(this, {
+                message: e,
+                options: {
+                    priority: Ts.assertive
+                }
+            })
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            this.setPageTitle(this.pageTitle)
+        }
+    }
+    ;
+    t([d({
+        type: String,
+        attribute: "title"
+    })], Uc.prototype, "pageTitle", void 0),
+    Uc = t([a("shreddit-title")], Uc);
+    const Fc = "serverTimestamps"
+      , Bc = ( () => {
+        const e = "test";
+        try {
+            return sessionStorage.setItem(e, e),
+            sessionStorage.removeItem(e),
+            !0
+        } catch (e) {
+            return !1
+        }
+    }
+    )()
+      , Vc = () => {
+        if (window.serverTimestamp && Bc) {
+            const {serverTimestamp: e} = window;
+            try {
+                const t = sessionStorage.getItem(Fc);
+                if (t) {
+                    return JSON.parse(t)[`${e}`]
+                }
+            } catch (e) {}
+        }
+        const e = window.performance.getEntriesByType("navigation")[0];
+        return e && e.responseEnd - e.responseStart < 8
+    }
+    ;
+    let xc = class extends e.s {
+        connectedCallback() {
+            super.connectedCallback(),
+            window.serverTimestamp = this.timestamp;
+            const e = `${this.timestamp}`;
+            if (Bc) {
+                const t = sessionStorage.getItem(Fc) || "{}";
+                let i = {};
+                try {
+                    i = JSON.parse(t)
+                } catch (e) {
+                    sessionStorage.setItem(Fc, "{}")
+                }
+                sessionStorage.setItem(Fc, JSON.stringify(Object.assign(Object.assign({}, i), {
+                    [e]: void 0 !== i[e]
+                })))
+            }
+        }
+    }
+    ;
+    t([d({
+        type: Number
+    })], xc.prototype, "timestamp", void 0),
+    xc = t([a("faceplate-server-session")], xc);
+    const Gc = Symbol("mixins/connect-event");
+    let Hc = class extends (function(e) {
+        if (Gc in e)
+            return e;
+        class t extends e {
+            connectedCallback() {
+                super.connectedCallback && super.connectedCallback(),
+                window.queueMicrotask(( () => this.dispatchConnectEvent()))
+            }
+            dispatchConnectEvent() {
+                if (!this.isConnected)
+                    return;
+                const e = this.makeConnectEvent();
+                return this.dispatchEvent(e),
+                e
+            }
+            makeConnectEvent() {
+                throw new Error("FaceplateEvent makeConnectEvent() method not implemented!")
+            }
+        }
+        return t[Gc] = !0,
+        t
+    }(HTMLElement)) {
+        static get styles() {
+            return e.i`:host{display:none}`
+        }
+        makeConnectEvent() {
+            const e = this.getAttribute("level");
+            let t;
+            if (e) {
+                const i = e.toLowerCase();
+                if (!Object.hasOwnProperty.call(ve, i))
+                    return v("faceplate-error", new Error(`Unknown level value "${e}" specified on <faceplate-alert> element`));
+                const n = parseInt(i, 10);
+                t = isNaN(n) ? ve[i] : n
+            }
+            const i = this.getAttribute("message")
+              , n = this.getAttribute("name")
+              , o = this.getAttribute("meta")
+              , r = this.getAttribute("count")
+              , a = this.getAttribute("show-when-offline")
+              , s = this.getAttribute("cause")
+              , d = this.getAttribute("source-element");
+            return v("faceplate-alert", {
+                level: t,
+                name: n || void 0,
+                message: i || void 0,
+                meta: o || void 0,
+                count: null === r ? 1 : parseInt(r),
+                originalAlert: this,
+                emitTime: window.performance.now(),
+                showWhenOffline: null !== a || void 0,
+                cause: s || void 0,
+                sourceElement: d || this.tagName
+            })
+        }
+        dispatchConnectEvent() {
+            super.dispatchConnectEvent(),
+            this.hasAttribute("auto-remove") && "false" !== this.getAttribute("auto-remove") && this.remove()
+        }
+    }
+    ;
+    Hc = t([a("faceplate-alert")], Hc);
+    const Wc = Symbol("mixins/user-action");
+    let zc = class extends (function(e) {
+        if (Wc in e)
+            return e;
+        class t extends e {
+            constructor() {
+                super(...arguments),
+                this._userActionEnabled = !1,
+                this._loadingHandleClick = () => {
+                    this._userActionEnabled && this.userActionCallback()
+                }
+                ,
+                this._loadingHandleKeyDown = e => {
+                    this._userActionEnabled && ("Enter" !== e.code && "Space" !== e.code || (e.preventDefault(),
+                    e.stopPropagation(),
+                    this.userActionCallback()))
+                }
+            }
+            get isActionable() {
+                return this._userActionEnabled
+            }
+            enableUserActions() {
+                this._userActionEnabled || (this._userActionEnabled = !0,
+                this.addEventListener("click", this._loadingHandleClick),
+                this.addEventListener("keydown", this._loadingHandleKeyDown))
+            }
+            disableUserActions() {
+                this._userActionEnabled && (this._userActionEnabled = !1,
+                this.removeEventListener("click", this._loadingHandleClick),
+                this.removeEventListener("keydown", this._loadingHandleKeyDown))
+            }
+            userActionCallback() {}
+        }
+        return t[Wc] = !0,
+        t
+    }(Ee(e.s))) {
+        constructor() {
+            super(...arguments),
+            this.src = "",
+            this.srcset = "",
+            this.sizes = "",
+            this.loading = Se.Lazy,
+            this.width = 0,
+            this.height = 0,
+            this.perfmark = "",
+            this.isRequestInProgress = !1
+        }
+        static get styles() {
+            return e.i`:host{display:inline-block}:host([loading=action]) div.placeholder{cursor:pointer}div{display:flex;align-items:center;justify-content:center;text-align:center;height:inherit;width:inherit;margin:auto;position:relative;overflow:hidden;border-radius:inherit}img{width:100%;height:100%}*{max-height:inherit;max-width:inherit;min-height:inherit;min-width:inherit;object-fit:inherit}`
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            this.img || this.executeLoadingStrategy()
+        }
+        update(e) {
+            e.has("src") && (this.img = void 0,
+            this.isRequestInProgress = !1,
+            this.executeLoadingStrategy()),
+            super.update(e)
+        }
+        executeLoadingStrategy() {
+            this.loading === Se.Lazy ? this.enableObserver() : this.loading === Se.Action ? this.enableUserActions() : this.loading === Se.Eager && this.loadContent()
+        }
+        observerIsIntersectingCallback() {
+            this.isObserved && this.disableObserver(),
+            this.isRequestInProgress || this.loadContent()
+        }
+        userActionCallback() {
+            this.isActionable && this.disableUserActions(),
+            this.isRequestInProgress || this.loadContent()
+        }
+        disconnectedCallback() {
+            super.disconnectedCallback(),
+            this.isObserved && this.disableObserver(),
+            this.isActionable && this.disableUserActions()
+        }
+        async loadContent() {
+            const {src: e} = this
+              , t = new Image;
+            t.onload = () => {
+                if (t.src !== new URL(this.src,location.origin).href)
+                    return;
+                this.isRequestInProgress = !1,
+                this.img = t,
+                this.requestUpdate(),
+                this.perfmark && this.updateComplete.then(( () => {
+                    performance.mark(this.perfmark)
+                }
+                ));
+                const e = v("faceplate-load", {
+                    resource: t.src,
+                    src: this.src
+                });
+                this.dispatchEvent(e)
+            }
+            ,
+            t.onerror = () => {
+                const e = v("faceplate-error", new Error("Image failed to load"));
+                this.dispatchEvent(e)
+            }
+            ,
+            this.isRequestInProgress = !0,
+            t.src = e
+        }
+        render() {
+            const t = this.isRequestInProgress && this.loading === Se.Action;
+            let i = e.x` <slot name="${e.l(t ? "loading" : void 0)}"></slot> `;
+            return this.img && (i = e.x` <img src="${this.img.src}" srcset="${e.l(this.srcset)}" sizes="${e.l(this.sizes)}" alt="${e.l(this.alt)}"> `),
+            e.x` <div class="${this.img ? "loaded" : "placeholder"}" style="${e.o({
+                width: this.width ? this.width + "px" : "inherit",
+                height: this.height ? this.height + "px" : "inherit"
+            })}" tabindex="${e.l(this.isActionable ? 0 : void 0)}"> ${i} </div> `
+        }
+    }
+    ;
+    t([d({
+        type: String
+    })], zc.prototype, "src", void 0),
+    t([d({
+        type: String
+    })], zc.prototype, "srcset", void 0),
+    t([d({
+        type: String
+    })], zc.prototype, "sizes", void 0),
+    t([d({
+        type: String
+    })], zc.prototype, "loading", void 0),
+    t([d({
+        type: Number
+    })], zc.prototype, "width", void 0),
+    t([d({
+        type: Number
+    })], zc.prototype, "height", void 0),
+    t([d({
+        type: String
+    })], zc.prototype, "perfmark", void 0),
+    t([d({
+        type: String
+    })], zc.prototype, "alt", void 0),
+    zc = t([a("faceplate-img")], zc);
+    const jc = Symbol("mixins/with-tracking");
+    function Kc(e) {
+        if (_s(e, jc))
+            return e;
+        class t extends e {
+            constructor() {
+                super(...arguments),
+                this.trackEvent = e => {
+                    const t = v("track-event", {
+                        details: e
+                    });
+                    this.dispatchEvent(t)
+                }
+            }
+        }
+        return t[jc] = !0,
+        t
+    }
+    function $c() {
+        return document.querySelector("shreddit-app")?.getAttribute("correlation-id")
+    }
+    var qc;
+    !function(e) {
+        e.All = "all",
+        e.Posts = "link",
+        e.Subreddits = "sr",
+        e.Users = "user",
+        e.Comments = "comment",
+        e.Media = "media"
+    }(qc || (qc = {})),
+    new Set([qc.Posts, qc.Subreddits, qc.Users, qc.Comments, qc.Media]);
+    const Yc = {
+        DAY: "day",
+        HOUR: "hour",
+        WEEK: "week",
+        MONTH: "month",
+        YEAR: "year",
+        ALL: "all"
+    };
+    var Qc;
+    new Set(Object.values(Yc)),
+    function(e) {
+        e.Comments = "comments",
+        e.Hot = "hot",
+        e.New = "new",
+        e.Relevance = "relevance",
+        e.Top = "top"
+    }(Qc || (Qc = {}));
+    const Jc = Qc.Relevance;
+    new Set([Qc.Comments, Qc.Hot, Qc.New, Qc.Relevance, Qc.Top]),
+    new Set([Qc.Hot, Qc.New]);
+    var Xc, Zc, eu, tu, iu, nu, ou;
+    !function(e) {
+        e.PromotedTrend = "promoted_trend",
+        e.Search = "search",
+        e.SearchBar = "search_bar",
+        e.Trending = "trending",
+        e.KeywordFollowing = "keyword_following",
+        e.Syndication = "syndication"
+    }(Xc || (Xc = {})),
+    function(e) {
+        e.Spellcheck = "spellcheck"
+    }(Zc || (Zc = {})),
+    function(e) {
+        e.PostCommunity = "post_community",
+        e.PostProfile = "post_profile",
+        e.PostTitle = "post_title",
+        e.PostBody = "post",
+        e.PostThumbnail = "post_thumbnail"
+    }(eu || (eu = {})),
+    function(e) {
+        e.Comment = "comment",
+        e.CommentAuthor = "comment_author",
+        e.CommentSearchBar = "comment_search_bar",
+        e.GoToThreadLink = "go_to_comment_link"
+    }(tu || (tu = {})),
+    function(e) {
+        e.All = "all",
+        e.Posts = "posts",
+        e.Communities = "communities",
+        e.People = "people",
+        e.Comments = "comments",
+        e.Media = "media"
+    }(iu || (iu = {})),
+    function(e) {
+        e.PdpCommentSearchInput = "pdp-comment-search-input",
+        e.HeaderSmall = "reddit-header-small",
+        e.HeaderLarge = "reddit-header-large",
+        e.SearchInputSmall = "reddit-search-small"
+    }(nu || (nu = {})),
+    function(e) {
+        e.commentComposerHost = 'shreddit-async-loader[bundleName*="comment_composer"]',
+        e.addCommentButton = "faceplate-tracker[source=shreddit_comment_count_button]",
+        e.pdpCommentsTreeSortContainer = ".pdp-comments-tree-sort-container",
+        e.pdpCommentSearchInput = "pdp-comment-search-input",
+        e.pdpAmaCommentTabWrapper = ".pdp-ama-comment-tab-wrapper",
+        e.shredditCommentsSortDropdown = "shreddit-comments-sort-dropdown"
+    }(ou || (ou = {})),
+    iu.All,
+    qc.All,
+    iu.Posts,
+    qc.Posts,
+    iu.Communities,
+    qc.Subreddits,
+    iu.People,
+    qc.Users,
+    iu.Comments,
+    qc.Comments,
+    iu.Media,
+    qc.Media;
+    const ru = {
+        [qc.All]: iu.All,
+        [qc.Posts]: iu.Posts,
+        [qc.Subreddits]: iu.Communities,
+        [qc.Users]: iu.People,
+        [qc.Comments]: iu.Comments,
+        [qc.Media]: iu.Media
+    };
+    var au, su, du, lu;
+    !function(e) {
+        e.Covid = "covid",
+        e.Election = "election",
+        e.NsfwSetting = "nsfw_setting",
+        e.NsfwLoginPrompt = "nsfw_login_prompt"
+    }(au || (au = {})),
+    function(e) {
+        e.Serp = "serp",
+        e.Qf = "qf",
+        e.PopularCarousel = "popular_carousel",
+        e.PdpCommentSearch = "pdp_comment_search",
+        e.PdpCommentSearchBar = "pdp_comment_search_bar",
+        e.PdpCommentHighlightedSearchTerm = "pdp_comment_highlighted_search_term",
+        e.QueryRecommendation = "query_recommendation"
+    }(su || (su = {})),
+    function(e) {
+        e.IsBlank = "data-is-blank",
+        e.IsPromoted = "data-is-promoted"
+    }(du || (du = {})),
+    function(e) {
+        e.GLOBAL = "global",
+        e.COMMUNITY = "community",
+        e.PDP = "pdp",
+        e.PROFILE = "profile",
+        e.CUSTOM_FEED = "custom_feed"
+    }(lu || (lu = {}));
+    const cu = {
+        type: lu.GLOBAL,
+        path: "/"
+    }
+      , uu = new Set([Qt.Home, Qt.Popular, Qt.Community, Qt.ArenaFeed])
+      , hu = new Set([Qt.SearchResults, Qt.SearchDropdown, Qt.PostDetail, "search_results_trending", "typeahead", "search_dropdown", "search_authors_tab", "search_comments_tab", "search_communities_tab", "search_posts_tab"])
+      , pu = new Set([...uu, ...hu])
+      , mu = new Set([Qt.PostDetail, Qt.SingleCommentThread, Qt.Community, Qt.ProfileOverview, Qt.GuidesConversation]);
+    function gu() {
+        const e = Yi.getItem(qi.GoodVisitFS);
+        return e ? JSON.parse(e) : null
+    }
+    const _u = "/svc/shreddit/guides-recommended-posts"
+      , fu = "guides-citation-details"
+      , Eu = `/svc/shreddit/${fu}`;
+    var vu, Su, bu, Tu, yu;
+    !function(e) {
+        e.EntryPage = "entry",
+        e.ConversationPage = "conversation"
+    }(vu || (vu = {})),
+    function(e) {
+        e.GqlRt = "gql_rt",
+        e.GqlRtStaging = "gql_rt_staging"
+    }(Su || (Su = {})),
+    function(e) {
+        e.Default = "https://gql-realtime.reddit.com/query",
+        e.GqlRt = "https://gql-rt.reddit.com/query",
+        e.GqlRtStaging = "https://gql-rt-staging.reddit.com/query"
+    }(bu || (bu = {})),
+    function(e) {
+        e.GuidesGenericError = "GuidesGenericError",
+        e.GuidesUnhandledError = "GuidesUnhandledError",
+        e.GuidesQuotaExceededError = "GuidesQuotaExceededError"
+    }(Tu || (Tu = {})),
+    function(e) {
+        e.Answers = "ANSWERS",
+        e.Pdp = "PDP",
+        e.Serp = "SERP",
+        e.SerpStreaming = "SERP_STREAMING"
+    }(yu || (yu = {}));
+    const Iu = new Set(Object.values(yu));
+    var Cu;
+    !function(e) {
+        e.html = "HTML",
+        e.rtjson = "RTJSON"
+    }(Cu || (Cu = {}));
+    var Au;
+    !function(e) {
+        e.post = "post",
+        e.comment = "comment"
+    }(Au || (Au = {}));
+    const Ru = /\/comments\/(?<postId>[a-zA-Z0-9]+)\/[a-zA-Z0-9_.%]*\/*(?<commentId>[a-zA-Z0-9]*)/
+      , Pu = ({isSeo: e, screenViewData: t, pageType: i}) => !Ou(i) && !e && !!t?.search?.conversation_id
+      , Nu = new Set([Qt.Guides, Qt.GuidesConversation])
+      , Ou = e => Nu.has(e);
+    function wu(e) {
+        let t = !1
+          , i = !1
+          , n = {};
+        const o = new URLSearchParams(window.location.search).get("source");
+        Ou(e) && ![yu.Serp, yu.SerpStreaming].includes(o) && (t = !0);
+        const r = function() {
+            const e = Yi.getItem(qi.GoodVisitGuides);
+            if (e)
+                return JSON.parse(e);
+            return null
+        }();
+        if (r) {
+            const e = new Date(r.expires) <= new Date
+              , t = Nu.has(r.source);
+            !e && t && (i = !0,
+            n = r.eventPayload)
+        }
+        return {
+            isGuidesSession: t,
+            isGuidesLocalStorageSession: i,
+            eventPayload: n
+        }
+    }
+    function Du(e, t) {
+        if (!Ou(e))
+            return;
+        const i = JSON.stringify({
+            source: e,
+            expires: new Date((new Date).getTime() + 5e3),
+            eventPayload: t
+        });
+        Yi.setItem(qi.GoodVisitGuides, i)
+    }
+    const Mu = Qt.Inbox;
+    function ku(e) {
+        let t = !1
+          , i = !1;
+        e === Mu && (t = !0);
+        const n = function() {
+            const e = Yi.getItem(qi.GoodVisitInbox);
+            if (e)
+                return JSON.parse(e);
+            return null
+        }();
+        if (n) {
+            const e = new Date(n.expires) <= new Date
+              , t = n.source === Mu;
+            !e && t && (i = !0)
+        }
+        return {
+            isInboxSession: t,
+            isInboxLocalStorageSession: i
+        }
+    }
+    function Lu(e) {
+        let t = !1
+          , i = !1;
+        e === Qt.Klp && (t = !0);
+        const n = function() {
+            const e = Yi.getItem(qi.GoodVisitKLP);
+            if (e)
+                return JSON.parse(e);
+            return null
+        }();
+        if (n) {
+            const e = new Date(n.expires) <= new Date
+              , t = n.source === Qt.Klp;
+            !e && t && (i = !0)
+        }
+        return {
+            isKLPSession: t,
+            isKLPLocalStorageSession: i
+        }
+    }
+    function Uu() {
+        const e = function() {
+            const e = Yi.getItem(qi.GoodVisitPdpListingBelow);
+            if (e)
+                return JSON.parse(e);
+            return null
+        }();
+        if (e) {
+            return !(new Date(e.expires) <= new Date)
+        }
+        return !1
+    }
+    function Fu() {
+        const e = function() {
+            const e = Yi.getItem(qi.GoodVisitPdpSeeker);
+            if (e)
+                return JSON.parse(e);
+            return null
+        }();
+        if (e) {
+            return !(new Date(e.expires) <= new Date)
+        }
+        return !1
+    }
+    const Bu = Kc(e.s)
+      , Vu = 3e4;
+    let xu = class extends Bu {
+        constructor() {
+            super(),
+            this.referrerType = Yt.Reddit,
+            this.pageType = Qt.Unknown,
+            this.localStorageAvailable = !1,
+            this.timeoutId = null,
+            this.count = null,
+            this.goodVisitQueue = [],
+            this.hasSeoSession = null,
+            this.updatedAt = null,
+            this.initialized = !1,
+            this.screenViewData = {},
+            this.isFeedSearchSession = null,
+            this.isFeedSearchLocalStorageSession = null,
+            this.isKLPSession = null,
+            this.isKLPLocalStorageSession = null,
+            this.isGuidesSession = null,
+            this.isGuidesLocalStorageSession = null,
+            this.guidesLSEventPayload = null,
+            this.isInboxSession = null,
+            this.isInboxLocalStorageSession = null,
+            this.isPdpSeekerSearchSession = null,
+            this.isPdpListingBelowSession = null,
+            this._geoLandingData = null,
+            this.leaveEventType = "beforeunload",
+            this._windowEvents = new g(this,( () => window)),
+            this.pubsub = new dl(this),
+            this.pageHideListener = () => {
+                this.clearTimeout(),
+                this.saveState()
+            }
+            ,
+            this.pageShowListener = () => {
+                this.boot()
+            }
+            ,
+            this.setScreenViewData = e => {
+                this.screenViewData = e
+            }
+            ,
+            this.storePlatformGoodVisit = () => {
+                !function(e, t) {
+                    let i = e
+                      , n = {};
+                    if (!pu.has(e))
+                        return;
+                    if (hu.has(e)) {
+                        if (n = t,
+                        !n.search)
+                            return;
+                        n?.search?.structure_type && [Xc.Trending, Xc.PromotedTrend].includes(n?.search?.structure_type) && (i = Qt.SearchResultsTrending)
+                    }
+                    uu.has(e) && (n = {
+                        timer: {
+                            referrer_correlation_id: $c()
+                        }
+                    });
+                    const o = JSON.stringify({
+                        key: Vt(),
+                        source: i,
+                        expires: new Date((new Date).getTime() + 5e3),
+                        eventPayload: n
+                    });
+                    Yi.setItem(qi.GoodVisitFS, o)
+                }(this.pageType, this.screenViewData)
+            }
+            ,
+            this.storePlatformKLPGoodVisit = () => {
+                !function(e, t) {
+                    if (e !== Qt.Klp)
+                        return;
+                    const i = JSON.stringify({
+                        key: Vt(),
+                        source: Qt.Klp,
+                        expires: new Date((new Date).getTime() + 5e3),
+                        eventPayload: t
+                    });
+                    Yi.setItem(qi.GoodVisitKLP, i)
+                }(this.pageType, this.screenViewData)
+            }
+            ,
+            this.storePlatformGuidesGoodVisit = () => {
+                Du(this.pageType, this.screenViewData)
+            }
+            ,
+            this.storeGuidesGoodVisit = e => {
+                Du(this.pageType, {
+                    ...this.screenViewData,
+                    search: e || void 0
+                })
+            }
+            ,
+            this.storePdpSeekerGoodVisit = () => {
+                !function(e, t=Vt) {
+                    const i = {
+                        key: t(),
+                        source: Qt.PostDetail,
+                        expires: new Date((new Date).getTime() + 5e3),
+                        eventPayload: e
+                    }
+                      , n = JSON.stringify(i);
+                    Yi.setItem(qi.GoodVisitPdpSeeker, n)
+                }(this.screenViewData)
+            }
+            ,
+            this.storePdpListingBelowGoodVisit = () => {
+                !function(e, t=Vt) {
+                    const i = {
+                        key: t(),
+                        source: Qt.PostDetail,
+                        expires: new Date((new Date).getTime() + 5e3),
+                        eventPayload: {
+                            ...e,
+                            action_info: {
+                                ...e.action_info,
+                                reason: "listing_below"
+                            }
+                        }
+                    }
+                      , n = JSON.stringify(i);
+                    Yi.setItem(qi.GoodVisitPdpListingBelow, n)
+                }(this.screenViewData)
+            }
+            ,
+            this.storePlatformInboxGoodVisit = () => {
+                !function(e, t) {
+                    if (Mu !== e)
+                        return;
+                    const i = JSON.stringify({
+                        source: e,
+                        expires: new Date((new Date).getTime() + 5e3),
+                        eventPayload: t
+                    });
+                    Yi.setItem(qi.GoodVisitInbox, i)
+                }(this.pageType, this.screenViewData)
+            }
+            ,
+            this._onPageLeave = () => {
+                this.isKLPSession ? this.storePlatformKLPGoodVisit() : this.isGuidesSession ? this.storePlatformGuidesGoodVisit() : this.isInboxSession ? this.storePlatformInboxGoodVisit() : this.storePlatformGoodVisit(),
+                this.screenViewData = {}
+            }
+            ,
+            this._onPagehide = this._windowEvents.define("pagehide", this.pageHideListener),
+            this._onPageshow = this._windowEvents.define("pageshow", this.pageShowListener),
+            this._onBeforeRoute = this._windowEvents.define("beforeRoute", this._onPageLeave),
+            this.tick = () => {
+                null !== this.count && (this.count += 1e3,
+                this.updatedAt = (new Date).getTime(),
+                this.goodVisitQueue.length > 0 && this.count >= this.goodVisitQueue[0] && this.trackGoodVisit(),
+                this.count >= Vu ? this.clearState() : this.timeoutId = window.setTimeout(this.tick, 1e3))
+            }
+            ,
+            this.isKLPReferredPage = () => this.isPostPage() || this.isTopicPage() || this.isCommunityPage() || this.isReferredKLPPage(),
+            this.isKLPGoodVisitSession = () => this.isKLPSession || this.isKLPLocalStorageSession && this.isKLPReferredPage(),
+            this.isGuidesGoodVisitSession = () => this.isGuidesSession || this.isGuidesLocalStorageSession,
+            this.isInboxGoodVisitSession = () => this.isInboxSession || this.isInboxLocalStorageSession,
+            this.isPostPage = () => this.pageType === Qt.PostDetail || this.pageType === Qt.SingleCommentThread,
+            this.isTopicPage = () => this.pageType === Qt.TopicPage,
+            this.isReferredKLPPage = () => this.pageType === Qt.Klp && this.referrerType === Yt.Reddit,
+            this.isCommunityPage = () => this.pageType === Qt.Community,
+            this.isCommunityWikiPage = () => this.pageType === Qt.CommunityWiki,
+            this.isArenaFeedPage = () => this.pageType === Qt.ArenaFeed,
+            this.isPostStatsPage = () => this.pageType === Qt.PostStats,
+            this.isGeoLandingPage = () => this.pageType === Qt.GeoCuratedFeed,
+            this.clearTimeout = () => {
+                null !== this.timeoutId && window.clearTimeout(this.timeoutId),
+                this.timeoutId = null
+            }
+            ,
+            this.trackGoodVisit = () => {
+                if (this.goodVisitQueue.length > 0) {
+                    let e;
+                    switch (!0) {
+                    case this.isKLPGoodVisitSession():
+                        e = ( ({isGoodVisitFeedTimer: e, millis: t, screenViewData: i}) => ({
+                            screenViewData: i,
+                            timer: {
+                                type: e ? Zt.GoodVisitFeed : Zt.GoodVisit,
+                                millis: t
+                            }
+                        }))({
+                            isGoodVisitFeedTimer: this.isKLPReferredPage(),
+                            millis: this.goodVisitQueue[0],
+                            screenViewData: this.screenViewData
+                        });
+                        break;
+                    case this.isGuidesGoodVisitSession():
+                        e = ( ({isSeo: e, millis: t, screenViewData: i, pageType: n}) => ({
+                            screenViewData: i,
+                            timer: {
+                                type: e ? Zt.GoodVisit : Zt.GoodVisitGuides,
+                                millis: t,
+                                referrer: Pu({
+                                    isSeo: e,
+                                    screenViewData: i,
+                                    pageType: n
+                                }) ? "gen_guides_conversation" : void 0
+                            }
+                        }))({
+                            pageType: this.pageType,
+                            isSeo: this.isSeoSession,
+                            millis: this.goodVisitQueue[0],
+                            screenViewData: {
+                                ...this.screenViewData,
+                                ...(this.guidesLSEventPayload ? this.guidesLSEventPayload : {})
+                            }
+                        });
+                        break;
+                    case this.isPdpSeekerSearchSession:
+                        e = {
+                            screenViewData: this.screenViewData,
+                            timer: {
+                                type: Zt.GoodVisitSearch,
+                                millis: this.goodVisitQueue[0],
+                                referrer: "post_detail"
+                            }
+                        };
+                        break;
+                    case this.isPdpListingBelowSession:
+                        e = {
+                            screenViewData: {
+                                ...this.screenViewData,
+                                action_info: {
+                                    reason: "listing_below"
+                                }
+                            },
+                            timer: {
+                                type: Zt.GoodVisitPostToPost,
+                                millis: this.goodVisitQueue[0]
+                            }
+                        };
+                        break;
+                    case this.isPostStatsPage():
+                        e = {
+                            screenViewData: this.screenViewData,
+                            timer: {
+                                type: Zt.GoodVisitPostStats,
+                                millis: this.goodVisitQueue[0],
+                                referrer: this.referrerType
+                            }
+                        };
+                        break;
+                    case this.isInboxGoodVisitSession():
+                        e = ( ({millis: e, screenViewData: t}) => ({
+                            screenViewData: t,
+                            timer: {
+                                type: Zt.GoodVisitInbox,
+                                millis: e
+                            }
+                        }))({
+                            screenViewData: this.screenViewData,
+                            millis: this.goodVisitQueue[0]
+                        });
+                        break;
+                    case this.isCommunityWikiPage():
+                        e = {
+                            screenViewData: this.screenViewData,
+                            timer: {
+                                type: Zt.GoodVisitCommunityWiki,
+                                millis: this.goodVisitQueue[0],
+                                referrer: this.referrerType
+                            }
+                        };
+                        break;
+                    case this.isGeoLandingPage():
+                        {
+                            const {countryCode: t, utmContent: i} = this.geoLandingData;
+                            e = {
+                                screenViewData: {
+                                    ...this.screenViewData,
+                                    geo: t,
+                                    url_parsed_utm: {
+                                        source: "UA",
+                                        content: i
+                                    }
+                                },
+                                timer: {
+                                    type: Zt.GoodVisitUa,
+                                    millis: this.goodVisitQueue[0],
+                                    referrer: this.referrerType
+                                }
+                            };
+                            break
+                        }
+                    default:
+                        e = function({millis: e, screenViewData: t, isFeedSearchSession: i, isFeedSearchLocalStorageSession: n}) {
+                            let o, r, a = Zt.GoodVisit;
+                            if (i)
+                                if (n) {
+                                    const e = gu();
+                                    o = e?.source;
+                                    const i = uu.has(e?.source)
+                                      , n = hu.has(e?.source);
+                                    if (i) {
+                                        const {timer: t} = e?.eventPayload || {};
+                                        a = Zt.GoodVisitFeed,
+                                        r = t?.referrer_correlation_id
+                                    }
+                                    if (n) {
+                                        a = Zt.GoodVisitSearch;
+                                        const {search: i} = e?.eventPayload || {};
+                                        t.search = {
+                                            ...(t?.search || {}),
+                                            ...(i || {}),
+                                            conversation_id: i?.conversation_id ?? "",
+                                            impression_id: i?.impression_id ?? "",
+                                            origin_page_type: i?.origin_page_type ?? "",
+                                            query: i?.query ?? "",
+                                            query_id: i?.query_id ?? ""
+                                        }
+                                    }
+                                } else
+                                    a = Zt.GoodVisitSearch;
+                            return {
+                                screenViewData: t,
+                                timer: {
+                                    type: a,
+                                    millis: e,
+                                    ...(o && {
+                                        referrer: o
+                                    }),
+                                    ...(r && {
+                                        referrer_correlation_id: r
+                                    })
+                                }
+                            };
+                        }({
+                            millis: this.goodVisitQueue[0],
+                            screenViewData: this.screenViewData,
+                            isFeedSearchSession: this.isFeedSearchSession,
+                            isFeedSearchLocalStorageSession: this.isFeedSearchLocalStorageSession
+                        })
+                    }
+                    const t = Ri({
+                        ...{
+                            ...e,
+                            screenViewData: {
+                                ...e.screenViewData,
+                                ...Gn()
+                            }
+                        },
+                        hostPageType: this.pageType
+                    });
+                    this.trackEvent(t),
+                    this.goodVisitQueue.shift()
+                }
+            }
+            ,
+            this.localStorageAvailable = Yi.isAvailable(),
+            this.leaveEventType = Tn.eventType
+        }
+        getState() {
+            return {
+                count: this.count,
+                updatedAt: this.updatedAt
+            }
+        }
+        attributeChangedCallback(e, t, i) {
+            super.attributeChangedCallback(e, t, i);
+            const n = "pagetype" === e && t !== i;
+            this.isPdpSeekerSearchSession = Fu(),
+            this.isPdpListingBelowSession = Uu(),
+            (n || this.isPdpSeekerSearchSession || this.isPdpListingBelowSession) && (this.clearTimeout(),
+            this._geoLandingData = null,
+            this.boot())
+        }
+        get isSeoSession() {
+            return this.referrerType === Yt.Seo || !!this.hasSeoSession
+        }
+        connectedCallback() {
+            if (super.connectedCallback(),
+            !this.initialized) {
+                if (this.initialized = !0,
+                this.boot(),
+                window.addEventListener(this.leaveEventType, this._onPageLeave),
+                this.pubsub.subscribe(cl.ScreenViewDataLoaded, this.setScreenViewData),
+                window.location.search.includes(tr)) {
+                    const e = new URL(window.location.href);
+                    e.searchParams.delete(tr),
+                    history.replaceState({}, "", e.toString())
+                }
+                this.pubsub.subscribe(cl.GuidesStoreGoodVisit, this.storeGuidesGoodVisit)
+            }
+        }
+        disconnectedCallback() {
+            super.disconnectedCallback(),
+            window.removeEventListener(this.leaveEventType, this._onPageLeave),
+            this.clearTimeout(),
+            this._geoLandingData = null
+        }
+        boot() {
+            if (this.timeoutId)
+                return;
+            const {isFeedSearchSession: e, isFeedSearchLocalStorageSession: t} = function(e, t) {
+                let i = !1
+                  , n = !1;
+                if (!mu.has(e))
+                    return {
+                        isFeedSearchSession: i,
+                        isFeedSearchLocalStorageSession: n
+                    };
+                t === Yt.RedditSearch && (i = !0);
+                const o = gu();
+                if (o) {
+                    const e = new Date(o.expires) <= new Date
+                      , t = pu.has(o.source);
+                    !e && t && (i = !0,
+                    n = !0)
+                }
+                return {
+                    isFeedSearchSession: i,
+                    isFeedSearchLocalStorageSession: n
+                }
+            }(this.pageType, this.referrerType);
+            this.isFeedSearchSession = e,
+            this.isFeedSearchLocalStorageSession = t;
+            const {isKLPSession: i, isKLPLocalStorageSession: n} = Lu(this.pageType);
+            this.isKLPSession = i,
+            this.isKLPLocalStorageSession = n;
+            const {isGuidesSession: o, isGuidesLocalStorageSession: r, eventPayload: a} = wu(this.pageType);
+            this.isGuidesSession = o,
+            this.isGuidesLocalStorageSession = r,
+            this.guidesLSEventPayload = a;
+            const {isInboxSession: s, isInboxLocalStorageSession: d} = ku(this.pageType);
+            this.isInboxSession = s,
+            this.isInboxLocalStorageSession = d,
+            this.isPdpSeekerSearchSession = Fu(),
+            this.isPdpListingBelowSession = Uu(),
+            this.referrerType === Yt.Seo || this.isFeedSearchSession || this.isPdpSeekerSearchSession || this.isPdpListingBelowSession || this.isKLPGoodVisitSession() || this.isGuidesGoodVisitSession() || this.isArenaFeedPage() || this.isPostStatsPage() || this.isInboxGoodVisitSession() || this.isCommunityWikiPage() || this.isGeoLandingPage() ? this.initState() : this.referrerType === Yt.Other ? this.clearState() : this.loadState(),
+            this.tick()
+        }
+        get geoLandingData() {
+            if (null === this._geoLandingData) {
+                const e = new URL(window.location.href)
+                  , t = e.searchParams.get("utm_content") || ""
+                  , i = e.pathname.match(/\/landing\/country\/([A-Z]{2})/)
+                  , n = i ? i[1] : "";
+                this._geoLandingData = {
+                    countryCode: n,
+                    utmContent: t
+                }
+            }
+            return this._geoLandingData
+        }
+        initState() {
+            if (this.count = 0,
+            this.updatedAt = (new Date).getTime(),
+            this.referrerType === Yt.Seo || this.isGuidesSession)
+                this.goodVisitQueue = [Vu];
+            else {
+                const e = [];
+                this.isSearchGoodVisitExpansionExperimentEnabled && e.push(3e3, 5e3, 1e4),
+                this.isGeoLandingPage() && e.push(5e3),
+                this.goodVisitQueue = [...e, 15e3, Vu]
+            }
+        }
+        clearState() {
+            this.hasSeoSession = !1,
+            this.count = null,
+            this.updatedAt = null,
+            this.localStorageAvailable && Yi.removeItem(qi.GoodVisit)
+        }
+        loadState() {
+            if (!this.localStorageAvailable)
+                return;
+            const e = Yi.getItem(qi.GoodVisit);
+            var t;
+            if (e)
+                try {
+                    const i = JSON.parse(e)
+                      , n = null !== (t = i) && "number" == typeof t.count && "number" == typeof t.updatedAt && Array.isArray(t.goodVisitQueue) && t.goodVisitQueue.every((e => "number" == typeof e));
+                    if (!n)
+                        throw new Error("Invalid SEO session object");
+                    this.hasSeoSession = !0,
+                    this.count = i.count,
+                    this.updatedAt = i.updatedAt,
+                    this.goodVisitQueue = i.goodVisitQueue;
+                    const o = (new Date).getTime();
+                    o - this.updatedAt > 5e3 && this.clearState()
+                } catch (e) {
+                    this.clearState()
+                }
+        }
+        saveState() {
+            if (!this.localStorageAvailable)
+                return;
+            if (null === this.count)
+                return;
+            const e = JSON.stringify({
+                count: this.count,
+                updatedAt: this.updatedAt,
+                goodVisitQueue: this.goodVisitQueue
+            });
+            Yi.setItem(qi.GoodVisit, e)
+        }
+    }
+    ;
+    t([d({
+        type: String
+    })], xu.prototype, "referrerType", void 0),
+    t([d({
+        type: String
+    })], xu.prototype, "pageType", void 0),
+    t([d({
+        attribute: "is-search-good-visit-expansion-experiment-enabled",
+        type: Boolean
+    })], xu.prototype, "isSearchGoodVisitExpansionExperimentEnabled", void 0),
+    xu = t([a("shreddit-good-visit-tracker")], xu);
+    const Gu = e.s;
+    let Hu = class extends Gu {
+        constructor() {
+            super(...arguments),
+            this.isNsfwBlocked = !1,
+            this.isEmbed = !1,
+            this.isEmbedFlexible = !1
+        }
+        static get styles() {
+            return e.i`:host{--default-aspect-ratio:2;--configured-aspect-ratio:var(--aspect-ratio, var(--default-aspect-ratio));--computed-aspect-ratio:calc(100% / var(--configured-aspect-ratio));--default-min-height:150px;--configured-min-height:var(--min-height, var(--default-min-height));--default-max-height:100vh;--configured-max-height:var(--max-height, var(--default-max-height));--aspect-ratio-padding:min(
+          max(var(--configured-min-height), var(--computed-aspect-ratio)),
+          var(--configured-max-height)
+        );display:block;height:0;padding-bottom:var(--aspect-ratio-padding);position:relative}:host([is-nsfw-blocked]){--configured-min-height:300px}slot{display:block;height:100%;position:absolute;width:100%}`
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            this.isEmbed && requestAnimationFrame(( () => {
+                const e = document.getElementById("embed-title")?.clientHeight;
+                e && ((this.shadowRoot?.host).style.setProperty("--max-height", (this.isEmbedFlexible ? innerWidth > 260 ? 530 - e + 20 : 330 - e + 20 : 292 - e + 20) + "px"),
+                this.isEmbedFlexible && (this.shadowRoot?.host).style.setProperty("--configured-min-height", "100px"))
+            }
+            ))
+        }
+        render() {
+            return e.x`<slot></slot>`
+        }
+    }
+    ;
+    t([d({
+        type: Boolean,
+        attribute: "is-nsfw-blocked"
+    })], Hu.prototype, "isNsfwBlocked", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "is-embed"
+    })], Hu.prototype, "isEmbed", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "is-embed-flexible"
+    })], Hu.prototype, "isEmbedFlexible", void 0),
+    Hu = t([a("shreddit-aspect-ratio")], Hu);
+    let Wu = class extends e.s {
+        constructor() {
+            super(...arguments),
+            this.data = {}
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            this.dispatchEvent(v("screenview-data-loaded", this.data)),
+            ll(cl.ScreenViewDataLoaded, this.data)
+        }
+    }
+    ;
+    t([d({
+        type: Object
+    })], Wu.prototype, "data", void 0),
+    Wu = t([a("shreddit-screenview-data")], Wu);
+    var zu, ju, Ku, $u, qu, Yu = function() {
+        return window.performance && performance.getEntriesByType && performance.getEntriesByType("navigation")[0]
+    }, Qu = function(e) {
+        if ("loading" === document.readyState)
+            return "loading";
+        var t = Yu();
+        if (t) {
+            if (e < t.domInteractive)
+                return "loading";
+            if (0 === t.domContentLoadedEventStart || e < t.domContentLoadedEventStart)
+                return "dom-interactive";
+            if (0 === t.domComplete || e < t.domComplete)
+                return "dom-content-loaded"
+        }
+        return "complete"
+    }, Ju = function(e) {
+        var t = e.nodeName;
+        return 1 === e.nodeType ? t.toLowerCase() : t.toUpperCase().replace(/^#/, "");
+    }, Xu = function(e, t) {
+        var i = "";
+        try {
+            for (; e && 9 !== e.nodeType; ) {
+                var n = e
+                  , o = n.id ? "#" + n.id : Ju(n) + (n.classList && n.classList.value && n.classList.value.trim() && n.classList.value.trim().length ? "." + n.classList.value.trim().replace(/\s+/g, ".") : "");
+                if (i.length + o.length > (t || 100) - 1)
+                    return i || o;
+                if (i = i ? o + ">" + i : o,
+                n.id)
+                    break;
+                e = n.parentNode
+            }
+        } catch (e) {}
+        return i
+    }, Zu = -1, eh = function(e) {
+        addEventListener("pageshow", (function(t) {
+            t.persisted && (Zu = t.timeStamp,
+            e(t))
+        }
+        ), !0)
+    }, th = function() {
+        var e = Yu();
+        return e && e.activationStart || 0
+    }, ih = function(e, t) {
+        var i = Yu()
+          , n = "navigate";
+        return Zu >= 0 ? n = "back-forward-cache" : i && (document.prerendering || th() > 0 ? n = "prerender" : document.wasDiscarded ? n = "restore" : i.type && (n = i.type.replace(/_/g, "-"))),
+        {
+            name: e,
+            value: void 0 === t ? -1 : t,
+            rating: "good",
+            delta: 0,
+            entries: [],
+            id: "v3-".concat(Date.now(), "-").concat(Math.floor(8999999999999 * Math.random()) + 1e12),
+            navigationType: n
+        };
+    }, nh = function(e, t, i) {
+        try {
+            if (PerformanceObserver.supportedEntryTypes.includes(e)) {
+                var n = new PerformanceObserver((function(e) {
+                    Promise.resolve().then((function() {
+                        t(e.getEntries())
+                    }
+                    ))
+                }
+                ));
+                return n.observe(Object.assign({
+                    type: e,
+                    buffered: !0
+                }, i || {})),
+                n
+            }
+        } catch (e) {}
+    }, oh = function(e, t, i, n) {
+        var o, r;
+        return function(a) {
+            t.value >= 0 && (a || n) && ((r = t.value - (o || 0)) || void 0 === o) && (o = t.value,
+            t.delta = r,
+            t.rating = function(e, t) {
+                return e > t[1] ? "poor" : e > t[0] ? "needs-improvement" : "good"
+            }(t.value, i),
+            e(t))
+        }
+    }, rh = function(e) {
+        requestAnimationFrame((function() {
+            return requestAnimationFrame((function() {
+                return e()
+            }
+            ))
+        }
+        ))
+    }, ah = function(e) {
+        var t = function(t) {
+            "pagehide" !== t.type && "hidden" !== document.visibilityState || e(t)
+        };
+        addEventListener("visibilitychange", t, !0),
+        addEventListener("pagehide", t, !0)
+    }, sh = function(e) {
+        var t = !1;
+        return function(i) {
+            t || (e(i),
+            t = !0)
+        }
+    }, dh = -1, lh = function() {
+        return "hidden" !== document.visibilityState || document.prerendering ? 1 / 0 : 0
+    }, ch = function(e) {
+        "hidden" === document.visibilityState && dh > -1 && (dh = "visibilitychange" === e.type ? e.timeStamp : 0,
+        hh())
+    }, uh = function() {
+        addEventListener("visibilitychange", ch, !0),
+        addEventListener("prerenderingchange", ch, !0)
+    }, hh = function() {
+        removeEventListener("visibilitychange", ch, !0),
+        removeEventListener("prerenderingchange", ch, !0)
+    }, ph = function() {
+        return dh < 0 && (dh = lh(),
+        uh(),
+        eh((function() {
+            setTimeout((function() {
+                dh = lh(),
+                uh()
+            }
+            ), 0)
+        }
+        ))),
+        {
+            get firstHiddenTime() {
+                return dh
+            }
+        }
+    }, mh = function(e) {
+        document.prerendering ? addEventListener("prerenderingchange", (function() {
+            return e()
+        }
+        ), !0) : e()
+    }, gh = [1800, 3e3], _h = [.1, .25], fh = function(e, t) {
+        !function(e, t) {
+            t = t || {},
+            function(e, t) {
+                t = t || {},
+                mh((function() {
+                    var i, n = ph(), o = ih("FCP"), r = nh("paint", (function(e) {
+                        e.forEach((function(e) {
+                            "first-contentful-paint" === e.name && (r.disconnect(),
+                            e.startTime < n.firstHiddenTime && (o.value = Math.max(e.startTime - th(), 0),
+                            o.entries.push(e),
+                            i(!0)))
+                        }
+                        ))
+                    }
+                    ));
+                    r && (i = oh(e, o, gh, t.reportAllChanges),
+                    eh((function(n) {
+                        o = ih("FCP"),
+                        i = oh(e, o, gh, t.reportAllChanges),
+                        rh((function() {
+                            o.value = performance.now() - n.timeStamp,
+                            i(!0)
+                        }
+                        ))
+                    }
+                    )))
+                }
+                ))
+            }(sh((function() {
+                var i, n = ih("CLS", 0), o = 0, r = [], a = function(e) {
+                    e.forEach((function(e) {
+                        if (!e.hadRecentInput) {
+                            var t = r[0]
+                              , i = r[r.length - 1];
+                            o && e.startTime - i.startTime < 1e3 && e.startTime - t.startTime < 5e3 ? (o += e.value,
+                            r.push(e)) : (o = e.value,
+                            r = [e])
+                        }
+                    }
+                    )),
+                    o > n.value && (n.value = o,
+                    n.entries = r,
+                    i())
+                }, s = nh("layout-shift", a);
+                s && (i = oh(e, n, _h, t.reportAllChanges),
+                ah((function() {
+                    a(s.takeRecords()),
+                    i(!0)
+                }
+                )),
+                eh((function() {
+                    o = 0,
+                    n = ih("CLS", 0),
+                    i = oh(e, n, _h, t.reportAllChanges),
+                    rh((function() {
+                        return i()
+                    }
+                    ))
+                }
+                )),
+                setTimeout(i, 0))
+            }
+            )))
+        }((function(t) {
+            !function(e) {
+                if (e.entries.length) {
+                    var t = e.entries.reduce((function(e, t) {
+                        return e && e.value > t.value ? e : t
+                    }
+                    ));
+                    if (t && t.sources && t.sources.length) {
+                        var i = (n = t.sources).find((function(e) {
+                            return e.node && 1 === e.node.nodeType
+                        }
+                        )) || n[0];
+                        if (i)
+                            return void (e.attribution = {
+                                largestShiftTarget: Xu(i.node),
+                                largestShiftTime: t.startTime,
+                                largestShiftValue: t.value,
+                                largestShiftSource: i,
+                                largestShiftEntry: t,
+                                loadState: Qu(t.startTime)
+                            })
+                    }
+                }
+                var n;
+                e.attribution = {}
+            }(t),
+            e(t)
+        }
+        ), t)
+    }, Eh = {
+        passive: !0,
+        capture: !0
+    }, vh = new Date, Sh = function(e, t) {
+        zu || (zu = t,
+        ju = e,
+        Ku = new Date,
+        yh(removeEventListener),
+        bh())
+    }, bh = function() {
+        if (ju >= 0 && ju < Ku - vh) {
+            var e = {
+                entryType: "first-input",
+                name: zu.type,
+                target: zu.target,
+                cancelable: zu.cancelable,
+                startTime: zu.timeStamp,
+                processingStart: zu.timeStamp + ju
+            };
+            $u.forEach((function(t) {
+                t(e)
+            }
+            )),
+            $u = []
+        }
+    }, Th = function(e) {
+        if (e.cancelable) {
+            var t = (e.timeStamp > 1e12 ? new Date : performance.now()) - e.timeStamp;
+            "pointerdown" == e.type ? function(e, t) {
+                var i = function() {
+                    Sh(e, t),
+                    o()
+                }
+                  , n = function() {
+                    o()
+                }
+                  , o = function() {
+                    removeEventListener("pointerup", i, Eh),
+                    removeEventListener("pointercancel", n, Eh)
+                };
+                addEventListener("pointerup", i, Eh),
+                addEventListener("pointercancel", n, Eh)
+            }(t, e) : Sh(t, e)
+        }
+    }, yh = function(e) {
+        ["mousedown", "keydown", "touchstart", "pointerdown"].forEach((function(t) {
+            return e(t, Th, Eh)
+        }
+        ))
+    }, Ih = [100, 300], Ch = function(e, t) {
+        t = t || {},
+        mh((function() {
+            var i, n = ph(), o = ih("FID"), r = function(e) {
+                e.startTime < n.firstHiddenTime && (o.value = e.processingStart - e.startTime,
+                o.entries.push(e),
+                i(!0))
+            }, a = function(e) {
+                e.forEach(r)
+            }, s = nh("first-input", a);
+            i = oh(e, o, Ih, t.reportAllChanges),
+            s && ah(sh((function() {
+                a(s.takeRecords()),
+                s.disconnect()
+            }
+            ))),
+            s && eh((function() {
+                var n;
+                o = ih("FID"),
+                i = oh(e, o, Ih, t.reportAllChanges),
+                $u = [],
+                ju = -1,
+                zu = null,
+                yh(addEventListener),
+                n = r,
+                $u.push(n),
+                bh()
+            }
+            ))
+        }
+        ))
+    }, Ah = 0, Rh = 1 / 0, Ph = 0, Nh = function(e) {
+        e.forEach((function(e) {
+            e.interactionId && (Rh = Math.min(Rh, e.interactionId),
+            Ph = Math.max(Ph, e.interactionId),
+            Ah = Ph ? (Ph - Rh) / 7 + 1 : 0)
+        }
+        ))
+    }, Oh = function() {
+        return qu ? Ah : performance.interactionCount || 0
+    }, wh = function() {
+        "interactionCount"in performance || qu || (qu = nh("event", Nh, {
+            type: "event",
+            buffered: !0,
+            durationThreshold: 0
+        }))
+    }, Dh = [200, 500], Mh = 0, kh = function() {
+        return Oh() - Mh
+    }, Lh = [], Uh = {}, Fh = function(e) {
+        var t = Lh[Lh.length - 1]
+          , i = Uh[e.interactionId];
+        if (i || Lh.length < 10 || e.duration > t.latency) {
+            if (i)
+                i.entries.push(e),
+                i.latency = Math.max(i.latency, e.duration);
+            else {
+                var n = {
+                    id: e.interactionId,
+                    latency: e.duration,
+                    entries: [e]
+                };
+                Uh[n.id] = n,
+                Lh.push(n)
+            }
+            Lh.sort((function(e, t) {
+                return t.latency - e.latency
+            }
+            )),
+            Lh.splice(10).forEach((function(e) {
+                delete Uh[e.id]
+            }
+            ))
+        }
+    }, Bh = function(e, t) {
+        !function(e, t) {
+            t = t || {},
+            mh((function() {
+                var i;
+                wh();
+                var n, o = ih("INP"), r = function(e) {
+                    e.forEach((function(e) {
+                        e.interactionId && Fh(e),
+                        "first-input" === e.entryType && !Lh.some((function(t) {
+                            return t.entries.some((function(t) {
+                                return e.duration === t.duration && e.startTime === t.startTime
+                            }
+                            ))
+                        }
+                        )) && Fh(e)
+                    }
+                    ));
+                    var t, i = (t = Math.min(Lh.length - 1, Math.floor(kh() / 50)),
+                    Lh[t]);
+                    i && i.latency !== o.value && (o.value = i.latency,
+                    o.entries = i.entries,
+                    n())
+                }, a = nh("event", r, {
+                    durationThreshold: null !== (i = t.durationThreshold) && void 0 !== i ? i : 40
+                });
+                n = oh(e, o, Dh, t.reportAllChanges),
+                a && ("interactionId"in PerformanceEventTiming.prototype && a.observe({
+                    type: "first-input",
+                    buffered: !0
+                }),
+                ah((function() {
+                    r(a.takeRecords()),
+                    o.value < 0 && kh() > 0 && (o.value = 0,
+                    o.entries = []),
+                    n(!0)
+                }
+                )),
+                eh((function() {
+                    Lh = [],
+                    Mh = Oh(),
+                    o = ih("INP"),
+                    n = oh(e, o, Dh, t.reportAllChanges)
+                }
+                )))
+            }
+            ))
+        }((function(t) {
+            !function(e) {
+                if (e.entries.length) {
+                    var t = e.entries.sort((function(e, t) {
+                        return t.duration - e.duration || t.processingEnd - t.processingStart - (e.processingEnd - e.processingStart)
+                    }
+                    ))[0];
+                    e.attribution = {
+                        eventTarget: Xu(t.target),
+                        eventType: t.name,
+                        eventTime: t.startTime,
+                        eventEntry: t,
+                        loadState: Qu(t.startTime)
+                    }
+                } else
+                    e.attribution = {}
+            }(t),
+            e(t)
+        }
+        ), t)
+    }, Vh = [2500, 4e3], xh = {}, Gh = [800, 1800], Hh = function e(t) {
+        document.prerendering ? mh((function() {
+            return e(t)
+        }
+        )) : "complete" !== document.readyState ? addEventListener("load", (function() {
+            return e(t)
+        }
+        ), !0) : setTimeout(t, 0)
+    }, Wh = function(e, t) {
+        t = t || {};
+        var i = ih("TTFB")
+          , n = oh(e, i, Gh, t.reportAllChanges);
+        Hh((function() {
+            var o = Yu();
+            if (o) {
+                var r = o.responseStart;
+                if (r <= 0 || r > performance.now())
+                    return;
+                i.value = Math.max(r - th(), 0),
+                i.entries = [o],
+                n(!0),
+                eh((function() {
+                    i = ih("TTFB", 0),
+                    (n = oh(e, i, Gh, t.reportAllChanges))(!0)
+                }
+                ))
+            }
+        }
+        ))
+    };
+    const zh = "iphone"
+      , jh = [{
+        dpi: 3,
+        height: 926,
+        width: 428,
+        version: `${zh} 12 Pro Max`,
+        yearClass: 2020
+    }, {
+        dpi: 3,
+        height: 896,
+        width: 414,
+        version: `${zh} 11 Pro Max`,
+        yearClass: 2019
+    }, {
+        dpi: 3,
+        height: 844,
+        width: 390,
+        version: `${zh} 12`,
+        yearClass: 2020
+    }, {
+        dpi: 3,
+        height: 812,
+        width: 375,
+        version: `${zh} 7`,
+        yearClass: 2016
+    }, {
+        dpi: 3,
+        height: 736,
+        width: 414,
+        version: `${zh} 8 Plus`,
+        yearClass: 2017
+    }, {
+        dpi: 2,
+        height: 896,
+        width: 414,
+        version: `${zh} 11`,
+        yearClass: 2019
+    }, {
+        dpi: 2,
+        height: 667,
+        width: 375,
+        version: `${zh} SE 2nd Gen`,
+        yearClass: 2020
+    }, {
+        dpi: 2,
+        height: 568,
+        width: 320,
+        version: `${zh} 5S`,
+        yearClass: 2013
+    }, {
+        dpi: 2,
+        height: 480,
+        width: 320,
+        version: `${zh} 4S`,
+        yearClass: 2011
+    }];
+    function Kh() {
+        const e = function(e) {
+            if (!window.screen || !window.devicePixelRatio)
+                return;
+            const {height: t, width: i} = window.screen
+              , n = window.devicePixelRatio;
+            return i && t && n ? e.find((e => n === e.dpi && t === e.height && i === e.width)) : void 0
+        }(jh);
+        if (e)
+            return {
+                deviceName: e.version.toLowerCase().replace(" ", "-"),
+                yearClass: e.yearClass
+            }
+    }
+    class $h {
+        constructor(e) {
+            this._custom = {},
+            this._metrics = {},
+            this._isCached = !1,
+            this.remeasureForBFCacheRestore = e => {
+                const t = {
+                    metrics: {},
+                    meta: {},
+                    cache_restore: !0
+                };
+                Object.keys(this._metrics).forEach((e => {
+                    this.isKeyCustomMetric(e) || this._metrics[e] && (t.metrics[e] = 0)
+                }
+                )),
+                Object.keys(t.metrics).length && requestAnimationFrame(( () => {
+                    requestAnimationFrame(( () => {
+                        const i = performance.now() - e.timeStamp;
+                        Object.keys(t.metrics).forEach((e => {
+                            t.metrics[e] = i
+                        }
+                        )),
+                        this.notifyAndSendMetrics(t)
+                    }
+                    ))
+                }
+                ))
+            }
+            ,
+            this._callback = e
+        }
+        async connect() {
+            const {isCached: e, unsubscribe: t} = await (e => {
+                const t = t => {
+                    t.persisted && e(t)
+                }
+                ;
+                window.addEventListener("pageshow", t, !0);
+                const i = new Ue;
+                return i.resolve({
+                    isCached: Vc(),
+                    unsubscribe: () => {
+                        window.removeEventListener("pageshow", t)
+                    }
+                }),
+                i.promise
+            }
+            )(this.remeasureForBFCacheRestore);
+            this._unsubscribeFromCacheRestore = t,
+            this._isCached = e,
+            this.gatherThenSendMetrics();
+            Object.keys(this._metrics).some((e => !this.isKeyCustomMetric(e) && !this._metrics[e])) && this.registerPerfObserver()
+        }
+        disconnect() {
+            var e, t;
+            null === (e = this._observer) || void 0 === e || e.disconnect(),
+            null === (t = this._unsubscribeFromCacheRestore) || void 0 === t || t.call(this)
+        }
+        gatherThenSendMetrics() {
+            const e = this.gatherMetrics();
+            this.notifyAndSendMetrics(e)
+        }
+        notifyAndSendMetrics(e) {
+            Object.keys(e.metrics).length && this._callback(e)
+        }
+        isKeyCustomMetric(e) {
+            return Object.prototype.hasOwnProperty.call(this._custom, e)
+        }
+        gatherMetrics() {
+            const e = {
+                metrics: {},
+                meta: {}
+            };
+            return this._isCached && (e.cache_restore = !0),
+            Object.keys(this._metrics).forEach((t => {
+                var i;
+                if (this._metrics[t])
+                    return;
+                if (this.isKeyCustomMetric(t)) {
+                    const {value: n, meta: o} = null !== (i = this._custom[t]) && void 0 !== i ? i : {};
+                    n > -1 && (e.metrics[t] = n,
+                    e.meta[t] = Object.assign({}, o),
+                    this._metrics[t] = !0)
+                }
+                performance.getEntriesByName(t, "mark").length && performance.measure(t, "fetchStart", t);
+                const n = performance.getEntriesByName(t, "measure");
+                if (n.length) {
+                    const {duration: i} = n[0];
+                    e.metrics[t] = Math.ceil(i),
+                    this._metrics[t] = !0
+                }
+            }
+            )),
+            e
+        }
+        registerPerfObserver() {
+            this._observer = new PerformanceObserver((e => {
+                e.getEntries().some((e => !!e.name && !this._metrics[e.name])) && this.gatherThenSendMetrics()
+            }
+            )),
+            this._observer.observe({
+                entryTypes: ["mark"]
+            })
+        }
+        registerPerfMetric(e) {
+            this._metrics[e] = !1
+        }
+        registerCustomMetric(e) {
+            return this._custom[e] = {
+                value: -1,
+                meta: {}
+            },
+            this.registerPerfMetric(e),
+            (t, i) => {
+                this._custom[e] = {
+                    value: t,
+                    meta: i
+                },
+                this.gatherThenSendMetrics()
+            }
+        }
+        getCustomMetricValue(e) {
+            return this._custom[e]
+        }
+    }
+    var qh;
+    !function(e) {
+        e.CLS = "cumulative-layout-shift",
+        e.FID = "first-input-delay",
+        e.LCP = "largest-contentful-paint",
+        e.TTFB = "time-to-first-byte",
+        e.INP = "interaction-to-next-paint"
+    }(qh || (qh = {}));
+    let Yh = class extends e.s {
+        constructor() {
+            super(...arguments),
+            this._perfMetrics = new $h((e => {
+                var t;
+                const i = null === (t = Kh()) || void 0 === t ? void 0 : t.yearClass
+                  , n = Object.assign(Object.assign({}, e), {
+                    meta: Object.assign(Object.assign({}, e.meta), i && {
+                        yearClass: i
+                    })
+                })
+                  , o = v("faceplate-request", {
+                    resource: this.endpoint,
+                    request: {
+                        body: n
+                    }
+                });
+                if (this.dispatchEvent(o),
+                o.defaultPrevented)
+                    return;
+                const r = JSON.stringify(o.detail.request.body);
+                va(this.endpoint, r)
+            }
+            )),
+            this.endpoint = ""
+        }
+        render() {
+            return e.x` <slot hidden></slot> `
+        }
+        firstUpdated() {
+            if (this.endpoint) {
+                if (this._slottedContent)
+                    for (const e of this._slottedContent)
+                        e instanceof HTMLDataElement && this.parseDataElement(e);
+                fh(this.onWebVitalMeasured(qh.CLS, (e => e))),
+                function(e, t) {
+                    Ch((function(t) {
+                        !function(e) {
+                            var t = e.entries[0];
+                            e.attribution = {
+                                eventTarget: Xu(t.target),
+                                eventType: t.name,
+                                eventTime: t.startTime,
+                                eventEntry: t,
+                                loadState: Qu(t.startTime)
+                            }
+                        }(t),
+                        e(t)
+                    }
+                    ), t)
+                }(this.onWebVitalMeasured(qh.FID, Math.ceil)),
+                function(e, t) {
+                    Wh((function(t) {
+                        !function(e) {
+                            if (e.entries.length) {
+                                var t = e.entries[0]
+                                  , i = t.activationStart || 0
+                                  , n = Math.max(t.domainLookupStart - i, 0)
+                                  , o = Math.max(t.connectStart - i, 0)
+                                  , r = Math.max(t.requestStart - i, 0);
+                                e.attribution = {
+                                    waitingTime: n,
+                                    dnsTime: o - n,
+                                    connectionTime: r - o,
+                                    requestTime: e.value - r,
+                                    navigationEntry: t
+                                }
+                            } else
+                                e.attribution = {
+                                    waitingTime: 0,
+                                    dnsTime: 0,
+                                    connectionTime: 0,
+                                    requestTime: 0
+                                }
+                        }(t),
+                        e(t)
+                    }
+                    ), t)
+                }(this.onWebVitalMeasured(qh.TTFB, Math.ceil)),
+                this.onLCP(this.onWebVitalMeasured(qh.LCP, Math.ceil)),
+                this.onLCP(this.onWebVitalMeasured("longest-contentful-paint", Math.ceil)),
+                this.onINP(this.onWebVitalMeasured(qh.INP, Math.ceil)),
+                this._perfMetrics.connect()
+            } else
+                console.error("faceplate-perfmetric-collector: no endpoint specified")
+        }
+        onINP(...e) {
+            return Bh(...e)
+        }
+        onLCP(...e) {
+            return function(e, t) {
+                !function(e, t) {
+                    t = t || {},
+                    mh((function() {
+                        var i, n = ph(), o = ih("LCP"), r = function(e) {
+                            var t = e[e.length - 1];
+                            t && t.startTime < n.firstHiddenTime && (o.value = Math.max(t.startTime - th(), 0),
+                            o.entries = [t],
+                            i())
+                        }, a = nh("largest-contentful-paint", r);
+                        if (a) {
+                            i = oh(e, o, Vh, t.reportAllChanges);
+                            var s = sh((function() {
+                                xh[o.id] || (r(a.takeRecords()),
+                                a.disconnect(),
+                                xh[o.id] = !0,
+                                i(!0))
+                            }
+                            ));
+                            ["keydown", "click"].forEach((function(e) {
+                                addEventListener(e, (function() {
+                                    return setTimeout(s, 0)
+                                }
+                                ), !0)
+                            }
+                            )),
+                            ah(s),
+                            eh((function(n) {
+                                o = ih("LCP"),
+                                i = oh(e, o, Vh, t.reportAllChanges),
+                                rh((function() {
+                                    o.value = performance.now() - n.timeStamp,
+                                    xh[o.id] = !0,
+                                    i(!0)
+                                }
+                                ))
+                            }
+                            ))
+                        }
+                    }
+                    ))
+                }((function(t) {
+                    !function(e) {
+                        if (e.entries.length) {
+                            var t = Yu();
+                            if (t) {
+                                var i = t.activationStart || 0
+                                  , n = e.entries[e.entries.length - 1]
+                                  , o = n.url && performance.getEntriesByType("resource").filter((function(e) {
+                                    return e.name === n.url
+                                }
+                                ))[0]
+                                  , r = Math.max(0, t.responseStart - i)
+                                  , a = Math.max(r, o ? (o.requestStart || o.startTime) - i : 0)
+                                  , s = Math.max(a, o ? o.responseEnd - i : 0)
+                                  , d = Math.max(s, n ? n.startTime - i : 0)
+                                  , l = {
+                                    element: Xu(n.element),
+                                    timeToFirstByte: r,
+                                    resourceLoadDelay: a - r,
+                                    resourceLoadTime: s - a,
+                                    elementRenderDelay: d - s,
+                                    navigationEntry: t,
+                                    lcpEntry: n
+                                };
+                                return n.url && (l.url = n.url),
+                                o && (l.lcpResourceEntry = o),
+                                void (e.attribution = l)
+                            }
+                        }
+                        e.attribution = {
+                            timeToFirstByte: 0,
+                            resourceLoadDelay: 0,
+                            resourceLoadTime: 0,
+                            elementRenderDelay: e.value
+                        }
+                    }(t),
+                    e(t)
+                }
+                ), t)
+            }(...e)
+        }
+        onWebVitalMeasured(e, t) {
+            const i = this._perfMetrics.registerCustomMetric(e);
+            return n => {
+                var o;
+                -1 === n.value || (null === (o = this._perfMetrics.getCustomMetricValue(e)) || void 0 === o ? void 0 : o.value) > -1 || i(t(n.value), n.attribution)
+            }
+        }
+        disconnectedCallback() {
+            super.disconnectedCallback(),
+            this._perfMetrics.disconnect()
+        }
+        parseDataElement(e) {
+            const t = e.value;
+            this._perfMetrics.registerPerfMetric(t)
+        }
+    }
+    ;
+    t([m()], Yh.prototype, "_slottedContent", void 0),
+    t([d({
+        type: String
+    })], Yh.prototype, "endpoint", void 0),
+    Yh = t([a("faceplate-perfmetric-collector")], Yh);
+    let Qh = gl
+      , Jh = class extends e.s {
+        constructor() {
+            super(...arguments),
+            this.name = "",
+            this.activation = Se.Action,
+            this.queryParams = {},
+            this.routeParams = {},
+            this.isReactivatable = !1,
+            this.isScoped = !1,
+            this._reactiveControllers = [],
+            this.handleActivate = async e => {
+                e._featureActivationHandled || this._hasBeenActivated() && !this.isReactivatable || (e.stopPropagation(),
+                await this._activateFeature(),
+                this.isReactivatable || this._cleanupControllers(),
+                e._featureActivationHandled = !0,
+                e.target?.dispatchEvent(e))
+            }
+        }
+        async _activateFeature() {
+            await Qh({
+                name: this.name,
+                renderMode: this.renderMode,
+                queryParams: this.queryParams,
+                routeParams: this.routeParams,
+                root: this.isScoped ? this : void 0
+            })
+        }
+        _hasBeenActivated() {
+            return pl(this.name)
+        }
+        _cleanupControllers() {
+            this._reactiveControllers.forEach((e => Pe(this, e))),
+            this._reactiveControllers = []
+        }
+        connectedCallback() {
+            super.connectedCallback(),
+            this.activation === Se.Action ? this._reactiveControllers.push(Ne(this, this, this.handleActivate, {
+                capture: !0
+            })) : this.activation === Se.Intent && (this._reactiveControllers.push(Oe(this, this, this.handleActivate, {
+                capture: !0
+            })),
+            this._reactiveControllers.push(Ne(this, this, this.handleActivate, {
+                capture: !0
+            })))
+        }
+        disconnectedCallback() {
+            super.disconnectedCallback(),
+            this._cleanupControllers()
+        }
+        createRenderRoot() {
+            return this
+        }
+    }
+    ;
+    t([d({
+        type: String
+    })], Jh.prototype, "name", void 0),
+    t([d({
+        type: String,
+        attribute: "activation"
+    })], Jh.prototype, "activation", void 0),
+    t([d({
+        type: String,
+        attribute: "render-mode"
+    })], Jh.prototype, "renderMode", void 0),
+    t([d({
+        type: Object,
+        attribute: "query-params"
+    })], Jh.prototype, "queryParams", void 0),
+    t([d({
+        type: Object,
+        attribute: "route-params"
+    })], Jh.prototype, "routeParams", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "reactivatable"
+    })], Jh.prototype, "isReactivatable", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "scoped"
+    })], Jh.prototype, "isScoped", void 0),
+    Jh = t([a("activate-feature")], Jh);
+    var Xh;
+    !function(e) {
+        e.VIDEO_PLAYER = "video-player",
+        e.SUBREDDIT_LINK = "subreddit-link",
+        e.COMMENTS_BUTTON = "comments-button",
+        e.OVERFLOW_BUTTON = "overflow-button",
+        e.VOTE = "vote",
+        e.JOIN = "join",
+        e.SHARE = "share",
+        e.PROMOTE_POST_BUTTON = "promote-post-button",
+        e.TEXT_BODY = "text-body",
+        e.SUMMARY_DROPDOWN_MENU = "summary-dropdown-menu",
+        e.SUMMARY_MENU = "summary-menu"
+    }(Xh || (Xh = {}));
+    let Zh = gl
+      , ep = Ps;
+    const tp = e => {
+        const t = ep();
+        return Zh({
+            name: "CommunityJoinActions_qKl0Y8",
+            routeParams: {
+                subredditName: e
+            },
+            queryParams: t ? {
+                pageType: t
+            } : void 0,
+            renderMode: ye.Contents
+        })
+    }
+      , ip = Kc(e.s);
+    var np, op;
+    !function(e) {
+        e.Small = "small",
+        e.XSmall = "x-small",
+        e.Medium = "medium"
+    }(np || (np = {})),
+    function(e) {
+        e.Primary = "primary",
+        e.Secondary = "secondary",
+        e.Plain = "plain",
+        e.Bordered = "bordered"
+    }(op || (op = {}));
+    let rp = class extends ip {
+        constructor() {
+            super(...arguments),
+            this.isUserLoggedIn = !1,
+            this.name = "",
+            this.prefixedName = "",
+            this.subredditId = "",
+            this.subscribed = !1,
+            this.subscribeLabel = "Unir-se",
+            this.unsubscribeLabel = "Membro",
+            this.buttonsize = np.Small,
+            this.buttonClasses = "",
+            this.withTracking = !1,
+            this.trackingSource = "",
+            this.trackingAction = "click",
+            this.trackingSubscribeNoun = "subscribe",
+            this.trackingUnsubscribeNoun = "unsubscribe",
+            this.trackingOptions = {},
+            this.isDisabled = !1,
+            this.pubsub = new dl(this),
+            this.onSubscriptionChange = e => {
+                this.name === e.name && (this.subscribed = e.subscribed)
+            }
+        }
+        static get styles() {
+            return ee
+        }
+        firstUpdated() {
+            this.pubsub.subscribe(cl.SubredditSubscriptionChange, this.onSubscriptionChange)
+        }
+        async handleClick(e, t) {
+            if (e.preventDefault(),
+            this.withTracking) {
+                const e = si({
+                    source: this.trackingSource,
+                    action: this.trackingAction,
+                    noun: this.subscribed ? this.trackingUnsubscribeNoun : this.trackingSubscribeNoun,
+                    ...this.trackingOptions
+                });
+                this.trackEvent(e)
+            }
+            var i;
+            if (this.dispatchEvent((i = {
+                subreddit_name: this.name,
+                subreddit_id: this.subredditId
+            },
+            v(al, i))),
+            this.isUserLoggedIn) {
+                this.isDisabled = !0,
+                t && tp(this.name).catch(( () => {}
+                ));
+                try {
+                    const e = await this.makeSubscriptionRequest(t ? Po.Subscribed : Po.None);
+                    if (e?.data?.updateSubredditSubscriptions?.ok) {
+                        this.subscribed = t;
+                        const e = {
+                            name: this.name,
+                            subscribed: t
+                        };
+                        ll(cl.SubredditSubscriptionChange, e)
+                    } else
+                        this.handleSubscriptionChangeError(ic.QueryBadResponse)
+                } catch (e) {
+                    this.handleSubscriptionChangeError(nc(e))
+                }
+                this.isDisabled = !1
+            }
+        }
+        async makeSubscriptionRequest(e) {
+            return Ro({
+                operation: To.UpdateSubredditSubscriptions,
+                variables: {
+                    input: {
+                        inputs: [{
+                            subredditId: this.subredditId,
+                            subscribeState: e
+                        }]
+                    }
+                }
+            })
+        }
+        handleSubscriptionChangeError(e) {
+            this.dispatchEvent(v("faceplate-alert", {
+                level: ve.error,
+                message: "Algo deu errado",
+                cause: e
+            }))
+        }
+        render() {
+            const {subscribed: t} = this
+              , i = e => ({
+                "button-primary": e ? e === op.Primary : !this.subscribed,
+                "button-secondary": this.buttonType === op.Secondary,
+                "button-plain": e === op.Plain,
+                "button-bordered": e ? e === op.Bordered : this.subscribed,
+                "button-x-small": this.buttonsize === np.XSmall,
+                "button-small": this.buttonsize === np.Small,
+                "button-medium": this.buttonsize === np.Medium,
+                button: !0,
+                "join-btn": !0,
+                "leading-none": !0,
+                [this.buttonClasses]: !0
+            });
+            return t ? e.x` <button class="${te(i(this.unsubscribeButtonTypeOverride || this.buttonType))}" @click="${e => this.handleClick(e, !1)}" data-post-click-location="${Xh.JOIN}" ?disabled="${this.isDisabled}"> ${this.unsubscribeLabel} </button> ` : e.x` <button class="${te(i(this.subscribeButtonTypeOverride || this.buttonType))}" @click="${e => this.handleClick(e, !0)}" data-post-click-location="${Xh.JOIN}" ?disabled="${this.isDisabled}"> ${this.subscribeLabel} </button> `
+        }
+    }
+    ;
+    t([Pt({
+        context: Ua
+    }), d({
+        attribute: !1
+    })], rp.prototype, "isUserLoggedIn", void 0),
+    t([d({
+        type: String
+    })], rp.prototype, "name", void 0),
+    t([d({
+        type: String,
+        attribute: "prefixed-name"
+    })], rp.prototype, "prefixedName", void 0),
+    t([d({
+        type: String,
+        attribute: "subreddit-id"
+    })], rp.prototype, "subredditId", void 0),
+    t([d({
+        type: Boolean
+    })], rp.prototype, "subscribed", void 0),
+    t([d({
+        type: String,
+        attribute: "subscribe-label"
+    })], rp.prototype, "subscribeLabel", void 0),
+    t([d({
+        type: String,
+        attribute: "unsubscribe-label"
+    })], rp.prototype, "unsubscribeLabel", void 0),
+    t([d({
+        type: String
+    })], rp.prototype, "buttonsize", void 0),
+    t([d({
+        type: String,
+        attribute: "button-type"
+    })], rp.prototype, "buttonType", void 0),
+    t([d({
+        type: String,
+        attribute: "subscribe-button-type-override"
+    })], rp.prototype, "subscribeButtonTypeOverride", void 0),
+    t([d({
+        type: String,
+        attribute: "unsubscribe-button-type-override"
+    })], rp.prototype, "unsubscribeButtonTypeOverride", void 0),
+    t([d({
+        type: String,
+        attribute: "button-classes"
+    })], rp.prototype, "buttonClasses", void 0),
+    t([d({
+        type: Boolean,
+        attribute: "with-tracking"
+    })], rp.prototype, "withTracking", void 0),
+    t([d({
+        type: String,
+        attribute: "tracking-source"
+    })], rp.prototype, "trackingSource", void 0),
+    t([d({
+        type: String,
+        attribute: "tracking-action"
+    })], rp.prototype, "trackingAction", void 0),
+    t([d({
+        type: String,
+        attribute: "tracking-subscribe-noun"
+    })], rp.prototype, "trackingSubscribeNoun", void 0),
+    t([d({
+        type: String,
+        attribute: "tracking-unsubscribe-noun"
+    })], rp.prototype, "trackingUnsubscribeNoun", void 0),
+    t([d({
+        type: Object,
+        attribute: !1
+    })], rp.prototype, "trackingOptions", void 0),
+    t([l()], rp.prototype, "isDisabled", void 0),
+    rp = t([a("shreddit-join-button")], rp);
+    let ap = class extends e.s {
+        connectedCallback() {
+            super.connectedCallback();
+            const e = this.firstElementChild;
+            if ("TEMPLATE" !== e?.nodeName)
+                return;
+            document.createRange().createContextualFragment(e.innerHTML).childNodes.forEach((e => {
+                if (function(e) {
+                    return !!e.attributes
+                }(e)) {
+                    if ("SHREDDIT-APP-ATTRS" === e.nodeName) {
+                        sp(e, document.querySelector("shreddit-app"))
+                    }
+                    if ("SHREDDIT-FEED-ATTRS" === e.nodeName) {
+                        sp(e, this.closest("shreddit-feed"))
+                    }
+                    if ("SHREDDIT-GOOD-VISIT-TRACKER-ATTRS" === e.nodeName) {
+                        sp(e, document.querySelector("shreddit-good-visit-tracker"))
+                    }
+                }
+            }
+            ))
+        }
+        render() {
+            return e.x`<slot></slot>`
+        }
+    }
+    ;
+    function sp(e, t) {
+        for (let i = 0; i < e.attributes.length; i++) {
+            const n = e.attributes[i];
+            t?.setAttribute(n.name, n.value)
+        }
+    }
+    var dp;
+    ap = t([a("shreddit-page-meta")], ap),
+    function(e) {
+        e[e.hidden = 0] = "hidden",
+        e[e.animating = 1] = "animating",
+        e[e.stalled = 2] = "stalled",
+        e[e.hiding = 3] = "hiding"
+    }(dp || (dp = {}));
+    let lp = class extends e.s {
+        constructor() {
+            super(...arguments),
+            this.state = dp.hidden,
+            this.currentStartTime = null
+        }
+        render() {
+            const t = "bar bg-global-orangered transition-transform";
+            switch (this.state) {
+            case dp.animating:
+                return e.x`<div class="${t} animating-in" @animationend="${ () => {
+                    this.state = dp.stalled
+                }
+                }"></div>`;
+            case dp.hiding:
+                return e.x`<div class="${t} hiding" @animationend="${ () => {
+                    this.state = dp.hidden
+                }
+                }"></div>`;
+            case dp.stalled:
+                return e.x`<div class="${t} stalled"></div>`;
+            case dp.hidden:
+            default:
+                return e.A
+            }
+        }
+        show() {
+            this.currentStartTime = Date.now(),
+            this.state = dp.animating
+        }
+        hide() {
+            null === this.currentStartTime || Date.now() - this.currentStartTime < 150 || this.state === dp.hidden ? this.state = dp.hidden : this.state = dp.hiding
+        }
+    }
+    ;
+    var cp;
+    lp.styles = [e.i`.bar{height:2px}.animating-in{transform:scaleX(0);transform-origin:0 50%;animation-duration:15s;animation-iteration-count:1;animation-name:expand;animation-timing-function:cubic-bezier(.21,.62,.15,.99);animation-delay:150ms}.hiding{animation-duration:250ms;animation-iteration-count:1;animation-name:hide;animation-timing-function:ease-out;transform:scaleX(100%)}.stalled{transform:scaleX(99%)}@keyframes expand{from{transform:scaleX(0)}to{transform:scaleX(99%)}}@keyframes hide{from{transform:translateY(0)}to{transform:translateY(-100%)}}`, ee],
+    t([l()], lp.prototype, "state", void 0),
+    lp = t([a("navigation-indicator")], lp),
+    function(e) {
+        e.ACTION = "Action",
+        e.NAVIGATION = "Navigation",
+        e.MEDIA = "Media"
+    }(cp || (cp = {}));
+    const up = {
+        [cp.ACTION]: () => "Ação",
+        [cp.NAVIGATION]: () => "Navegação",
+        [cp.MEDIA]: () => "Multimídia"
+    };
+    var hp, pp;
+    !function(e) {
+        e.SHOW_SHORTCUTS = "show_shortcuts",
+        e.NEXT_POST_COMMENT = "next_post_comment",
+        e.PREVIOUS_POST_COMMENT = "previous_post_comment",
+        e.TOGGLE_EXPANDO = "toggle_expando",
+        e.COPY_POST_OR_COMMENT_LINK = "copy_post_or_comment_link",
+        e.UPVOTE = "upvote",
+        e.DOWNVOTE = "downvote",
+        e.CREATE_POST = "create_post",
+        e.REPLY_TO_COMMENT = "reply_to_comment",
+        e.TOGGLE_SAVE = "toggle_save",
+        e.HIDE_POST = "hide",
+        e.OPEN_NAVIGATION = "open_navigation",
+        e.TOGGLE_COLLAPSE_COMMENT = "toggle_collapse_comment",
+        e.SUBMIT = "submit"
+    }(hp || (hp = {})),
+    function(e) {
+        e.TOGGLE_PLAY = "TOGGLE_PLAY",
+        e.TOGGLE_FULLSCREEN = "TOGGLE_FULLSCREEN",
+        e.REWIND_5 = "REWIND_5",
+        e.FAST_FORWARD_5 = "FAST_FORWARD",
+        e.INCREASE_VOLUME = "INCREASE_VOLUME",
+        e.DECREASE_VOLUME = "DECREASE_VOLUME",
+        e.REWIND_10 = "REWIND_10",
+        e.FAST_FORWARD_10 = "FAST_FORWARD_10",
+        e.RESTART = "RESTART",
+        e.TOGGLE_MUTE = "TOGGLE_MUTE",
+        e.TOGGLE_CAPTIONS = "TOGGLE_CAPTIONS"
+    }(pp || (pp = {}));
+    var mp;
+    !function(e) {
+        e.AUTO = "auto",
+        e.METADATA = "metadata",
+        e.NONE = "none"
+    }(mp || (mp = {}));
+    const gp = "ad-media"
+      , _p = `${gp}-fullscreenchange`
+      , fp = `${gp}-pause`
+      , Ep = `${gp}-play`
+      , vp = `${gp}-timeupdate`
+      , Sp = `${gp}-volumechange`
+      , bp = `${gp}-seeking`
+      , Tp = `${gp}-seeked`
+      , yp = {
+        [pp.TOGGLE_PLAY]: {
+            label: () => "Reproduzir/Pausar",
+            keys: [" ", "k"],
+            type: cp.MEDIA
+        },
+        [pp.TOGGLE_FULLSCREEN]: {
+            label: () => "Habilitar/desabilitar o modo de tela cheia",
+            keys: ["f"],
+            type: cp.MEDIA
+        },
+        [pp.REWIND_5]: {
+            label: () => "Voltar 5 segundos",
+            keys: ["ArrowLeft"],
+            type: cp.MEDIA
+        },
+        [pp.FAST_FORWARD_5]: {
+            label: () => "Avançar 5 segundos",
+            keys: ["ArrowRight"],
+            type: cp.MEDIA
+        },
+        [pp.INCREASE_VOLUME]: {
+            label: () => "Aumentar volume",
+            keys: ["ArrowUp"],
+            type: cp.MEDIA
+        },
+        [pp.DECREASE_VOLUME]: {
+            label: () => "Diminuir volume",
+            keys: ["ArrowDown"],
+            type: cp.MEDIA
+        },
+        [pp.REWIND_10]: {
+            label: () => "Voltar 10 segundos",
+            keys: ["j"],
+            type: cp.MEDIA
+        },
+        [pp.FAST_FORWARD_10]: {
+            label: () => "Avançar 10 segundos",
+            keys: ["l"],
+            type: cp.MEDIA
+        },
+        [pp.RESTART]: {
+            label: () => "Reiniciar",
+            keys: ["0"],
+            type: cp.MEDIA
+        },
+        [pp.TOGGLE_MUTE]: {
+            label: () => "Silenciar/Remover silenciamento",
+            keys: ["m"],
+            type: cp.MEDIA
+        },
+        [pp.TOGGLE_CAPTIONS]: {
+            label: () => "Legenda",
+            keys: ["c"],
+            type: cp.MEDIA
+        }
+    }
+      , Ip = {
+        [hp.SHOW_SHORTCUTS]: {
+            label: () => "Mostrar atalhos",
+            keys: [{
+                key: "?",
+                shift: !0
+            }],
+            type: cp.NAVIGATION
+        },
+        [hp.NEXT_POST_COMMENT]: {
+            label: () => "Próximo post ou comentário",
+            keys: ["j"],
+            type: cp.NAVIGATION
+        },
+        [hp.PREVIOUS_POST_COMMENT]: {
+            label: () => "Post ou comentário anterior",
+            keys: ["k"],
+            type: cp.NAVIGATION
+        },
+        [hp.TOGGLE_EXPANDO]: {
+            label: () => "Expandir/esconder o conteúdo",
+            keys: ["x"],
+            type: cp.NAVIGATION
+        },
+        [hp.COPY_POST_OR_COMMENT_LINK]: {
+            label: () => "Copiar o link do post ou comentário",
+            keys: ["l"],
+            type: cp.NAVIGATION
+        },
+        [hp.UPVOTE]: {
+            label: () => "Upvote",
+            keys: ["a"],
+            type: cp.ACTION
+        },
+        [hp.DOWNVOTE]: {
+            label: () => "Downvote",
+            keys: ["z"],
+            type: cp.ACTION
+        },
+        [hp.REPLY_TO_COMMENT]: {
+            label: () => "Responder ao comentário",
+            keys: ["r"],
+            type: cp.ACTION
+        },
+        [hp.TOGGLE_SAVE]: {
+            label: () => "Salvar/Esquecer",
+            keys: ["s"],
+            type: cp.ACTION
+        },
+        [hp.HIDE_POST]: {
+            label: () => "Ocultar post",
+            keys: ["h"],
+            type: cp.ACTION
+        },
+        [hp.OPEN_NAVIGATION]: {
+            label: () => "Abrir/Fechar navegação",
+            keys: ["q"],
+            type: cp.ACTION
+        },
+        [hp.TOGGLE_COLLAPSE_COMMENT]: {
+            label: () => "Esconder/expandir comentário",
+            keys: ["f"],
+            type: cp.ACTION
+        },
+        [hp.CREATE_POST]: {
+            label: () => "Postar",
+            keys: ["c"],
+            type: cp.ACTION
+        },
+        [hp.SUBMIT]: {
+            label: () => "Enviar post/comentário",
+            keys: [{
+                key: "enter",
+                meta: !0,
+                allowFromInput: !0
+            }],
+            type: cp.ACTION
+        }
+    }
+      , Cp = {
+        ...yp,
+        ...Ip
+    }
+      , Ap = {
+        ids: new Set,
+        keys: {}
+    }
+      , Rp = new Set
+      , Pp = new Set
+      , Np = new Set;
+    class Op {
+        constructor(e) {
+            this.callbacks = new WeakMap,
+            this.addCallbackGuard = (e, t) => ({id: i}) => {
+                e === i && Ap.ids.has(i) && t()
+            }
+            ,
+            this.host = e,
+            this.host.addController(this)
+        }
+        hostConnected() {
+            this.pubsub = new dl(this.host),
+            window._pubsubControllerInstances.has(this.pubsub) || this.pubsub.hostConnected()
+        }
+        unsubscribe(e, t) {
+            const i = this.callbacks.get(t);
+            i && (this.pubsub?.unsubscribe(cl.Hotkeys, i),
+            this.callbacks.delete(t),
+            Np.delete(e))
+        }
+        subscribe(e, t) {
+            Np.add(e),
+            this.callbacks.set(t, this.addCallbackGuard(e, t));
+            const i = this.callbacks.get(t);
+            i && this.pubsub?.subscribe(cl.Hotkeys, i, !1)
+        }
+        contextualSubscribe(e, t, i=this.host) {
+            Rp.add(i),
+            Pp.add(e),
+            this.pubsub?.subscribe(cl.Hotkeys, ( ({id: i}) => {
+                e === i && Ap.ids.has(i) && t()
+            }
+            ), !1)
+        }
+    }
+    const wp = function() {
+        const e = new WeakMap
+          , t = new MutationObserver((t => {
+            for (const i of t) {
+                for (const t of i.addedNodes)
+                    for (const i of dm(t))
+                        for (const t of e.get(i) || sm)
+                            t?.added();
+                for (const t of i.removedNodes)
+                    for (const i of dm(t))
+                        for (const t of e.get(i) || sm)
+                            t?.removed()
+            }
+        }
+        ));
+        return async function() {
+            return new Promise((e => {
+                "loading" === document.readyState ? document.addEventListener("readystatechange", ( () => {
+                    e(!0)
+                }
+                ), {
+                    once: !0
+                }) : e(!0)
+            }
+            ))
+        }().then(( () => {
+            t.observe(document.body, {
+                childList: !0,
+                subtree: !0
+            })
+        }
+        )),
+        {
+            add(t, i) {
+                e.has(t) || e.set(t, []),
+                e.get(t).push(i)
+            },
+            remove(t, i) {
+                const n = e.get(t) || sm;
+                e.set(t, n.filter((e => e !== i)))
+            }
+        }
+    }()
+      , Dp = new dl({
+        addController() {}
+    });
+    Dp.hostConnected();
+    const Mp = new Op({
+        addController() {}
+    });
+    Mp.hostConnected();
+    const kp = "$result"
+      , Lp = /\((.+)\)$/
+      , Up = "actioned"
+      , Fp = `[${Up}]`;
+    const Bp = {
+        "ac-track": {
+            mapAttributes: e => ({
+                san: e.getAttribute("san"),
+                dataset: e.dataset
+            }),
+            action: async (e, t, i) => {
+                const n = function(e, t) {
+                    let i = {};
+                    t?.startsWith("{") && (i = JSON.parse(t));
+                    const n = e || t;
+                    if (!n)
+                        throw new Error("Invalid SAN");
+                    if (n.startsWith("{")) {
+                        const e = JSON.parse(n);
+                        return si(e, i)
+                    }
+                    {
+                        const [e,t,o] = n.split(/(?:\/|\||__)/g);
+                        if (e && t && o)
+                            return si({
+                                source: e,
+                                action: t,
+                                noun: o
+                            }, i)
+                    }
+                    throw new Error("Invalid SAN")
+                }(am(e, t, "san"), t.dataset.faceplateTrackingContext);
+                mt(i, n)
+            }
+        },
+        "ac-activate": {
+            mapAttributes: e => ({
+                name: e.getAttribute("name"),
+                args: e.getAttribute("args"),
+                renderMode: e.getAttribute("render-mode") ?? void 0,
+                queryParams: e.getAttribute("query-params"),
+                routeParams: e.getAttribute("route-params"),
+                scoped: em(e, "scoped")
+            }),
+            action: async (e, t, i) => {
+                const n = am(e, t, "name")
+                  , o = JSON.parse(am(e, t, "args") ?? "{}")
+                  , r = JSON.parse(am(e, t, "queryParams") ?? "null")
+                  , a = JSON.parse(am(e, t, "routeParams") ?? "null");
+                await gl({
+                    ...o,
+                    renderMode: t.renderMode ?? o.renderMode,
+                    queryParams: r ?? o.queryParams,
+                    routeParams: a ?? o.routeParams,
+                    root: t.scoped ? i : void 0,
+                    name: n ?? o.name
+                })
+            }
+        },
+        "ac-publish": {
+            mapAttributes: e => ({
+                topic: e.getAttribute("topic"),
+                payload: e.getAttribute("payload")
+            }),
+            action: (e, t) => {
+                let i = am(e, t, "payload");
+                try {
+                    i = JSON.parse(i || "undefined")
+                } catch {}
+                ll(t.topic, i)
+            }
+        },
+        "ac-contents": {
+            mapAttributes: e => ({
+                value: e.getAttribute("value")
+            }),
+            action: (e, t, i) => {
+                i.textContent = am(e, t, "value")
+            }
+        },
+        "ac-toggle": {
+            mapAttributes: e => ({
+                targetClass: e.getAttribute("target-class"),
+                force: e.getAttribute("force")
+            }),
+            action: (e, t, i) => {
+                const n = am(e, t, "targetClass");
+                if (n)
+                    return "add" === t.force ? i.classList.add(n) : "remove" === t.force ? i.classList.remove(n) : void i.classList.toggle(n)
+            }
+        },
+        "ac-toggle-attribute": {
+            mapAttributes: e => ({
+                targetAttribute: e.getAttribute("target-attribute")
+            }),
+            action: (e, t, i) => {
+                const n = am(e, t, "targetAttribute");
+                n && i.toggleAttribute(n)
+            }
+        },
+        "ac-render-template": {
+            mapAttributes: e => {
+                const t = e.getAttribute("template");
+                if (t)
+                    return {
+                        template: im(e, t)
+                    };
+                {
+                    const t = e.querySelector("template");
+                    return t?.remove(),
+                    {
+                        template: () => t
+                    }
+                }
+            }
+            ,
+            action: (e, t, i) => {
+                const n = t.template?.();
+                if (!n)
+                    throw new Error("template not found");
+                if (!("content"in n))
+                    throw new Error("target not a <template> element");
+                i.append(n.content.cloneNode(!0))
+            }
+        },
+        "ac-call": {
+            mapAttributes: e => ({
+                method: e.getAttribute("method")
+            }),
+            action: async (e, t, i) => {
+                let n = "event" === e.triggerType ? am(e, t, "method") : t.method;
+                if (!n)
+                    throw new Error("<ac-call> method not found");
+                let o = n.match(Lp)?.[1];
+                try {
+                    null != o && (o = JSON.parse(o))
+                } catch {}
+                n = n.split("(")[0],
+                lm(i) && (await cm(i)),"location.reload" === n ? um.reload() : "location.replace" === n && null != o && o !== um.href ? um.replace(o) : "location.assign" === n && null != o && o !== um.pathname ? um.assign(o) : "navigator.clipboard.writeText" === n && o && null !== o ? navigator.clipboard.writeText(o) : "function" == typeof i[n] && (null != o ? i[n](o) : e.result ? i[n](e.result) : i[n]())
+            }
+        },
+        "ac-set": {
+            mapAttributes: e => ({
+                value: e.getAttribute("value"),
+                attribute: e.getAttribute("attribute"),
+                property: e.getAttribute("property")
+            }),
+            action: async (e, t, i) => {
+                const n = am(e, t, "value");
+                if (!n)
+                    throw new Error("<ac-set>: invalid value");
+                const o = am(e, t, "attribute")
+                  , r = am(e, t, "property");
+                if (o)
+                    i.setAttribute(o, n);
+                else {
+                    if (!r)
+                        throw new Error("<ac-set>: invalid attribute or property name");
+                    lm(i) && (await cm(i)),
+                    i[r] = n
+                }
+            }
+        },
+        "ac-dispatch": {
+            mapAttributes: e => ({
+                eventName: e.getAttribute("event-name"),
+                detail: e.getAttribute("detail")
+            }),
+            action: (e, t, i) => {
+                const n = JSON.parse(am(e, t, "detail") ?? "{}")
+                  , o = v(t.eventName, n);
+                i.dispatchEvent(o)
+            }
+        },
+        "ac-gql-mutate": {
+            mapAttributes: e => ({
+                operation: e.getAttribute("operation"),
+                variables: JSON.parse(e.getAttribute("variables") ?? "{}"),
+                id: e.getAttribute("id") ?? ""
+            }),
+            action: async (e, t, i) => {
+                try {
+                    const e = await Ro({
+                        operation: t.operation,
+                        variables: t.variables
+                    })
+                      , [n] = Object.values(e.data);
+                    if (!n?.ok || n?.errors && n.errors.length > 0)
+                        throw new Error(`GraphQL error: ${n?.errors}`);
+                    const o = v("ac-load", {
+                        operation: t.operation,
+                        id: t.id
+                    });
+                    i.dispatchEvent(o)
+                } catch (e) {
+                    const n = v("ac-error", {
+                        error: e,
+                        operation: t.operation,
+                        id: t.id
+                    });
+                    i.dispatchEvent(n)
+                }
+            }
+        },
+        "ac-set-cookie": {
+            mapAttributes: e => ({
+                name: e.getAttribute("name"),
+                value: e.getAttribute("value"),
+                country: e.getAttribute("country"),
+                options: e.getAttribute("options")
+            }),
+            action: (e, t) => {
+                const i = am(e, t, "name");
+                if (!i)
+                    throw new Error('<ac-set-cookie>: invalid "name" attribute');
+                const n = am(e, t, "value") ?? ""
+                  , o = am(e, t, "country") ?? document.querySelector("shreddit-app")?.getAttribute("country");
+                if (!o)
+                    throw new Error('<ac-set-cookie>: invalid "country" attribute');
+                const r = JSON.parse(am(e, t, "options") ?? "null") ?? void 0;
+                hm({
+                    name: i,
+                    value: n,
+                    country: o,
+                    options: r
+                })
+            }
+        },
+        "ac-manipulate-href": {
+            mapAttributes: e => ({
+                payload: e.getAttribute("payload")
+            }),
+            action: (e, t, i) => {
+                const n = i.getAttribute("href");
+                if (!n)
+                    return;
+                const o = am(e, t, "payload");
+                if (!o)
+                    throw new Error('<ac-manipulate-href>: invalid "payload" attribute');
+                let r;
+                if (o.startsWith("{")) {
+                    const e = JSON.parse(o);
+                    r = {
+                        ...e,
+                        searchParams: new URLSearchParams(e.searchParams)
+                    }
+                } else
+                    r = new URL(o,n);
+                const {hash: a, hostname: s, pathname: d, port: l, protocol: c, searchParams: u} = r
+                  , h = new URL(n,um.href);
+                h.hash = a ?? h.hash,
+                h.hostname = s ?? h.hostname,
+                h.pathname = d ?? h.pathname,
+                h.port = l ?? h.port,
+                h.protocol = c ?? h.protocol;
+                for (const [e,t] of u.entries())
+                    if ("$referrer" === e) {
+                        const e = new URL(document.querySelector("shreddit-app")?.getAttribute("referrer") || document.referrer || CLIENT_CONFIG.ORIGIN);
+                        h.searchParams.set("referrer_domain", e.hostname),
+                        h.searchParams.set("referrer_url", e.pathname)
+                    } else
+                        h.searchParams.set(e, t);
+                i.setAttribute("href", h.toString())
+            }
+        },
+        "ac-set-local-storage": {
+            mapAttributes: e => ({
+                name: e.getAttribute("name"),
+                value: e.getAttribute("value"),
+                byUser: em(e, "by-user")
+            }),
+            action: (e, t) => {
+                const i = am(e, t, "name");
+                if (!i)
+                    throw new Error('<ac-set-local-storage>: invalid "name" attribute');
+                const n = t.byUser ? `${Ui(wt.get("loid")).id}-${i}` : i
+                  , o = am(e, t, "value") ?? "";
+                localStorage.setItem(n, o)
+            }
+        }
+    };
+    class Vp extends HTMLElement {
+        constructor() {
+            super(...arguments),
+            this._applied = !1
+        }
+        connectedCallback() {
+            if (this._applied)
+                return;
+            const e = im(this, this.getAttribute("trigger-elem"))();
+            if (!e)
+                return;
+            const {mapAttributes: t, action: i} = Bp[this.actionName]
+              , n = function(e, t) {
+                let i = e.getAttribute("trigger") ?? "click"
+                  , n = i.match(Lp)?.[1];
+                const o = n?.match(Lp)?.[1];
+                let r;
+                if (o) {
+                    n = n?.slice(0, n.indexOf(o) - 1);
+                    try {
+                        r = JSON.parse(o)
+                    } catch {}
+                }
+                i.startsWith("subscribe") && (i = "subscribe");
+                i.startsWith("view") && (i = "view");
+                i.startsWith("event") && (i = "event");
+                i.startsWith("activate") && (i = "activate");
+                i.startsWith("visibilitychange") && (i = "visibilitychange");
+                i.startsWith("scroll") && (i = "scroll");
+                i.startsWith("leave") && (n = i.match(/^leave\((.+)\)$/)?.[1],
+                i = "leave");
+                i.startsWith("hotkeys") && (i = "hotkeys");
+                const a = tm(e, "delay")
+                  , s = tm(e, "debounce")
+                  , d = tm(e, "throttle")
+                  , l = em(e, "once");
+                return {
+                    triggerElement: t,
+                    target: im(e, e.getAttribute("target")),
+                    triggerType: i,
+                    triggerArg: n,
+                    triggerFilter: r,
+                    readCache: em(e, "read-cache"),
+                    once: l,
+                    delay: a,
+                    debounce: s,
+                    throttle: d,
+                    _triggered: !1,
+                    _applied: !1,
+                    result: void 0
+                }
+            }(this, e);
+            !function(e, t, i) {
+                if (e._applied)
+                    return;
+                const n = e.triggerElement;
+                if (!n)
+                    return;
+                let o;
+                function r() {
+                    !function(e, t, i) {
+                        const n = i.target();
+                        if (i.once && i._triggered || !n)
+                            return;
+                        if ("number" == typeof i.debounce)
+                            return clearTimeout(i._triggerTimer),
+                            void (i._triggerTimer = setTimeout(( () => {
+                                e(i, t, n),
+                                i._triggered = !0
+                            }
+                            ), i.debounce));
+                        if ("number" == typeof i.throttle) {
+                            const o = Date.now();
+                            return void ((!i._lastThrottleTime || o - i._lastThrottleTime >= i.throttle) && (i._lastThrottleTime = o,
+                            e(i, t, n),
+                            i._triggered = !0))
+                        }
+                        "number" == typeof i.delay ? (clearTimeout(i._triggerTimer),
+                        i._triggerTimer = setTimeout(( () => {
+                            e(i, t, n)
+                        }
+                        ), i.delay)) : e(i, t, n);
+                        i._triggered = !0
+                    }(i, t, e),
+                    e.once && o && (o.removed(),
+                    wp.remove(n, o))
+                }
+                switch (e.triggerType) {
+                case "click":
+                case "event":
+                    o = function(e, t) {
+                        const {triggerElement: i} = t
+                          , n = t.triggerArg || "click"
+                          , o = "click" === n
+                          , r = {
+                            added: () => {
+                                i.addEventListener(n, a),
+                                o && i.addEventListener("keydown", s)
+                            }
+                            ,
+                            removed: () => {
+                                i.removeEventListener(n, a),
+                                o && i.removeEventListener("keydown", s)
+                            }
+                        }
+                          , a = i => {
+                            i instanceof CustomEvent && !nm(t, i.detail) || (t.result = i,
+                            e())
+                        }
+                          , s = t => {
+                            "Enter" !== t.code && "Space" !== t.code || e()
+                        }
+                        ;
+                        return r
+                    }(r, e);
+                    break;
+                case "init":
+                    requestAnimationFrame(r);
+                    break;
+                case "activate":
+                    e.triggerArg = `activate-${e.triggerArg}`;
+                case "subscribe":
+                    o = function(e, t) {
+                        const i = t.triggerArg;
+                        if (!i)
+                            throw new Error("Invalid pubsub topic");
+                        const n = {
+                            added: () => Dp.subscribe(i, o, t.readCache),
+                            removed: () => Dp.unsubscribe(i, o)
+                        }
+                          , o = i => {
+                            nm(t, i) && (t.result = i,
+                            e())
+                        }
+                        ;
+                        return n
+                    }(r, e);
+                    break;
+                case "hotkeys":
+                    o = function(e, t) {
+                        if (!t)
+                            throw new Error("Invalid hotkeys event name");
+                        return {
+                            added: () => Mp.subscribe(t, e),
+                            removed: () => Mp.unsubscribe(t, e)
+                        }
+                    }(r, e.triggerArg);
+                    break;
+                case "view":
+                    o = function(e, t) {
+                        const {triggerElement: i} = t
+                          , n = t.triggerFilter ?? {}
+                          , o = new _e(n)
+                          , r = {
+                            added: () => {
+                                i.addEventListener("faceplate-enter", e),
+                                i.addEventListener("faceplate-leave", a),
+                                o.observe(i)
+                            }
+                            ,
+                            removed: () => {
+                                i.removeEventListener("faceplate-enter", e),
+                                i.removeEventListener("faceplate-leave", a),
+                                o.unobserve(i)
+                            }
+                        }
+                          , a = () => clearTimeout(t._triggerTimer);
+                        return r
+                    }(r, e);
+                    break;
+                case "visibilitychange":
+                    o = function(e, t) {
+                        const {triggerElement: i} = t
+                          , n = "hidden" === t.triggerArg
+                          , o = {
+                            added: () => {
+                                i.addEventListener("visibilitychange", r)
+                            }
+                            ,
+                            removed: () => {
+                                i.removeEventListener("visibilitychange", r)
+                            }
+                        }
+                          , r = () => {
+                            om.hidden === n && e()
+                        }
+                        ;
+                        return o
+                    }(r, e);
+                    break;
+                case "scroll":
+                    o = function(e, t) {
+                        const {triggerElement: i} = t;
+                        let n = Number.parseInt(t.triggerArg ?? "");
+                        isNaN(n) && (n = 1);
+                        const o = {
+                            x: 0,
+                            y: 0
+                        }
+                          , r = {
+                            x: 0,
+                            y: 0
+                        };
+                        function a(t, i) {
+                            (Math.abs(t) >= n || Math.abs(i) >= n) && e()
+                        }
+                        const s = {
+                            added: () => {
+                                i.addEventListener("wheel", d),
+                                i.addEventListener("touchstart", l),
+                                i.addEventListener("touchmove", c)
+                            }
+                            ,
+                            removed: () => {
+                                i.removeEventListener("wheel", d),
+                                i.removeEventListener("touchstart", l),
+                                i.removeEventListener("touchmove", c)
+                            }
+                        }
+                          , d = e => {
+                            r.x += e.deltaX ?? 0,
+                            r.y += e.deltaY ?? 0,
+                            a(r.x, r.y)
+                        }
+                          , l = e => {
+                            const t = e.touches[0] ?? e.changedTouches[0] ?? e.targetTouches[0];
+                            o.x = t.clientX,
+                            o.y = t.clientY
+                        }
+                          , c = e => {
+                            const t = e.touches[0] ?? e.changedTouches[0] ?? e.targetTouches[0];
+                            a(t.clientX - o.x, t.clientY - o.y)
+                        }
+                        ;
+                        return s
+                    }(r, e);
+                    break;
+                case "leave":
+                    o = function(e, t) {
+                        const {triggerElement: i} = t
+                          , n = t.triggerArg ?? ""
+                          , o = n.match(/(top|bottom|left|right)/)
+                          , r = o ? o[1] : null;
+                        let a = r ? Number.parseInt(n.match(/\((\d+)px\)/)?.[1] ?? "") : Number.parseInt(n.match(/(\d+)px/)?.[1] ?? "");
+                        isNaN(a) && (a = 0);
+                        const s = new IntersectionObserver((t => {
+                            const i = t[0];
+                            i.isIntersecting || null !== r && r !== function(e) {
+                                if (e.boundingClientRect.bottom <= (e.rootBounds?.top ?? 0))
+                                    return "top";
+                                if (e.boundingClientRect.top >= (e.rootBounds?.bottom ?? 0))
+                                    return "bottom";
+                                if (e.boundingClientRect.right <= (e.rootBounds?.left ?? 0))
+                                    return "left";
+                                if (e.boundingClientRect.left >= (e.rootBounds?.right ?? 0))
+                                    return "right";
+                                return "unknown"
+                            }(i) || e()
+                        }
+                        ),{
+                            rootMargin: `${a}px`
+                        });
+                        return {
+                            added: () => {
+                                s.observe(i)
+                            }
+                            ,
+                            removed: () => {
+                                s.disconnect()
+                            }
+                        }
+                    }(r, e);
+                    break;
+                default:
+                    throw new Error(`${e.triggerType} unimplemented`)
+                }
+                o && (o.added(),
+                wp.add(n, o));
+                e._applied = !0,
+                n.setAttribute?.(Up, "")
+            }(n, t(this), i),
+            this.remove()
+        }
+    }
+    let xp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-track"
+        }
+    }
+    ;
+    xp = t([a("ac-track")], xp);
+    let Gp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-activate"
+        }
+    }
+    ;
+    Gp = t([a("ac-activate")], Gp);
+    let Hp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-publish"
+        }
+    }
+    ;
+    Hp = t([a("ac-publish")], Hp);
+    let Wp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-contents"
+        }
+    }
+    ;
+    Wp = t([a("ac-contents")], Wp);
+    let zp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-toggle"
+        }
+    }
+    ;
+    zp = t([a("ac-toggle")], zp);
+    let jp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-toggle-attribute"
+        }
+    }
+    ;
+    jp = t([a("ac-toggle-attribute")], jp);
+    let Kp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-render-template"
+        }
+    }
+    ;
+    Kp = t([a("ac-render-template")], Kp);
+    let $p = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-call"
+        }
+    }
+    ;
+    $p = t([a("ac-call")], $p);
+    let qp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-set"
+        }
+    }
+    ;
+    qp = t([a("ac-set")], qp);
+    let Yp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-dispatch"
+        }
+    }
+    ;
+    Yp = t([a("ac-dispatch")], Yp);
+    let Qp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-gql-mutate"
+        }
+    }
+    ;
+    Qp = t([a("ac-gql-mutate")], Qp);
+    let Jp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-set-cookie"
+        }
+    }
+    ;
+    Jp = t([a("ac-set-cookie")], Jp);
+    let Xp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-manipulate-href"
+        }
+    }
+    ;
+    Xp = t([a("ac-manipulate-href")], Xp);
+    let Zp = class extends Vp {
+        constructor() {
+            super(...arguments),
+            this.actionName = "ac-set-local-storage"
+        }
+    }
+    ;
+    function em(e, t) {
+        return e.hasAttribute(t) && "false" !== e.getAttribute(t)
+    }
+    function tm(e, t) {
+        const i = e.getAttribute(t);
+        if (i) {
+            const e = Number.parseInt(i);
+            if (!isNaN(e))
+                return e
+        }
+    }
+    function im(e, t) {
+        const {parentElement: i} = e;
+        if (!t || "parent" === t)
+            return () => i;
+        if ("previous" === t || "prev" === t) {
+            const t = function(e) {
+                let t = e;
+                for (; t = t.previousElementSibling; )
+                    if (!t.nodeName.startsWith("AC-"))
+                        return t;
+                return e.parentElement
+            }(e);
+            return () => t
+        }
+        if ("window" === t)
+            return () => window;
+        if ("document" === t)
+            return () => window.document;
+        if (t.startsWith("closest")) {
+            const e = t.match(Lp)?.[1];
+            if (e)
+                return () => i?.matches(e) ? i : ie(i, e)
+        }
+        return () => document.querySelector(t)
+    }
+    function nm(e, t) {
+        return !e.triggerFilter || Object.keys(e.triggerFilter).every((i => t[i] === e.triggerFilter?.[i]))
+    }
+    Zp = t([a("ac-set-local-storage")], Zp);
+    let om = document;
+    const rm = /\$\{(result[^}]+)\}/g;
+    function am(e, t, i) {
+        const n = t[i];
+        if (n === kp)
+            return e.result;
+        if (n?.includes(kp))
+            return n.replaceAll(kp, e.result);
+        if (n?.match(rm)) {
+            const t = (t, i) => (function(e, t) {
+                const i = e.split(".").slice(1);
+                for (const e of i)
+                    t = t[e];
+                return t
+            }
+            )(i, e.result);
+            return n.replace(rm, t)
+        }
+        return n
+    }
+    const sm = [];
+    function dm(e) {
+        return function(e) {
+            return !!e.querySelectorAll
+        }(e) ? [...(e.matches(Fp) ? [e] : sm), ...e.querySelectorAll(Fp)] : sm;
+    }
+    function lm(e) {
+        if (e === window || e === document)
+            return !1;
+        const t = e.nodeName;
+        return t.includes("-") && !window.customElements.get(t.toLowerCase())
+    }
+    async function cm(e) {
+        await window.customElements.whenDefined(e.nodeName.toLowerCase())
+    }
+    let um = window.location
+      , hm = Un;
+    var pm;
+    !function(e) {
+        e.Normal = "normal",
+        e.Slow = "slow"
+    }(pm || (pm = {}));
+    const mm = pm.Slow
+      , gm = "experience-tier";
+    let _m = !1
+      , fm = mm;
+    const Em = new Ue;
+    class vm extends We {
+        constructor() {
+            super(...arguments),
+            this.src = "",
+            this.loading = Se.Lazy
+        }
+        static configureLoader(e) {
+            Em.resolve(e)
+        }
+        createRenderRoot() {
+            return this
+        }
+    }
+    function Sm(e, t) {
+        return new Promise(( (i, n) => {
+            const o = document.createElement("link");
+            t.appendChild(o),
+            o.rel = "stylesheet",
+            o.href = e,
+            o.onload = () => i(),
+            o.onerror = () => n()
+        }
+        ))
+    }
+    t([d({
+        type: String
+    })], vm.prototype, "src", void 0),
+    t([d({
+        type: String
+    })], vm.prototype, "loading", void 0),
+    He(vm, Em.promise),
+    window.customElements.define("faceplate-loader", vm);
+    const bm = (e, t) => {
+        const i = e;
+        if (!t)
+            return void (i.loadingPromises = [Promise.resolve()]);
+        let n = i.getRootNode();
+        if (n instanceof Document && (n = n.body),
+        t.startsWith("concat:")) {
+            const e = t.replace("concat:", "").split(",").map((e => e.trim())).filter(Boolean)
+              , o = e.filter((e => e.endsWith(".css") || e.endsWith(".less")))
+              , r = o.map((e => Sm(e, n)))
+              , a = e.filter((e => e.endsWith(".js") || e.endsWith(".ts"))).map((e => e.match(/^https:\/\//) ? new URL(e).pathname : e));
+            return r.push(window.SML.load(a, i.dataset.prefix || "")),
+            void (i.loadingPromises = r)
+        }
+        const o = t.split(",").map((e => e.trim())).filter(Boolean);
+        i.loadingPromises = o.map((e => e.endsWith(".js") || e.endsWith(".ts") ? function(e, t) {
+            return new Promise(( (i, n) => {
+                const o = document.createElement("script");
+                t.appendChild(o),
+                o.type = "module",
+                o.async = !0,
+                o.src = e,
+                o.onload = () => i(),
+                o.onerror = () => n()
+            }
+            ))
+        }(e, n) : e.endsWith(".css") || e.endsWith(".less") ? Sm(e, n) : Promise.reject("Only JS and CSS files can be loaded with faceplate-loader")))
+    }
+      , Tm = async e => {
+        const t = e;
+        await Promise.allSettled(t.loadingPromises);
+        const i = t.nextElementSibling;
+        if (!i || "TEMPLATE" !== i.tagName || i.getAttribute("name") !== t.getAttribute("name"))
+            return;
+        const n = i.content.cloneNode(!0);
+        t.after(n)
+    }
+    ;
+    var ym, Im;
+    return !!document.querySelector("reddit-debug-panel") && (re(),
+    window.getUnusedElements = se),
+    Re.addLoaders({
+        faceplate_hovercard: () => SML.di("./faceplate-hovercard-a8c24700.js", import.meta.url, "faceplatehovercarda8c24700").then((function(e) {
+            return e.f
+        }
+        )),
+        shreddit_player_2_loader: () => SML.di("./shreddit-player-2-dd1be266.js", import.meta.url, "shredditplayer2dd1be266"),
+        devvit_context_actions: () => SML.di("./devvit-context-actions-87c85028.js", import.meta.url, "devvitcontextactions87c85028"),
+        debug: () => SML.di("./debug-b55a15e5.js", import.meta.url, "debugb55a15e5"),
+        reddit_cookie_banner: () => SML.di("./reddit-cookie-banner-cd86cf12.js", import.meta.url, "redditcookiebannercd86cf12"),
+        data_protection_consent: () => SML.di("./data-protection-consent-client-js-63d83b4f.js", import.meta.url, "dataprotectionconsentclientjs63d83b4f"),
+        shreddit_post_overflow_menu: () => Promise.all([SML.di("./shreddit-post-overflow-menu-af57b7d2.js", import.meta.url, "shredditpostoverflowmenuaf57b7d2"), SML.di("./recommendation-context-overflow-menu-d8a01239.js", import.meta.url, "recommendationcontextoverflowmenud8a01239"), SML.di("./unpacking-overflow-menu-29d68cfd.js", import.meta.url, "unpackingoverflowmenu29d68cfd")]),
+        shreddit_post_poll: () => SML.di("./shreddit-post-poll-da2244cb.js", import.meta.url, "shredditpostpollda2244cb"),
+        shreddit_sort_dropdown: () => SML.di("./reddit-pro-related-keywords-client-js-1d5927e4.js", import.meta.url, "redditprorelatedkeywordsclientjs1d5927e4").then((function(e) {
+            return e.i
+        }
+        )),
+        embed: () => SML.di("./shreddit-embed-b7fabcd0.js", import.meta.url, "shredditembedb7fabcd0"),
+        faceplate_expandable_section: () => Promise.all([SML.di("./faceplate-expandable-section-helper-e978cbfc.js", import.meta.url, "faceplateexpandablesectionhelpere978cbfc"), SML.di("./faceplate-auto-height-animator-cc5e100d.js", import.meta.url, "faceplateautoheightanimatorcc5e100d")]),
+        ads_rbl_survey: () => SML.di("./ads-rbl-survey-client-js-45a43c3a.js", import.meta.url, "adsrblsurveyclientjs45a43c3a").then((function(e) {
+            return e.i
+        }
+        )),
+        recap_blocking_modal: () => SML.di("./xpromo-recap-blocking-modal-be1d0e20.js", import.meta.url, "xpromorecapblockingmodalbe1d0e20"),
+        gallery_carousel: () => Promise.all([SML.di("./gallery-carousel-83e073a8.js", import.meta.url, "gallerycarousel83e073a8"), SML.di("./gallery-caption-f179275d.js", import.meta.url, "gallerycaptionf179275d")]),
+        collections_carousel: () => Promise.all([SML.di("./collections-carousel-9c16ee5d.js", import.meta.url, "collectionscarousel9c16ee5d")]),
+        faceplate_iframe: () => SML.di("./faceplate-iframe-8a0fdf69.js", import.meta.url, "faceplateiframe8a0fdf69"),
+        comment_body_header: () => SML.di("./comment-body-header-7532bc29.js", import.meta.url, "commentbodyheader7532bc29"),
+        translation_feedback: () => SML.di("./translation-feedback-67e465a4.js", import.meta.url, "translationfeedback67e465a4"),
+        translation_row: () => SML.di("./translation-row-b0322d4c.js", import.meta.url, "translationrowb0322d4c"),
+        sidebar_ad: () => SML.di("./sidebar-ad-client-js-9004b39a.js", import.meta.url, "sidebaradclientjs9004b39a").then((function(e) {
+            return e.i
+        }
+        )),
+        hui_left_nav_see_more: () => SML.di("./hui-left-nav-see-more-ade4eecc.js", import.meta.url, "huileftnavseemoreade4eecc"),
+        feed_announcement: () => SML.di("./feed-announcement-client-js-827fe1a5.js", import.meta.url, "feedannouncementclientjs827fe1a5").then((function(e) {
+            return e.i
+        }
+        )),
+        recent_posts_tracker: () => SML.di("./recent-posts-tracker-22f57905.js", import.meta.url, "recentpoststracker22f57905"),
+        reddit_header_action_items: () => SML.di("./reddit-header-action-items-11ef6be6.js", import.meta.url, "redditheaderactionitems11ef6be6"),
+        faceplate_tooltip: () => SML.di("./faceplate-tooltip-33cf79c2.js", import.meta.url, "faceplatetooltip33cf79c2"),
+        comment_composer: () => Promise.all([SML.di("./comment-composer-host-cc1747b8.js", import.meta.url, "commentcomposerhostcc1747b8"), SML.di("./shreddit-composer-74f6927e.js", import.meta.url, "shredditcomposer74f6927e")]),
+        distinguished_post_tags: () => SML.di("./shreddit-distinguished-post-tags-ab6b5742.js", import.meta.url, "shredditdistinguishedposttagsab6b5742"),
+        status_icons: () => SML.di("./shreddit-status-icons-f188b3fc.js", import.meta.url, "shredditstatusiconsf188b3fc"),
+        shreddit_overflow_bottom_sheet: () => SML.di("./shreddit-overflow-bottom-sheet-a1a4cd00.js", import.meta.url, "shredditoverflowbottomsheeta1a4cd00"),
+        user_blocking: () => Promise.all([SML.di("./index-888edbaf.js", import.meta.url, "index888edbaf").then((function(e) {
+            return e.i
+        }
+        )), SML.di("./user-block-wrapper-d451270d.js", import.meta.url, "userblockwrapperd451270d")]),
+        navigation_links: () => SML.di("./reddit-skip-to-sidebar-bfc576cd.js", import.meta.url, "redditskiptosidebarbfc576cd"),
+        simple_comment_composer: () => Promise.all([SML.di("./comment-composer-host-cc1747b8.js", import.meta.url, "commentcomposerhostcc1747b8"), SML.di("./shreddit-simple-composer-286d17a9.js", import.meta.url, "shredditsimplecomposer286d17a9")]),
+        edit_post: () => SML.di("./edit-post-client-js-a8ab5bf0.js", import.meta.url, "editpostclientjsa8ab5bf0"),
+        pdp_rules_handler: () => SML.di("./shreddit-pdp-rules-handler-90bbcfe3.js", import.meta.url, "shredditpdpruleshandler90bbcfe3"),
+        user_mod_actions: () => SML.di("./user-mod-actions-9290862d.js", import.meta.url, "usermodactions9290862d"),
+        mod_ban_modal_form: () => Promise.all([SML.di("./mod-ban-modal-form-4ca449e5.js", import.meta.url, "modbanmodalform4ca449e5"), SML.di("./mod-ban-modal-rpl-form-fd908119.js", import.meta.url, "modbanmodalrplformfd908119")]),
+        mod_mute_modal_form: () => SML.di("./mod-mute-modal-client-js-e0abeefe.js", import.meta.url, "modmutemodalclientjse0abeefe").then((function(e) {
+            return e.i
+        }
+        )),
+        onboarding_flow: () => SML.di("./onboarding-flow-c90133a8.js", import.meta.url, "onboardingflowc90133a8"),
+        ob_gender_selection: () => SML.di("./ob-gender-selection-a5fb55bb.js", import.meta.url, "obgenderselectiona5fb55bb"),
+        ob_interest_picker: () => SML.di("./ob-interest-picker-7c6ac12a.js", import.meta.url, "obinterestpicker7c6ac12a"),
+        user_details_reporting: () => SML.di("./user-details-reporting-29178a39.js", import.meta.url, "userdetailsreporting29178a39"),
+        screen_reader_alerts: () => SML.di("./screen-reader-alert-outlet-3f1f0829.js", import.meta.url, "screenreaderalertoutlet3f1f0829"),
+        reputation_recaptcha: () => SML.di("./reputation-recaptcha-f51c1908.js", import.meta.url, "reputationrecaptchaf51c1908"),
+        mod_log_note: () => SML.di("./mod-notes-log-588fdd67.js", import.meta.url, "modnoteslog588fdd67"),
+        mod_notes_rail: () => SML.di("./mod-notes-rail-client-js-dcf5a025.js", import.meta.url, "modnotesrailclientjsdcf5a025"),
+        shreddit_meta_pixel: () => SML.di("./shreddit-meta-pixel-75203c5e.js", import.meta.url, "shredditmetapixel75203c5e")
+    }),
+    function() {
+        const e = customElements.define;
+        "_patched"in e || (customElements.define = (t, i) => {
+            customElements.get(t) || (window.ALL_ELEMENTS.set(t, i),
+            e.call(customElements, t, i))
+        }
+        ,
+        Object.defineProperty(customElements.define, "_patched", {
+            configurable: !1,
+            writable: !1,
+            value: !0
+        }))
+    }(),
+    He(vm, {
+        loader: bm,
+        runner: Tm
+    }),
+    He(pt, {
+        loader: e => e._loadContent(),
+        runner: (e, t) => {
+            const i = e.parentElement;
+            if (e._renderContent(t),
+            e.hasAttribute("debug") && i) {
+                const t = {
+                    featureName: e.getAttribute("name") || "Unknown",
+                    loadingStrategy: e.getAttribute("loading") || "Unknown",
+                    htmlMode: "partial"
+                };
+                lt(`<faceplate-alert\n          name="feature-render"\n          level="${ve.debug}"\n          meta="${JSON.stringify(t).replaceAll('"', "&quot;")}"\n        ></faceplate-alert>`, i, ye.Append)
+            }
+        }
+    }),
+    nt = {
+        backoff: 1e3,
+        attempts: 2
+    },
+    ym = ({res: e, retry: t, event: i}) => {
+        const {meta: n} = i.detail
+          , o = "string" == typeof n && n.startsWith("TypeError");
+        (401 === e?.status || o) && t && (i.preventDefault(),
+        t())
+    }
+    ,
+    it = ym,
+    zo("shreddit_await_network_connection") || (Ye = null),
+    ( () => {
+        if (_m || "function" != typeof window.performance?.measure || "function" != typeof window.performance?.getEntriesByName)
+            return;
+        window.performance.measure(gm);
+        const e = window.performance.getEntriesByName(gm)?.[0]?.duration;
+        e < 2e3 && (fm = pm.Normal),
+        _m = !0
+    }
+    )(),
+    Im = document.querySelector("shreddit-app"),
+    fd.portalRoot = Im,
+    wd.updateTerms({
+        scrollToStart: "ir para o início",
+        scrollToEnd: "ir para o final",
+        closeDialog: "Fechar caixa de diálogo"
+    }),
+    {
+        $: "CommunityAppearanceMenuContent_cX3DcT",
+        get A() {
+            return uo
+        },
+        B: Pe,
+        C: function() {
+            const e = document.querySelector("shreddit-app");
+            e?.dispatchEvent(new CustomEvent(pn))
+        },
+        D: sd,
+        E: g,
+        F: "UserFlairAssignModal_bRnWkC",
+        G: te,
+        H: ld,
+        I: Ps,
+        get J() {
+            return Yn
+        },
+        K: "AwardGoldPurchase_2vyXH0",
+        get L() {
+            return qi
+        },
+        M: Et,
+        N: "CommunityWidgetEditModal_GxQLgk",
+        get O() {
+            return To
+        },
+        P: dl,
+        Q: e => `${e}_recentclicks3`,
+        R: {
+            Ads: "ADS",
+            InlineContent: "INLINE_CONTENT",
+            Modmail: "MODMAIL",
+            UserDetails: "USER_DETAILS"
+        },
+        get S() {
+            return Ts
+        },
+        get T() {
+            return cl
+        },
+        U: Un,
+        V: Rn,
+        W: Ee,
+        X: {
+            Award: "AWARD",
+            ChatComment: "CHAT_COMMENT",
+            Comment: "COMMENT",
+            MatrixChatEvent: "MATRIX_CHAT_EVENT",
+            Post: "POST"
+        },
+        Y: tr,
+        Z: In,
+        _: t,
+        a: mt,
+        a$: Ln,
+        a0: he,
+        a1: async function(e, t, i, n) {
+            const o = {
+                input: {
+                    action: e,
+                    eligibleExperience: {
+                        experience: No.StringIdExperience,
+                        experienceName: t,
+                        uxVariant: i
+                    },
+                    source: n
+                }
+            }
+              , {data: r} = await Ro({
+                operation: To.StoreUxtargetingAction,
+                variables: o
+            });
+            return r.storeUxTargetingAction?.ok || window.Sentry?.captureMessage?.("Uxtargeting action could not be stored"),
+            r.storeUxTargetingAction?.ok
+        },
+        a2: No,
+        a3: {
+            Click: "CLICK",
+            Dismiss: "DISMISS",
+            Undo: "UNDO",
+            View: "VIEW"
+        },
+        get a4() {
+            return ve
+        },
+        a5: Cn,
+        get a6() {
+            return S
+        },
+        a7: "CommunityCreationFlow_qKTVdG",
+        get a8() {
+            return lu
+        },
+        a9: Vt,
+        aA: e => {
+            const t = en.visibilityCallbacks.length
+              , i = en.visibilityCallbacks.indexOf(e);
+            return -1 !== i && en.visibilityCallbacks.splice(i, 1),
+            t > en.visibilityCallbacks.length
+        }
+        ,
+        aB: Ys,
+        aC: Jr,
+        aD: Pt,
+        aE: Ba,
+        aF: Fa,
+        aG: "ShareMenu_tv6gfD",
+        get aH() {
+            return Hl
+        },
+        aI: gt,
+        get aJ() {
+            return Ll
+        },
+        aK: Lc,
+        aL: $t,
+        aM: "PdpSeekerPostQueueRecentTab_BmF3tq",
+        aN: Ks,
+        aO: "ExplainerDialog_Psng26",
+        aP: {
+            EducationalBanner: "EDUCATIONAL_BANNER",
+            EducationalModule: "EDUCATIONAL_MODULE",
+            Tooltip: "TOOLTIP",
+            Unknown: "UNKNOWN"
+        },
+        aQ: "AwardDialog_GzBkf2",
+        aR: {
+            BanEvasion: "BAN_EVASION",
+            CommittingSelfHarm: "COMMITTING_SELF_HARM",
+            CommunityInterference: "COMMUNITY_INTERFERENCE",
+            ContemplatingSelfHarm: "CONTEMPLATING_SELF_HARM",
+            ContributorProgramDeceptiveMoneyMaking: "CONTRIBUTOR_PROGRAM_DECEPTIVE_MONEY_MAKING",
+            ContributorProgramDrugsGamblingFirearms: "CONTRIBUTOR_PROGRAM_DRUGS_GAMBLING_FIREARMS",
+            ContributorProgramEncouragingDonations: "CONTRIBUTOR_PROGRAM_ENCOURAGING_DONATIONS",
+            ContributorProgramGraphicViolent: "CONTRIBUTOR_PROGRAM_GRAPHIC_VIOLENT",
+            ContributorProgramIllegalHarmfulBehavior: "CONTRIBUTOR_PROGRAM_ILLEGAL_HARMFUL_BEHAVIOR",
+            ContributorProgramSexualSuggestive: "CONTRIBUTOR_PROGRAM_SEXUAL_SUGGESTIVE",
+            CopyrightOther: "COPYRIGHT_OTHER",
+            CopyrightSelf: "COPYRIGHT_SELF",
+            Custom: "CUSTOM",
+            HarassmentAtMe: "HARASSMENT_AT_ME",
+            HarassmentAtSomeoneElse: "HARASSMENT_AT_SOMEONE_ELSE",
+            HateContent: "HATE_CONTENT",
+            IllegalOrDangerousBehavior: "ILLEGAL_OR_DANGEROUS_BEHAVIOR",
+            ImpersonationOther: "IMPERSONATION_OTHER",
+            ImpersonationSelf: "IMPERSONATION_SELF",
+            InfringesMyIpRights: "INFRINGES_MY_IP_RIGHTS",
+            InvoluntaryPornOther: "INVOLUNTARY_PORN_OTHER",
+            InvoluntaryPornSelf: "INVOLUNTARY_PORN_SELF",
+            LowQuality: "LOW_QUALITY",
+            MinorAbuseOrSexualizationAbuse: "MINOR_ABUSE_OR_SEXUALIZATION_ABUSE",
+            MinorAbuseOrSexualizationPredatory: "MINOR_ABUSE_OR_SEXUALIZATION_PREDATORY",
+            MinorAbuseOrSexualizationSexual: "MINOR_ABUSE_OR_SEXUALIZATION_SEXUAL",
+            MinorSexualization: "MINOR_SEXUALIZATION",
+            Misinformation: "MISINFORMATION",
+            Misleading: "MISLEADING",
+            Netzdg: "NETZDG",
+            NotAppropriate: "NOT_APPROPRIATE",
+            NsfwContent: "NSFW_CONTENT",
+            Offensive: "OFFENSIVE",
+            OffensiveOrHoaxContent: "OFFENSIVE_OR_HOAX_CONTENT",
+            Other: "OTHER",
+            PiiAboutMe: "PII_ABOUT_ME",
+            PiiAboutSomeoneElse: "PII_ABOUT_SOMEONE_ELSE",
+            Political: "POLITICAL",
+            ProhibitedSales: "PROHIBITED_SALES",
+            ReportButtonAbuse: "REPORT_BUTTON_ABUSE",
+            SelfHarm: "SELF_HARM",
+            SexuallyExplicit: "SEXUALLY_EXPLICIT",
+            Spam: "SPAM",
+            SpamBots: "SPAM_BOTS",
+            SpamCommentFlooding: "SPAM_COMMENT_FLOODING",
+            SpamLinkFarming: "SPAM_LINK_FARMING",
+            SpamMalware: "SPAM_MALWARE",
+            SpamOther: "SPAM_OTHER",
+            SpamRepostedContent: "SPAM_REPOSTED_CONTENT",
+            SpamUnsolicitedPms: "SPAM_UNSOLICITED_PMS",
+            Subreddit: "SUBREDDIT",
+            TrademarkOther: "TRADEMARK_OTHER",
+            TrademarkSelf: "TRADEMARK_SELF",
+            UnderAge: "UNDER_AGE",
+            ViolenceAtMe: "VIOLENCE_AT_ME",
+            ViolenceAtSomeoneElse: "VIOLENCE_AT_SOMEONE_ELSE",
+            Violent: "VIOLENT",
+            VoteManipulation: "VOTE_MANIPULATION",
+            Vulgarity: "VULGARITY"
+        },
+        aS: "cookie_consent",
+        aT: "banner",
+        aU: e => {
+            wt.set(Pn, JSON.stringify(e), Nn)
+        }
+        ,
+        aV: function(e) {
+            return Xs(ed, e, {
+                maximumMatches: 1
+            })[0] ?? null
+        },
+        aW: {
+            Favorited: "FAVORITED",
+            None: "NONE"
+        },
+        aX: zl,
+        get aY() {
+            return kl
+        },
+        get aZ() {
+            return Bl
+        },
+        get a_() {
+            return Cl
+        },
+        aa: {
+            AdminApproved: "ADMIN_APPROVED",
+            AdminRemoved: "ADMIN_REMOVED",
+            AdminSpammed: "ADMIN_SPAMMED",
+            ModApproved: "MOD_APPROVED",
+            ModRemoved: "MOD_REMOVED",
+            ModSpammed: "MOD_SPAMMED"
+        },
+        get ab() {
+            return ni
+        },
+        ac: class extends Ue {
+            constructor() {
+                super();
+                const e = this.resolve;
+                this.resolve = t => e(this.value = t)
+            }
+        }
+        ,
+        ad: je,
+        ae: {
+            Followed: "FOLLOWED",
+            None: "NONE"
+        },
+        get af() {
+            return Xh
+        },
+        ag: {
+            xs: "text-12",
+            sm: "text-16",
+            md: "text-20",
+            lg: "text-20"
+        },
+        get ah() {
+            return Qt
+        },
+        ai: Y,
+        aj: "reddit_chat_right_rail_upsell",
+        get ak() {
+            return M
+        },
+        al: e => xi("recent_page_name_menu", e)(),
+        am: {
+            Card: "CARD",
+            Classic: "CLASSIC",
+            Compact: "COMPACT"
+        },
+        an: br,
+        ao: ic,
+        ap: {
+            High: "HIGH",
+            Highest: "HIGHEST",
+            Low: "LOW",
+            Lowest: "LOWEST",
+            Medium: "MEDIUM",
+            NoLevel: "NO_LEVEL"
+        },
+        aq: ke,
+        ar: "LeadGenDialog_4ym4rB",
+        as: "lead-gen-dialog",
+        at: m,
+        au: jt,
+        av: rt,
+        aw: lt,
+        ax: bl,
+        ay: Tn,
+        get az() {
+            return on
+        },
+        b: si,
+        b$: () => si({
+            source: Bi,
+            action: "open",
+            noun: ji
+        }),
+        b0: Bn,
+        b1: Ta,
+        get b2() {
+            return da
+        },
+        b3: function(e) {
+            return c({
+                descriptor: t => ({
+                    get() {
+                        var t, i;
+                        return null !== (i = null === (t = this.renderRoot) || void 0 === t ? void 0 : t.querySelectorAll(e)) && void 0 !== i ? i : []
+                    },
+                    enumerable: !0,
+                    configurable: !0
+                })
+            })
+        },
+        b4: $l,
+        b5: {
+            AddModerator: "ADD_MODERATOR",
+            InviteModerator: "INVITE_MODERATOR",
+            RemoveModerator: "REMOVE_MODERATOR",
+            SetInvitePermissions: "SET_INVITE_PERMISSIONS",
+            SetPermissions: "SET_PERMISSIONS",
+            UninviteModerator: "UNINVITE_MODERATOR"
+        },
+        b6: "CommentShareMenu_G1sJ5P",
+        b7: "PurchaseGold_tMQ0Qf",
+        b8: {
+            ClosetOnly: "CLOSET_ONLY",
+            Deleted: "DELETED",
+            Disabled: "DISABLED",
+            Enabled: "ENABLED",
+            InternalOnly: "INTERNAL_ONLY",
+            PendingDelete: "PENDING_DELETE",
+            Restricted: "RESTRICTED"
+        },
+        b9: "i18n-component-ready",
+        bA: {
+            AppleInapp: "APPLE_INAPP",
+            Braintree: "BRAINTREE",
+            GoogleInapp: "GOOGLE_INAPP",
+            Internal: "INTERNAL",
+            Ledger: "LEDGER",
+            Meta: "META",
+            Paypal: "PAYPAL",
+            RedditCoins: "REDDIT_COINS",
+            RedditGold: "REDDIT_GOLD",
+            Stripe: "STRIPE"
+        },
+        bB: {
+            ClientSide: "CLIENT_SIDE",
+            ServerSide: "SERVER_SIDE"
+        },
+        bC: class {
+            constructor(e) {
+                this.unsubscribeFn = null,
+                this.lastSubscribeParams = null,
+                this.unsubscribe = () => {
+                    this.unsubscribeFn?.(),
+                    this.unsubscribeFn = null,
+                    this.lastSubscribeParams = null,
+                    window.removeEventListener("pageshow", this.onPageShow),
+                    window.removeEventListener("pagehide", this.onPageHide)
+                }
+                ,
+                this.subscribe = e => {
+                    this.unsubscribe(),
+                    this.unsubscribeFn = xo(e),
+                    this.lastSubscribeParams = e,
+                    window.addEventListener("pageshow", this.onPageShow),
+                    window.addEventListener("pagehide", this.onPageHide)
+                }
+                ,
+                this.onPageShow = e => {
+                    e.persisted && this.lastSubscribeParams && this.subscribe(this.lastSubscribeParams)
+                }
+                ,
+                this.onPageHide = e => {
+                    e.persisted && this.suspend()
+                }
+                ,
+                e.addController(this)
+            }
+            suspend() {
+                this.unsubscribeFn?.(),
+                this.unsubscribeFn = null
+            }
+            hostDisconnected() {
+                this.unsubscribe()
+            }
+        }
+        ,
+        bD: "AchievementsProgressToast_6M6xx1",
+        bE: {
+            Enrolled: "ENROLLED",
+            OptOut: "OPT_OUT",
+            Unknown: "UNKNOWN"
+        },
+        get bF() {
+            return Gl
+        },
+        bG: _e,
+        bH: {
+            Auto: "AUTO",
+            Disabled: "DISABLED",
+            Enabled: "ENABLED"
+        },
+        get bI() {
+            return qe
+        },
+        bJ: function(e) {
+            if (sr)
+                return sr.navigateTo(e);
+            dr.push(["navigateTo", e])
+        },
+        get bK() {
+            return F
+        },
+        bL: "input-focus",
+        bM: nc,
+        bN: pt,
+        bO: {
+            AddToCollection: "ADD_TO_COLLECTION",
+            AdminAnnouncementEmail: "ADMIN_ANNOUNCEMENT_EMAIL",
+            AdsAutomatedReport: "ADS_AUTOMATED_REPORT",
+            AdsCampaignApproved: "ADS_CAMPAIGN_APPROVED",
+            AdsCampaignRejected: "ADS_CAMPAIGN_REJECTED",
+            AdsEventReminder: "ADS_EVENT_REMINDER",
+            AdsRoleInvitation: "ADS_ROLE_INVITATION",
+            AeDmcaNotifySubmitter: "AE_DMCA_NOTIFY_SUBMITTER",
+            AmaReminder: "AMA_REMINDER",
+            Ato: "ATO",
+            AwardReceived: "AWARD_RECEIVED",
+            BizexUpdateKeywordsPn: "BIZEX_UPDATE_KEYWORDS_PN",
+            BreakingNews: "BREAKING_NEWS",
+            BroadcastFollower: "BROADCAST_FOLLOWER",
+            BroadcastRecommendation: "BROADCAST_RECOMMENDATION",
+            CakeDay: "CAKE_DAY",
+            ChatAcceptInvite: "CHAT_ACCEPT_INVITE",
+            ChatMessage: "CHAT_MESSAGE",
+            ChatMessageReaction: "CHAT_MESSAGE_REACTION",
+            ChatRequest: "CHAT_REQUEST",
+            CommentFollow: "COMMENT_FOLLOW",
+            CommentInsightsRecap: "COMMENT_INSIGHTS_RECAP",
+            CommentReply: "COMMENT_REPLY",
+            CommentSubsequentReply: "COMMENT_SUBSEQUENT_REPLY",
+            CryptoTransactionApproval: "CRYPTO_TRANSACTION_APPROVAL",
+            CuratedOneOff: "CURATED_ONE_OFF",
+            EconPromotion: "ECON_PROMOTION",
+            EmailChangeEmail: "EMAIL_CHANGE_EMAIL",
+            EmailChatRequest: "EMAIL_CHAT_REQUEST",
+            EmailCommentReply: "EMAIL_COMMENT_REPLY",
+            EmailCommunityDiscovery: "EMAIL_COMMUNITY_DISCOVERY",
+            EmailDigest: "EMAIL_DIGEST",
+            EmailExternalVerification: "EMAIL_EXTERNAL_VERIFICATION",
+            EmailMagicLinkLogin: "EMAIL_MAGIC_LINK_LOGIN",
+            EmailMagicLinkRegister: "EMAIL_MAGIC_LINK_REGISTER",
+            EmailNewUserEducation: "EMAIL_NEW_USER_EDUCATION",
+            EmailPostReply: "EMAIL_POST_REPLY",
+            EmailPrivateMessage: "EMAIL_PRIVATE_MESSAGE",
+            EmailRedditProMarketing: "EMAIL_REDDIT_PRO_MARKETING",
+            EmailRedditProUserEngagement: "EMAIL_REDDIT_PRO_USER_ENGAGEMENT",
+            EmailRedditProUserTrends: "EMAIL_REDDIT_PRO_USER_TRENDS",
+            EmailUpvoteComment: "EMAIL_UPVOTE_COMMENT",
+            EmailUpvotePost: "EMAIL_UPVOTE_POST",
+            EmailUsernameMention: "EMAIL_USERNAME_MENTION",
+            EmailUserNewFollower: "EMAIL_USER_NEW_FOLLOWER",
+            EmailWeeklyRecap: "EMAIL_WEEKLY_RECAP",
+            Escalation: "ESCALATION",
+            ExportCompleteNotifyUserEmail: "EXPORT_COMPLETE_NOTIFY_USER_EMAIL",
+            ForgotUsername: "FORGOT_USERNAME",
+            GamificationAchievementUnlocked: "GAMIFICATION_ACHIEVEMENT_UNLOCKED",
+            GamificationReminder: "GAMIFICATION_REMINDER",
+            HotPotatoOverwritten: "HOT_POTATO_OVERWRITTEN",
+            InboxAggregation: "INBOX_AGGREGATION",
+            InboxNotificationClubSubscriptionUpdate: "INBOX_NOTIFICATION_CLUB_SUBSCRIPTION_UPDATE",
+            IncentivizedPromotion: "INCENTIVIZED_PROMOTION",
+            KeywordFollow: "KEYWORD_FOLLOW",
+            LifecyclePostSuggestions: "LIFECYCLE_POST_SUGGESTIONS",
+            LiveEvent: "LIVE_EVENT",
+            ModeratedOneOff: "MODERATED_ONE_OFF",
+            ModeratedSrContentFoundation: "MODERATED_SR_CONTENT_FOUNDATION",
+            ModeratedSrEngagement: "MODERATED_SR_ENGAGEMENT",
+            ModeratedSrMilestone: "MODERATED_SR_MILESTONE",
+            ModeratedSrNewModmail: "MODERATED_SR_NEW_MODMAIL",
+            ModeratedSrNewPost: "MODERATED_SR_NEW_POST",
+            ModeratedSrReportedComment: "MODERATED_SR_REPORTED_COMMENT",
+            ModeratedSrReportedPost: "MODERATED_SR_REPORTED_POST",
+            ModeratedSrViralCommentPost: "MODERATED_SR_VIRAL_COMMENT_POST",
+            ModeratedSrViralUpvotePost: "MODERATED_SR_VIRAL_UPVOTE_POST",
+            MorePostActivity: "MORE_POST_ACTIVITY",
+            News: "NEWS",
+            NewPinnedPost: "NEW_PINNED_POST",
+            NewPostActivity: "NEW_POST_ACTIVITY",
+            Oauth2AppAdd: "OAUTH2_APP_ADD",
+            Oauth2AppApprove: "OAUTH2_APP_APPROVE",
+            OneOff: "ONE_OFF",
+            PasswordReset: "PASSWORD_RESET",
+            PnCommentGivenRedditGold: "PN_COMMENT_GIVEN_REDDIT_GOLD",
+            PnPostGivenRedditGold: "PN_POST_GIVEN_REDDIT_GOLD",
+            PostFlairAdded: "POST_FLAIR_ADDED",
+            PostFollow: "POST_FOLLOW",
+            PostInsightsRecap: "POST_INSIGHTS_RECAP",
+            PostReply: "POST_REPLY",
+            PrivateMessage: "PRIVATE_MESSAGE",
+            PushTokenHealthCheck: "PUSH_TOKEN_HEALTH_CHECK",
+            RedditLore: "REDDIT_LORE",
+            RedditMomentUpdate: "REDDIT_MOMENT_UPDATE",
+            Rereddit: "REREDDIT",
+            ScheduledEvent: "SCHEDULED_EVENT",
+            Security: "SECURITY",
+            Subreddit: "SUBREDDIT",
+            SubredditRecommendation: "SUBREDDIT_RECOMMENDATION",
+            SubredditUpdatesInterestingPost: "SUBREDDIT_UPDATES_INTERESTING_POST",
+            TalkLive: "TALK_LIVE",
+            ThreadReplies: "THREAD_REPLIES",
+            TopLevelComment: "TOP_LEVEL_COMMENT",
+            TrendingGeo: "TRENDING_GEO",
+            UnmoderatedChannel: "UNMODERATED_CHANNEL",
+            UpvoteComment: "UPVOTE_COMMENT",
+            UpvotePost: "UPVOTE_POST",
+            UsernameMention: "USERNAME_MENTION",
+            UsernameTakeoverCompleted: "USERNAME_TAKEOVER_COMPLETED",
+            UserFlairAdded: "USER_FLAIR_ADDED",
+            UserNewFollower: "USER_NEW_FOLLOWER",
+            VerifyEmail: "VERIFY_EMAIL",
+            WeeklyRecapEmail: "WEEKLY_RECAP_EMAIL"
+        },
+        bP: "guides_skip_confirmation_modal",
+        bQ: "p",
+        get bR() {
+            return qn
+        },
+        bS: function(e) {
+            window[yn] = e
+        },
+        bT: zo,
+        bU: "shreddit_programmatic_click_redirect",
+        bV: {
+            Banana: "BANANA",
+            Comment: "COMMENT",
+            Community: "COMMUNITY",
+            Day: "DAY",
+            Moderator: "MODERATOR",
+            Person: "PERSON",
+            Post: "POST",
+            Reply: "REPLY",
+            SearchResult: "SEARCH_RESULT",
+            Share: "SHARE",
+            Task: "TASK",
+            Unknown: "UNKNOWN",
+            Upvote: "UPVOTE",
+            Visitor: "VISITOR",
+            Week: "WEEK",
+            Year: "YEAR"
+        },
+        bW: "PostLevelCrowdControlFormContent_Vy24nw",
+        bX: dd,
+        bY: function(e, t={}) {
+            if (sr)
+                return sr.push(e, t);
+            dr.push(["push", e, t])
+        },
+        bZ: function(e, t, i) {
+            Ds.set(e, {
+                ...Ds.get(e),
+                [t]: Ms(i)
+            })
+        },
+        b_: () => si({
+            source: Bi,
+            action: "close",
+            noun: ji
+        }),
+        get ba() {
+            return Te
+        },
+        bb: "i18n-translation-error",
+        bc: ct,
+        bd: () => {
+            if (void 0 !== oc)
+                return oc;
+            const e = document.querySelector("shreddit-app");
+            var t;
+            return void 0 !== (t = e?.getAttribute("app-name") ?? void 0) && Na.includes(t) ? oc = t : (oc = Pa,
+            window.Sentry?.captureMessage?.("`app-name`: Default app_name value was used")),
+            oc
+        }
+        ,
+        get be() {
+            return Ra
+        },
+        get bf() {
+            return ti
+        },
+        bg: "guides_entry_points_seen",
+        bh: Ua,
+        bi: xi,
+        bj: we,
+        bk: {
+            Admin: "ADMIN",
+            Gold: "GOLD",
+            GoldAuto: "GOLD_AUTO",
+            Moderator: "MODERATOR",
+            Special: "SPECIAL"
+        },
+        get bl() {
+            return rs
+        },
+        bm: "i18n-translation-empty",
+        bn: {
+            DATA_MT_TYPE: "data-mt-type",
+            IMG: "img",
+            INNER_HTML: "innerHTML",
+            TEXT_CONTENT: "textContent"
+        },
+        bo: ds,
+        bp: ss,
+        bq: ru,
+        br: "shreddit-composer-mode-toggle",
+        bs: "KlpShareMenu_L4BQCJ",
+        bt: "resize.embed",
+        bu: Oa,
+        bv: "-embed-wrapper",
+        bw: "embed-feed-post-",
+        bx: wa,
+        by: "embed-read-mode-overlay",
+        bz: "embed-read-mode-overlay-hover",
+        c: v,
+        c$: "ModUserProfileComments_QC2gD0",
+        c0: Hi,
+        c1: zi,
+        c2: Wi,
+        c3: () => si({
+            source: Bi,
+            action: "open",
+            noun: Ki
+        }),
+        c4: () => si({
+            source: Bi,
+            action: "close",
+            noun: Ki
+        }),
+        c5: Ve,
+        c6: "PdpSeekerPostQueueRelatedTab_MKXWZ4",
+        c7: cs,
+        c8: {
+            Up: "ArrowUp",
+            Down: "ArrowDown",
+            Right: "ArrowRight",
+            Left: "ArrowLeft",
+            Home: "Home",
+            End: "End"
+        },
+        c9: Td,
+        cA: ys,
+        cB: Dl,
+        get cC() {
+            return Ul
+        },
+        cD: wd,
+        get cE() {
+            return Zt
+        },
+        cF: ra,
+        get cG() {
+            return Rl
+        },
+        cH: () => "Algo deu errado",
+        cI: 31,
+        cJ: 200,
+        cK: Xs,
+        cL: td,
+        cM: {
+            Aed: "AED",
+            All: "ALL",
+            Amd: "AMD",
+            Aud: "AUD",
+            Awg: "AWG",
+            Bgn: "BGN",
+            Bhd: "BHD",
+            Bnd: "BND",
+            Bob: "BOB",
+            Brl: "BRL",
+            Bwp: "BWP",
+            Cad: "CAD",
+            Chf: "CHF",
+            Clp: "CLP",
+            Cny: "CNY",
+            Coins: "COINS",
+            Cop: "COP",
+            Crc: "CRC",
+            Czk: "CZK",
+            Dkk: "DKK",
+            Dzd: "DZD",
+            Egp: "EGP",
+            Ethereum: "ETHEREUM",
+            Eur: "EUR",
+            Fjd: "FJD",
+            Gbp: "GBP",
+            Gel: "GEL",
+            Ghs: "GHS",
+            Gold: "GOLD",
+            Hkd: "HKD",
+            Hrk: "HRK",
+            Huf: "HUF",
+            Idr: "IDR",
+            Ils: "ILS",
+            Inr: "INR",
+            Iqd: "IQD",
+            Isk: "ISK",
+            Jod: "JOD",
+            Jpy: "JPY",
+            Kes: "KES",
+            Krw: "KRW",
+            Kzt: "KZT",
+            Mad: "MAD",
+            Mdl: "MDL",
+            Mkd: "MKD",
+            Mur: "MUR",
+            Mxn: "MXN",
+            Myr: "MYR",
+            Ngn: "NGN",
+            Nok: "NOK",
+            Nzd: "NZD",
+            Pen: "PEN",
+            Php: "PHP",
+            Pkr: "PKR",
+            Pln: "PLN",
+            Pyg: "PYG",
+            Qar: "QAR",
+            RedditGold: "REDDIT_GOLD",
+            Ron: "RON",
+            Rsd: "RSD",
+            Rub: "RUB",
+            Sar: "SAR",
+            Sek: "SEK",
+            Sgd: "SGD",
+            SubredditPoints: "SUBREDDIT_POINTS",
+            Thb: "THB",
+            Tnd: "TND",
+            Try: "TRY",
+            Ttd: "TTD",
+            Twd: "TWD",
+            Tzs: "TZS",
+            Uah: "UAH",
+            Usd: "USD",
+            Uyu: "UYU",
+            Vnd: "VND",
+            Wst: "WST",
+            Xcd: "XCD",
+            Zar: "ZAR"
+        },
+        cN: {
+            PaymentFailure: "PAYMENT_FAILURE",
+            PaymentSuccess: "PAYMENT_SUCCESS"
+        },
+        cO: {
+            Production: "PRODUCTION",
+            Sandbox: "SANDBOX"
+        },
+        cP: Qi,
+        get cQ() {
+            return Il
+        },
+        cR: "mod_mode_enabled",
+        cS: ({name: e, options: t}) => {
+            wt.remove(e, t)
+        }
+        ,
+        cT: Fn,
+        cU: {
+            NonGated: "NON_GATED",
+            Unavailable: "UNAVAILABLE",
+            UnavailableUnverified: "UNAVAILABLE_UNVERIFIED",
+            Underage: "UNDERAGE",
+            UnderVerified: "UNDER_VERIFIED",
+            Unverified: "UNVERIFIED",
+            Verified: "VERIFIED"
+        },
+        cV: {
+            Affinity: "AFFINITY",
+            Mentions: "MENTIONS",
+            SentimentScore: "SENTIMENT_SCORE"
+        },
+        cW: {
+            All: "ALL",
+            Approval: "APPROVAL",
+            Ban: "BAN",
+            ContentChange: "CONTENT_CHANGE",
+            Invite: "INVITE",
+            ModAction: "MOD_ACTION",
+            Mute: "MUTE",
+            Note: "NOTE",
+            Removal: "REMOVAL",
+            Spam: "SPAM"
+        },
+        cX: "ModUserNotes_V4JnwL",
+        cY: "ModUserSingleNote_V4JnwO",
+        cZ: "ModUserOverview_qJnHZL",
+        c_: "ModUserPosts_hP2nPl",
+        ca: Pd,
+        cb: {
+            Add: "ADD",
+            Set: "SET"
+        },
+        cc: xt,
+        cd: So,
+        ce: ks,
+        cf: e => {
+            const t = e.toString().toLowerCase();
+            return t.indexOf("ms") > -1 ? parseFloat(t) : t.indexOf("s") > -1 ? 1e3 * parseFloat(t) : parseFloat(t)
+        }
+        ,
+        cg: Fs,
+        ch: Ls,
+        ci: Us,
+        cj: Js,
+        ck: {
+            Accessory: "ACCESSORY",
+            AccessoryBack: "ACCESSORY_BACK",
+            Background: "BACKGROUND",
+            Body: "BODY",
+            BodyBottom: "BODY_BOTTOM",
+            FaceLower: "FACE_LOWER",
+            FaceUpper: "FACE_UPPER",
+            Hair: "HAIR",
+            HairBack: "HAIR_BACK",
+            HeadAccessory: "HEAD_ACCESSORY",
+            Shadow: "SHADOW"
+        },
+        get cl() {
+            return Lr
+        },
+        cm: Ur,
+        cn: () => document.querySelector("shreddit-app")?.serverRenderId,
+        co: {
+            Click: "CLICK",
+            Consume: "CONSUME",
+            Dwell: "DWELL",
+            Leave: "LEAVE",
+            Load: "LOAD",
+            View: "VIEW"
+        },
+        get cp() {
+            return Tu
+        },
+        cq: Dn,
+        cr: "ReportForm_N0yZlW",
+        cs: "ReportFlow_sBPX0C",
+        ct: "CtlReporting_Nn03Ds",
+        cu: function(e) {
+            const t = document.querySelectorAll('faceplate-partial[src*="edit-comment"]');
+            t?.forEach((t => {
+                let i = t.getAttribute("src");
+                i && (i = e ? cs(i, "isTranslated", "true") : ls(i, "isTranslated"),
+                t.setAttribute("src", i))
+            }
+            ))
+        },
+        cv: function(e, t) {
+            const i = document.querySelector("faceplate-partial#top-level-more-comments-partial")
+              , n = i?.getAttribute("src");
+            if (i && n) {
+                const o = us(n, e, t);
+                i.setAttribute("src", o)
+            }
+            const o = document.querySelectorAll('faceplate-partial[src*="more-comments"]');
+            o?.forEach((i => {
+                const n = i.getAttribute("src");
+                if (n) {
+                    const o = us(n, e, t);
+                    i.setAttribute("src", o)
+                }
+            }
+            ))
+        },
+        cw: (e, t) => {
+            let i = 0
+              , n = 0
+              , o = 0;
+            const r = []
+              , a = []
+              , s = [];
+            return t.length && Array.from(t).filter((t => {
+                const {id: d, originalBody: l, translatedBody: c, isTranslated: u, isTranslatable: h} = t
+                  , p = hs(e, l, c, u);
+                p === os.Untranslated && (i++,
+                s.push(d)),
+                p === os.Translated && (n++,
+                a.push(d)),
+                h && (o++,
+                r.push(d))
+            }
+            )),
+            {
+                totalCommentsInPage: t.length,
+                translatedComments: n,
+                untranslatedComments: i,
+                translatableComments: o,
+                translatedIds: a,
+                untranslatedIds: s,
+                translatableIds: r,
+                allCommentsTranslated: n === t.length,
+                allCommentsUntranslated: i === t.length && t.length > 0
+            }
+        }
+        ,
+        cx: is,
+        cy: "Validation error on hidden input",
+        get cz() {
+            return ou
+        },
+        d: l,
+        d$: Qe,
+        d0: {
+            AbuseWarning: "ABUSE_WARNING",
+            Ban: "BAN",
+            BotBan: "BOT_BAN",
+            HelpfulUser: "HELPFUL_USER",
+            PermaBan: "PERMA_BAN",
+            SolidContributor: "SOLID_CONTRIBUTOR",
+            SpamWarning: "SPAM_WARNING",
+            SpamWatch: "SPAM_WATCH",
+            UserSummary: "USER_SUMMARY"
+        },
+        d1: "pref_gated_sr_optin",
+        d2: {
+            OptedIn: "OPTED_IN",
+            OptedOut: "OPTED_OUT"
+        },
+        d3: "pref_quarantine_optin",
+        d4: Ma,
+        d5: Da,
+        d6: Op,
+        get d7() {
+            return ii
+        },
+        d8: Wo,
+        get d9() {
+            return hp
+        },
+        dA: "RedditChat_0nn1mJ",
+        dB: {
+            Comment: "COMMENT",
+            Post: "POST"
+        },
+        dC: {
+            CommentBody: "COMMENT_BODY",
+            PostBody: "POST_BODY",
+            PostFlair: "POST_FLAIR",
+            PostTitle: "POST_TITLE",
+            PostType: "POST_TYPE",
+            PostUrl: "POST_URL",
+            UserFlair: "USER_FLAIR",
+            UserFlairTemplateId: "USER_FLAIR_TEMPLATE_ID"
+        },
+        dD: {
+            HasUserFlair: "HAS_USER_FLAIR"
+        },
+        dE: {
+            Author: "AUTHOR",
+            Post: "POST"
+        },
+        dF: "CommunityHighlightManageModal_X8NVJB",
+        dG: "reddit_chat_subreddit_feed_upsell",
+        dH: _s,
+        dI: Tl,
+        dJ: yl,
+        dK: Sl,
+        dL: {
+            AllowAll: "ALLOW_ALL",
+            AllowSome: "ALLOW_SOME",
+            BlockAll: "BLOCK_ALL",
+            BlockSome: "BLOCK_SOME"
+        },
+        get dM() {
+            return qc
+        },
+        dN: {
+            searchSduiPost: "search-sdui-post"
+        },
+        dO: function(e) {
+            if (br(e),
+            sr)
+                return sr.replaceAndNavigate(e);
+            dr.push(["replaceAndNavigate", e])
+        },
+        get dP() {
+            return qt
+        },
+        dQ: "SavedResponsesReorderModal_TkNsVJ",
+        dR: jr,
+        dS: "UserManagementRightPanel_CKVp5T",
+        dT: "PostFlairAssignModal_PFAmDL",
+        get dU() {
+            return x
+        },
+        dV: "AchievementsModal_W1BJpN",
+        dW: {
+            Disabled: "DISABLED",
+            Enabled: "ENABLED",
+            Unset: "UNSET"
+        },
+        dX: {
+            "bn-IN": "বাংলা",
+            "cs-CZ": "Čeština",
+            "da-DK": "Dansk",
+            "de-DE": "Deutsch",
+            "el-GR": "Ελληνικά",
+            "en-US": "English (US)",
+            "es-ES": "Español (ES)",
+            "es-MX": "Español (MX)",
+            "fi-FI": "Suomi",
+            "fil-PH": "Filipino",
+            "fr-FR": "Français",
+            "hi-IN": "हिन्दी",
+            "hu-HU": "Magyar",
+            "it-IT": "Italiano",
+            "ja-JP": "日本語",
+            "ko-KR": "한국어",
+            "ms-MY": "Bahasa Melayu",
+            "nb-NO": "Norsk",
+            "nl-NL": "Nederlands",
+            "pl-PL": "Polski",
+            "pt-BR": "Português (BR)",
+            "pt-PT": "Português (PT)",
+            "ro-RO": "Română",
+            "ru-RU": "Pусский язык",
+            "sr-RS": "Srpski",
+            "sv-SE": "Svenska",
+            "tr-TR": "Türkçe",
+            "th-TH": "ไทย",
+            "uk-UA": "Українська мова",
+            "vi-VN": "Tiếng Việt",
+            "zh-CN": "簡化字",
+            "zh-TW": "正體字"
+        },
+        dY: Je,
+        dZ: Wr,
+        d_: Xe,
+        da: K,
+        db: /^\/(login|register|username|password|passwordrecovery|onboarding)\/$/,
+        dc: ze,
+        dd: Ad,
+        de: Rd,
+        df: ri,
+        dg: Po,
+        get dh() {
+            return Nl
+        },
+        get di() {
+            return H
+        },
+        dj: () => fm === pm.Slow,
+        dk: "TemporaryEventsPresets_BVPM81",
+        dl: {
+            Bans: "BANS",
+            Chat: "CHAT",
+            Comments: "COMMENTS",
+            General: "GENERAL",
+            Modmail: "MODMAIL",
+            Removals: "REMOVALS",
+            Reports: "REPORTS",
+            SitewideBans: "SITEWIDE_BANS",
+            SitewideRemovals: "SITEWIDE_REMOVALS"
+        },
+        dm: {
+            Announcement: "ANNOUNCEMENT",
+            Event: "EVENT",
+            Megathread: "MEGATHREAD",
+            ShowPostFlair: "SHOW_POST_FLAIR"
+        },
+        dn: "",
+        get dp() {
+            return gn
+        },
+        dq: "impressionid",
+        get dr() {
+            return Xt
+        },
+        get ds() {
+            return Jt
+        },
+        dt: "campaignId",
+        du: "pid",
+        dv: Qn,
+        get dw() {
+            return vl
+        },
+        dx: "TWO_FA_REQUIRED",
+        get dy() {
+            return El
+        },
+        dz: Ei,
+        e: a,
+        e$: {
+            MediaOnly: "MEDIA_ONLY",
+            Off: "OFF"
+        },
+        e0: (e, t) => new CustomEvent(e,t),
+        get e1() {
+            return _
+        },
+        e2: r,
+        e3: ut,
+        e4: {
+            All: "ALL",
+            Emoji: "EMOJI",
+            Text: "TEXT"
+        },
+        e5: {
+            ActionRequired: "ACTION_REQUIRED",
+            Canceled: "CANCELED",
+            Failed: "FAILED",
+            New: "NEW",
+            Paid: "PAID",
+            Pending: "PENDING",
+            Refunded: "REFUNDED",
+            Rejected: "REJECTED"
+        },
+        e6: {
+            CreationTime: "CREATION_TIME",
+            CreationTimeReverse: "CREATION_TIME_REVERSE",
+            Price: "PRICE",
+            PriceReverse: "PRICE_REVERSE",
+            ReleaseTime: "RELEASE_TIME",
+            ReleaseTimeReverse: "RELEASE_TIME_REVERSE",
+            TotalInventory: "TOTAL_INVENTORY",
+            TotalInventoryReverse: "TOTAL_INVENTORY_REVERSE"
+        },
+        e7: {
+            Available: "AVAILABLE",
+            Expired: "EXPIRED",
+            Pending: "PENDING",
+            SoldOut: "SOLD_OUT"
+        },
+        e8: Le,
+        e9: {
+            Down: "DOWN",
+            None: "NONE",
+            Up: "UP"
+        },
+        eA: "debugAdPixels",
+        get eB() {
+            return ao
+        },
+        get eC() {
+            return ho
+        },
+        eD: "dev_auto_refresh",
+        eE: async e => {
+            const t = await fetch("/svc/shreddit/events/validate-schema", {
+                method: "POST",
+                headers: {
+                    Accept: "application/json",
+                    "Content-Type": "application/json"
+                },
+                body: JSON.stringify({
+                    event: e
+                })
+            });
+            if (t.ok)
+                return t.json()
+        }
+        ,
+        eF: "ShredditPostTranslator_TG242Q",
+        eG: "CommentTranslator_6MLDQW",
+        eH: "SubredditRightRailTranslator_Sq1rLd",
+        eI: "PdpRightRailPostTranslator_D9xnPd",
+        eJ: pl,
+        eK: Ya,
+        eL: wn,
+        eM: function(e) {
+            try {
+                const t = JSON.parse(decodeURIComponent(e));
+                if ((e => {
+                    const t = e;
+                    return !(!t || "object" != typeof t || void 0 !== t.isTranslationActive && "boolean" != typeof t.isTranslationActive || "boolean" != typeof t.shouldDisplayCoachmark || "number" != typeof t.coachmarkDisplayCount || void 0 !== t.isSearchTranslationsEnabled && "boolean" != typeof t.isSearchTranslationsEnabled || void 0 !== t.showCommentTranslationModal && "boolean" != typeof t.showCommentTranslationModal || void 0 !== t.showPostTranslationModal && "boolean" != typeof t.showPostTranslationModal)
+                }
+                )(t))
+                    return t
+            } catch (e) {}
+            return null
+        },
+        eN: {
+            Anyone: "ANYONE",
+            Disabled: "DISABLED",
+            Modonly: "MODONLY"
+        },
+        eO: {
+            Anyone: "ANYONE",
+            ApprovedContributor: "APPROVED_CONTRIBUTOR",
+            KarmaMinAge: "KARMA_MIN_AGE",
+            Mod: "MOD",
+            OpenEditing: "OPEN_EDITING",
+            Top_1Commenters: "TOP_1_COMMENTERS",
+            Top_1Posters: "TOP_1_POSTERS",
+            Top_10Commenters: "TOP_10_COMMENTERS",
+            Top_10Posters: "TOP_10_POSTERS",
+            Unspecified: "UNSPECIFIED"
+        },
+        eP: {
+            Ccpa: "CCPA",
+            Gdpr: "GDPR",
+            Other: "OTHER"
+        },
+        eQ: {
+            Bounded: "BOUNDED",
+            FromBeginning: "FROM_BEGINNING"
+        },
+        eR: {
+            EmployeeWhitelist: "EMPLOYEE_WHITELIST",
+            ExistingPendingRequest: "EXISTING_PENDING_REQUEST",
+            NoPriorRequest: "NO_PRIOR_REQUEST",
+            PriorRequestExpired: "PRIOR_REQUEST_EXPIRED",
+            RecentlyCompletedRequest: "RECENTLY_COMPLETED_REQUEST"
+        },
+        eS: {
+            All: "ALL",
+            LinkFlair: "LINK_FLAIR",
+            None: "NONE",
+            UserFlair: "USER_FLAIR"
+        },
+        eT: function(e) {
+            if (sr)
+                return sr.fullNavigateTo(e);
+            dr.push(["fullNavigateTo", e])
+        },
+        eU: "CustomFeedEditDetailsModal_1tH02m",
+        eV: "CommunityListModal_cWH9Dd",
+        eW: {
+            All: "ALL",
+            Frequent: "FREQUENT",
+            Low: "LOW",
+            Off: "OFF"
+        },
+        eX: tp,
+        eY: "SubredditMuteModal_VT4PHZ",
+        eZ: "CustomFeedAddModal_GPgCvP",
+        e_: {
+            Lenient: "LENIENT",
+            Off: "OFF",
+            Strict: "STRICT"
+        },
+        get ea() {
+            return Xa
+        },
+        eb: "i18n-post-media-img",
+        ec: e => {
+            const t = hs(e.translationSetting, e.originalTitle, e.translatedTitle, e.isTitleTranslated)
+              , i = hs(e.translationSetting, e.originalBody, e.translatedBody, e.isBodyTranslated);
+            return {
+                id: e.postId,
+                hasBody: "" !== e.originalBody || "" !== e.translatedBody,
+                postType: e.postType,
+                titleState: t,
+                bodyState: i,
+                isTranslatable: e.isTranslatable,
+                translatedImages: 0,
+                untranslatedImages: 0
+            }
+        }
+        ,
+        ed: ts,
+        ee: e => {
+            const t = {
+                totalPostsInPage: e.length,
+                postsWithTranslatedTitle: 0,
+                postsWithUntranslatedTitle: 0,
+                postsWithTranslatedBody: 0,
+                postsWithUntranslatedBody: 0,
+                translatablePosts: 0,
+                allPostTitlesUntranslated: !1,
+                allPostTitlesTranslated: !1,
+                allPostBodiesUntranslated: !1,
+                allPostBodiesTranslated: !1,
+                translatableIds: [],
+                translatedIds: [],
+                untranslatedIds: [],
+                translatedImages: 0,
+                untranslatedImages: 0
+            };
+            return e.forEach((e => {
+                if (!e || !e.id)
+                    return;
+                const i = e?.titleState === os.Translated
+                  , n = e?.bodyState === os.Translated
+                  , o = e?.titleState === os.Untranslated
+                  , r = e?.bodyState === os.Untranslated
+                  , a = !e?.hasBody || n;
+                e.isTranslatable && (void 0 !== t.translatablePosts && t.translatablePosts++,
+                t.translatableIds && t.translatableIds.push(e.id)),
+                i && void 0 !== t.postsWithTranslatedTitle && t.postsWithTranslatedTitle++,
+                o && void 0 !== t.postsWithUntranslatedTitle && t.postsWithUntranslatedTitle++,
+                n && void 0 !== t.postsWithTranslatedBody && t.postsWithTranslatedBody++,
+                r && void 0 !== t.postsWithUntranslatedBody && t.postsWithUntranslatedBody++,
+                i && a ? t.translatedIds && t.translatedIds.push(e.id) : t.untranslatedIds && t.untranslatedIds.push(e.id)
+            }
+            )),
+            t.allPostTitlesTranslated = !!t.translatablePosts && t.postsWithTranslatedTitle === t.translatablePosts,
+            t.allPostBodiesTranslated = !!t.translatablePosts && t.postsWithTranslatedBody === t.translatablePosts,
+            t.allPostTitlesUntranslated = t.postsWithUntranslatedTitle === e.length,
+            t.allPostBodiesUntranslated = t.postsWithUntranslatedBody === e.length,
+            t
+        }
+        ,
+        ef: ns,
+        eg: function(e) {
+            return `${e}-post-rtjson-content`
+        },
+        eh: "CommunityHighlightEditModal_mWj1xn",
+        ei: {
+            Agency: "AGENCY",
+            Business: "BUSINESS",
+            Consultant: "CONSULTANT",
+            Creator: "CREATOR",
+            Individual: "INDIVIDUAL",
+            Organization: "ORGANIZATION",
+            PublicFigure: "PUBLIC_FIGURE"
+        },
+        ej: {
+            AddOptOut: "ADD_OPT_OUT",
+            RemoveOptOut: "REMOVE_OPT_OUT"
+        },
+        ek: {
+            Internal: "INTERNAL",
+            SrSr: "SR_SR",
+            SrUser: "SR_USER"
+        },
+        el: {
+            Moderator: "MODERATOR",
+            ParticipantSubreddit: "PARTICIPANT_SUBREDDIT",
+            ParticipantUser: "PARTICIPANT_USER",
+            Unknown: "UNKNOWN"
+        },
+        em: {
+            Permanent: "PERMANENT",
+            Temporary: "TEMPORARY"
+        },
+        en: {
+            Comment: "COMMENT",
+            Link: "LINK",
+            LinkAndComment: "LINK_AND_COMMENT"
+        },
+        eo: {
+            Comment: "COMMENT",
+            Post: "POST"
+        },
+        ep: {
+            Aci: "ACI",
+            Search: "SEARCH",
+            TaxonomyEntity: "TAXONOMY_ENTITY",
+            TaxonomyTopic: "TAXONOMY_TOPIC"
+        },
+        eq: {
+            All: "ALL",
+            ManageChannels: "MANAGE_CHANNELS",
+            ManageChat: "MANAGE_CHAT",
+            ManageCommunityChat: "MANAGE_COMMUNITY_CHAT",
+            ManageFlair: "MANAGE_FLAIR",
+            ManageModmail: "MANAGE_MODMAIL",
+            ManagePosts: "MANAGE_POSTS",
+            ManageSettings: "MANAGE_SETTINGS",
+            ManageUsers: "MANAGE_USERS",
+            ManageWiki: "MANAGE_WIKI",
+            MonitorChat: "MONITOR_CHAT"
+        },
+        er: {
+            NoReminder: "NO_REMINDER",
+            Reminder: "REMINDER"
+        },
+        es: {
+            Followed: "FOLLOWED",
+            Unfollowed: "UNFOLLOWED"
+        },
+        et: O,
+        eu: "comment_composer",
+        ev: V,
+        ew: "ModRulesItems_pvKs2G",
+        ex: {
+            Company: "COMPANY",
+            CompanyEmail: "COMPANY_EMAIL",
+            Email: "EMAIL",
+            FirstName: "FIRST_NAME",
+            JobTitle: "JOB_TITLE",
+            LastName: "LAST_NAME",
+            PhoneNumber: "PHONE_NUMBER",
+            PostalCode: "POSTAL_CODE"
+        },
+        ey: {
+            SubmitComment: "SUBMIT_COMMENT",
+            SubmitPost: "SUBMIT_POST",
+            SubscribeToSubreddit: "SUBSCRIBE_TO_SUBREDDIT"
+        },
+        ez: re,
+        f: function(e) {
+            return e instanceof PointerEvent || e instanceof MouseEvent || "Enter" === e.key || "Space" === e.key
+        },
+        f$: "RelatedCommunityRecommendations_qmZmnB",
+        f0: {
+            High: "HIGH",
+            Low: "LOW"
+        },
+        f1: {
+            Lenient: "LENIENT",
+            Medium: "MEDIUM",
+            Off: "OFF",
+            Strict: "STRICT"
+        },
+        f2: {
+            High: "HIGH",
+            Low: "LOW"
+        },
+        f3: {
+            Filter: "FILTER",
+            Remove: "REMOVE"
+        },
+        f4: {
+            Lenient: "LENIENT",
+            Moderate: "MODERATE",
+            Off: "OFF",
+            Strict: "STRICT"
+        },
+        get f5() {
+            return su
+        },
+        get f6() {
+            return iu
+        },
+        get f7() {
+            return tu
+        },
+        f8: function(e) {
+            return c({
+                descriptor: t => ({
+                    async get() {
+                        var t;
+                        return await this.updateComplete,
+                        null === (t = this.renderRoot) || void 0 === t ? void 0 : t.querySelector(e)
+                    },
+                    enumerable: !0,
+                    configurable: !0
+                })
+            })
+        },
+        f9: {
+            AcceptedAndInvitedToAcceptRole: "ACCEPTED_AND_INVITED_TO_ACCEPT_ROLE",
+            InvitedToApply: "INVITED_TO_APPLY",
+            PendingReview: "PENDING_REVIEW",
+            RejectedNoMessage: "REJECTED_NO_MESSAGE",
+            RejectedWithMessage: "REJECTED_WITH_MESSAGE",
+            Replied: "REPLIED"
+        },
+        fA: e => new Date(e).getTime() || void 0,
+        fB: dt,
+        fC: {
+            Archived: "ARCHIVED",
+            EmployeesOnly: "EMPLOYEES_ONLY",
+            GoldOnly: "GOLD_ONLY",
+            GoldRestricted: "GOLD_RESTRICTED",
+            Private: "PRIVATE",
+            Public: "PUBLIC",
+            Restricted: "RESTRICTED",
+            User: "USER"
+        },
+        fD: "blurred-overlay",
+        fE: "embed-container",
+        fF: {
+            Hidden: "HIDDEN",
+            Private: "PRIVATE",
+            Public: "PUBLIC"
+        },
+        fG: Cp,
+        fH: Ap,
+        fI: Ip,
+        fJ: Rp,
+        fK: Pp,
+        fL: Np,
+        fM: "HotkeysModal_m4ZJBc",
+        fN: function(e=Cp) {
+            for (const [t,i] of Object.entries(e))
+                i.keys.forEach((e => {
+                    const i = "string" == typeof e
+                      , n = (i ? e : e.key).toLowerCase()
+                      , o = i ? {
+                        key: n
+                    } : {
+                        ...e
+                    };
+                    Ap.ids.add(t),
+                    n in Ap.keys ? Ap.keys[n][t] = o : Ap.keys[n] = {
+                        [t]: o
+                    }
+                }
+                ))
+        },
+        fO: function() {
+            Ap.keys = {},
+            Ap.ids = new Set
+        },
+        get fP() {
+            return cp
+        },
+        fQ: up,
+        fR: {
+            AvailableToClaim: "AVAILABLE_TO_CLAIM",
+            ClaimedSuccessfully: "CLAIMED_SUCCESSFULLY",
+            ClaimFailed: "CLAIM_FAILED",
+            CompletelyClaimed: "COMPLETELY_CLAIMED",
+            InProgress: "IN_PROGRESS",
+            NotEligibleToClaim: "NOT_ELIGIBLE_TO_CLAIM",
+            NoNftLeft: "NO_NFT_LEFT",
+            Undefined: "UNDEFINED"
+        },
+        fS: {
+            Id: "ID",
+            IdReverse: "ID_REVERSE",
+            Name: "NAME",
+            NameReverse: "NAME_REVERSE"
+        },
+        fT: {
+            AcceptModeratorInvite: "ACCEPT_MODERATOR_INVITE",
+            AddCommunityTopics: "ADD_COMMUNITY_TOPICS",
+            AddContributor: "ADD_CONTRIBUTOR",
+            AddModerator: "ADD_MODERATOR",
+            AddNote: "ADD_NOTE",
+            AddRemovalReason: "ADD_REMOVAL_REASON",
+            AdjustPostCrowdControlLevel: "ADJUST_POST_CROWD_CONTROL_LEVEL",
+            ApproveAward: "APPROVE_AWARD",
+            ApproveComment: "APPROVE_COMMENT",
+            ApproveLink: "APPROVE_LINK",
+            BanUser: "BAN_USER",
+            ChatApproveMessage: "CHAT_APPROVE_MESSAGE",
+            ChatBanUser: "CHAT_BAN_USER",
+            ChatInviteHost: "CHAT_INVITE_HOST",
+            ChatRemoveHost: "CHAT_REMOVE_HOST",
+            ChatRemoveMessage: "CHAT_REMOVE_MESSAGE",
+            ChatUnbanUser: "CHAT_UNBAN_USER",
+            Collections: "COLLECTIONS",
+            CommunityStatus: "COMMUNITY_STATUS",
+            CommunityStyling: "COMMUNITY_STYLING",
+            CommunityWelcomePage: "COMMUNITY_WELCOME_PAGE",
+            CommunityWidgets: "COMMUNITY_WIDGETS",
+            CreateAward: "CREATE_AWARD",
+            CreateRemovalReason: "CREATE_REMOVAL_REASON",
+            CreateRule: "CREATE_RULE",
+            CreateScheduledPost: "CREATE_SCHEDULED_POST",
+            DeleteAward: "DELETE_AWARD",
+            DeleteNote: "DELETE_NOTE",
+            DeleteOverriddenClassification: "DELETE_OVERRIDDEN_CLASSIFICATION",
+            DeleteRemovalReason: "DELETE_REMOVAL_REASON",
+            DeleteRule: "DELETE_RULE",
+            DeleteScheduledPost: "DELETE_SCHEDULED_POST",
+            DevPlatformAppChanged: "DEV_PLATFORM_APP_CHANGED",
+            DevPlatformAppDisabled: "DEV_PLATFORM_APP_DISABLED",
+            DevPlatformAppEnabled: "DEV_PLATFORM_APP_ENABLED",
+            DevPlatformAppInstalled: "DEV_PLATFORM_APP_INSTALLED",
+            DevPlatformAppUninstalled: "DEV_PLATFORM_APP_UNINSTALLED",
+            DisableAward: "DISABLE_AWARD",
+            DisablePostCrowdControlFilter: "DISABLE_POST_CROWD_CONTROL_FILTER",
+            Distinguish: "DISTINGUISH",
+            EditCommentRequirements: "EDIT_COMMENT_REQUIREMENTS",
+            EditFlair: "EDIT_FLAIR",
+            EditPostRequirements: "EDIT_POST_REQUIREMENTS",
+            EditRule: "EDIT_RULE",
+            EditSavedResponse: "EDIT_SAVED_RESPONSE",
+            EditScheduledPost: "EDIT_SCHEDULED_POST",
+            EditSettings: "EDIT_SETTINGS",
+            EnableAward: "ENABLE_AWARD",
+            EnablePostCrowdControlFilter: "ENABLE_POST_CROWD_CONTROL_FILTER",
+            Events: "EVENTS",
+            HiddenAward: "HIDDEN_AWARD",
+            IgnoreReports: "IGNORE_REPORTS",
+            InviteModerator: "INVITE_MODERATOR",
+            InviteSubscriber: "INVITE_SUBSCRIBER",
+            Lock: "LOCK",
+            MarkNsfw: "MARK_NSFW",
+            MarkOriginalContent: "MARK_ORIGINAL_CONTENT",
+            ModmailEnrollment: "MODMAIL_ENROLLMENT",
+            ModAwardGiven: "MOD_AWARD_GIVEN",
+            ModRecruitmentApplicationRemove: "MOD_RECRUITMENT_APPLICATION_REMOVE",
+            ModRecruitmentApplicationRespond: "MOD_RECRUITMENT_APPLICATION_RESPOND",
+            ModRecruitmentDisable: "MOD_RECRUITMENT_DISABLE",
+            ModRecruitmentEnable: "MOD_RECRUITMENT_ENABLE",
+            ModRecruitmentUpdateTemplate: "MOD_RECRUITMENT_UPDATE_TEMPLATE",
+            MuteUser: "MUTE_USER",
+            OverrideClassification: "OVERRIDE_CLASSIFICATION",
+            RemoveComment: "REMOVE_COMMENT",
+            RemoveCommunityTopics: "REMOVE_COMMUNITY_TOPICS",
+            RemoveContributor: "REMOVE_CONTRIBUTOR",
+            RemoveLink: "REMOVE_LINK",
+            RemoveModerator: "REMOVE_MODERATOR",
+            RemoveWikiContributor: "REMOVE_WIKI_CONTRIBUTOR",
+            ReorderModerators: "REORDER_MODERATORS",
+            ReorderRemovalReason: "REORDER_REMOVAL_REASON",
+            ReorderRules: "REORDER_RULES",
+            RequestAssistance: "REQUEST_ASSISTANCE",
+            SetContestMode: "SET_CONTEST_MODE",
+            SetPermissions: "SET_PERMISSIONS",
+            SetSuggestedsort: "SET_SUGGESTEDSORT",
+            ShowComment: "SHOW_COMMENT",
+            SnoozeReports: "SNOOZE_REPORTS",
+            SpamComment: "SPAM_COMMENT",
+            SpamLink: "SPAM_LINK",
+            Spoiler: "SPOILER",
+            Sticky: "STICKY",
+            SubmitContentRatingSurvey: "SUBMIT_CONTENT_RATING_SURVEY",
+            SubmitScheduledPost: "SUBMIT_SCHEDULED_POST",
+            UnbanUser: "UNBAN_USER",
+            UnignoreReports: "UNIGNORE_REPORTS",
+            UninviteModerator: "UNINVITE_MODERATOR",
+            Unlock: "UNLOCK",
+            UnmuteUser: "UNMUTE_USER",
+            UnsetContestMode: "UNSET_CONTEST_MODE",
+            UnsnoozeReports: "UNSNOOZE_REPORTS",
+            Unspoiler: "UNSPOILER",
+            Unsticky: "UNSTICKY",
+            UpdateRemovalReason: "UPDATE_REMOVAL_REASON",
+            WikiBanned: "WIKI_BANNED",
+            WikiContributor: "WIKI_CONTRIBUTOR",
+            WikiPageListed: "WIKI_PAGE_LISTED",
+            WikiPermLevel: "WIKI_PERM_LEVEL",
+            WikiRevise: "WIKI_REVISE",
+            WikiUnbanned: "WIKI_UNBANNED"
+        },
+        fU: {
+            CommentAsMod: "COMMENT_AS_MOD",
+            CommentAsSubreddit: "COMMENT_AS_SUBREDDIT",
+            MessageAsMod: "MESSAGE_AS_MOD",
+            MessageAsSubreddit: "MESSAGE_AS_SUBREDDIT"
+        },
+        fV: "ModSmartEscalations_zlhxrB",
+        fW: {
+            Contributors: "CONTRIBUTORS",
+            InheritSubredditPerms: "INHERIT_SUBREDDIT_PERMS",
+            Mods: "MODS"
+        },
+        fX: ie,
+        fY: On,
+        fZ: {
+            Blocked: "BLOCKED",
+            None: "NONE"
+        },
+        f_: "search-typeahead-expandable-section-",
+        fa: "search-dropdown-item-label-text",
+        fb: "search-dropdown-item",
+        fc: cu,
+        fd: 5,
+        fe: Ko,
+        ff: "recent-search-item-delete-button",
+        get fg() {
+            return be
+        },
+        fh: Ho,
+        fi: "recent-search-item-container",
+        fj: "recent_query",
+        fk: Yc,
+        fl: Jc,
+        fm: {
+            source: "search",
+            action: "click",
+            noun: "full_search_button"
+        },
+        fn: "collapsed-filters-sheet",
+        get fo() {
+            return du
+        },
+        fp: {
+            Disabled: "DISABLED",
+            Enabled: "ENABLED"
+        },
+        fq: {
+            Disabled: "DISABLED",
+            Enabled: "ENABLED"
+        },
+        fr: {
+            Gif: "GIF",
+            Image: "IMAGE",
+            Sticker: "STICKER"
+        },
+        fs: "ModOnboardingGuidePreview_wq5hlZ",
+        ft: {
+            First: "FIRST",
+            None: "NONE",
+            Second: "SECOND"
+        },
+        fu: {
+            Friday: "FRIDAY",
+            Monday: "MONDAY",
+            Saturday: "SATURDAY",
+            Sunday: "SUNDAY",
+            Thursday: "THURSDAY",
+            Tuesday: "TUESDAY",
+            Wednesday: "WEDNESDAY"
+        },
+        fv: {
+            Daily: "DAILY",
+            Hourly: "HOURLY",
+            Monthly: "MONTHLY",
+            Weekly: "WEEKLY"
+        },
+        get fw() {
+            return oo
+        },
+        fx: function(e, t) {
+            const i = document.createElement(e);
+            for (const e in t)
+                i.setAttribute(e, t[e]);
+            return i
+        },
+        fy: Cd,
+        fz: vd,
+        g: Kc,
+        g$: eo,
+        g0: "CommunityGuide_0CWwQB",
+        g1: {
+            Dark: "DARK",
+            Light: "LIGHT"
+        },
+        g2: Aa,
+        get g3() {
+            return B
+        },
+        g4: "mod-overlay-display",
+        g5: Zo,
+        g6: e => qo() ? Jo({
+            timer: {
+                millis: Math.floor(e - Yo()),
+                type: Zt.TTCHybrid
+            }
+        }) : Jo({
+            timer: {
+                millis: Math.floor(e),
+                type: Zt.TTCDeeplink
+            }
+        }),
+        g7: {
+            Approval: "APPROVAL",
+            Ban: "BAN",
+            ContentChange: "CONTENT_CHANGE",
+            Invite: "INVITE",
+            Mute: "MUTE",
+            Note: "NOTE",
+            Removal: "REMOVAL",
+            Spam: "SPAM"
+        },
+        g8: "theme",
+        g9: function(e, t, i, n) {
+            if ("a" === i && !n)
+                throw new TypeError("Private accessor was defined without a getter");
+            if ("function" == typeof t ? e !== t || !n : !t.has(e))
+                throw new TypeError("Cannot read private member from an object whose class did not declare it");
+            return "m" === i ? n : "a" === i ? n.call(e) : n ? n.value : t.get(e)
+        },
+        gA: function() {
+            return Hr
+        },
+        gB: ta,
+        gC: ea,
+        get gD() {
+            return aa
+        },
+        gE: {
+            BackgroundImage: "BACKGROUND_IMAGE",
+            BannerBackgroundImage: "BANNER_BACKGROUND_IMAGE",
+            BannerPositionedImage: "BANNER_POSITIONED_IMAGE",
+            CommunityIcon: "COMMUNITY_ICON",
+            MenuBackgroundImage: "MENU_BACKGROUND_IMAGE",
+            MobileBannerImage: "MOBILE_BANNER_IMAGE",
+            SecondaryBannerPositionedImage: "SECONDARY_BANNER_POSITIONED_IMAGE",
+            WidgetImage: "WIDGET_IMAGE"
+        },
+        gF: md,
+        gG: function(e) {
+            return Math.ceil(e.scrollTop) >= e.scrollHeight - e.offsetHeight
+        },
+        gH: function(e) {
+            return 0 === Math.floor(e.scrollTop)
+        },
+        gI: Dd,
+        gJ: Ud,
+        gK: Ld,
+        gL: yd,
+        gM: "FlairReorderModal_BhtyTj",
+        gN: {
+            Blank: "BLANK",
+            Confidence: "CONFIDENCE",
+            Controversial: "CONTROVERSIAL",
+            Live: "LIVE",
+            New: "NEW",
+            Old: "OLD",
+            Qa: "QA",
+            Random: "RANDOM",
+            Top: "TOP"
+        },
+        gO: {
+            Female: "FEMALE",
+            Male: "MALE",
+            NonBinary: "NON_BINARY",
+            OptOut: "OPT_OUT",
+            UserDefined: "USER_DEFINED"
+        },
+        gP: {
+            BehavioralDynamicProduct: "BEHAVIORAL_DYNAMIC_PRODUCT",
+            BehavioralKeyword: "BEHAVIORAL_KEYWORD",
+            ContextualDynamicProduct: "CONTEXTUAL_DYNAMIC_PRODUCT",
+            ContextualKeyword: "CONTEXTUAL_KEYWORD",
+            CustomAudience: "CUSTOM_AUDIENCE",
+            Device: "DEVICE",
+            DynamicProduct: "DYNAMIC_PRODUCT",
+            DynamicProductRetargeting: "DYNAMIC_PRODUCT_RETARGETING",
+            EngagementRetargeting: "ENGAGEMENT_RETARGETING",
+            LookalikeAudience: "LOOKALIKE_AUDIENCE",
+            MobileCarrier: "MOBILE_CARRIER",
+            PixelRetargeting: "PIXEL_RETARGETING",
+            PixelRetargetingCohort: "PIXEL_RETARGETING_COHORT",
+            RunOfSite: "RUN_OF_SITE",
+            Takeover: "TAKEOVER",
+            ThirdPartyAudience: "THIRD_PARTY_AUDIENCE"
+        },
+        gQ: fo,
+        gR: go,
+        gS: po,
+        gT: mo,
+        gU: _o,
+        gV: "shreddit_pixel_counter_metric_killswitch",
+        gW: di,
+        gX: "unloadPixelTimeout",
+        gY: "ti",
+        gZ: Eo,
+        get g_() {
+            return ro
+        },
+        ga: function(e, t, i, n, o) {
+            if ("function" == typeof t ? e !== t || !o : !t.has(e))
+                throw new TypeError("Cannot write private member to an object whose class did not declare it");
+            return o ? o.value = i : t.set(e, i),
+            i
+        },
+        gb: {
+            Epic: "EPIC",
+            Legendary: "LEGENDARY",
+            Rare: "RARE",
+            Test: "TEST"
+        },
+        gc: A,
+        gd: Gn,
+        ge: "reddit_chat_path",
+        gf: "reddit_chat_view",
+        gg: "reddit_chat_dimension",
+        gh: "token_v2",
+        gi: "reddit_session",
+        gj: {
+            Month: "MONTH",
+            Months_3: "MONTHS_3",
+            Months_6: "MONTHS_6",
+            Week: "WEEK"
+        },
+        gk: {
+            All: "ALL",
+            Day: "DAY",
+            Hour: "HOUR",
+            Month: "MONTH",
+            Months_3: "MONTHS_3",
+            Week: "WEEK",
+            Year: "YEAR"
+        },
+        gl: () => ({}),
+        gm: function(e) {
+            if (e)
+                switch (e) {
+                case ni.CompactView:
+                    return "classic";
+                case ni.CardView:
+                    return "card";
+                default:
+                    return
+                }
+        },
+        gn: {
+            Hidden: "HIDDEN",
+            None: "NONE"
+        },
+        go: {
+            None: "NONE",
+            Spoiler: "SPOILER"
+        },
+        gp: {
+            None: "NONE",
+            Nsfw: "NSFW"
+        },
+        gq: {
+            AdminDistinguished: "ADMIN_DISTINGUISHED",
+            AlumniDistinguished: "ALUMNI_DISTINGUISHED",
+            ModDistinguished: "MOD_DISTINGUISHED",
+            None: "NONE"
+        },
+        gr: {
+            DoNotSend: "DO_NOT_SEND",
+            Send: "SEND"
+        },
+        gs: {
+            None: "NONE",
+            Saved: "SAVED"
+        },
+        gt: {
+            Distinguished: "DISTINGUISHED",
+            None: "NONE"
+        },
+        gu: {
+            Followed: "FOLLOWED",
+            Unfollowed: "UNFOLLOWED"
+        },
+        gv: gd,
+        gw: E,
+        gx: f,
+        gy: "ModActivityPreviewHovercard_QsHM7h",
+        get gz() {
+            return St
+        },
+        h: p,
+        h$: "scroll-container",
+        h0: io,
+        h1: no,
+        get h2() {
+            return to
+        },
+        h3: function(e) {
+            return void 0 !== e.pixelEvent
+        },
+        get h4() {
+            return Jn
+        },
+        get h5() {
+            return Nr
+        },
+        get h6() {
+            return Or
+        },
+        h7: _p,
+        h8: fp,
+        h9: Ep,
+        hA: "BoostPostEstimatedViews_zvRsY0",
+        hB: "/svc/shreddit/promote-post-modal-estimated-views",
+        hC: "BoostPostPaymentInfo_BnDvTb",
+        hD: "BoostPostTargetingModal_Zr5cTB",
+        hE: {
+            GroupTypeNone: "GROUP_TYPE_NONE",
+            GroupTypePost: "GROUP_TYPE_POST"
+        },
+        get hF() {
+            return vu
+        },
+        hG: "/answers/",
+        hH: "guides-search-input",
+        hI: e => {
+            const {errorData: t, userQuota: i} = e;
+            if (t) {
+                const e = t.type === Tu.GuidesQuotaExceededError;
+                return {
+                    isLoading: !1,
+                    timeUntilResetSeconds: t.retryAfterSeconds ?? -1,
+                    isUserReachedQueryLimit: e,
+                    queriesRemaining: e ? 0 : -1
+                }
+            }
+            return {
+                isLoading: !e.isResponseFinished,
+                timeUntilResetSeconds: -1,
+                isUserReachedQueryLimit: 0 === i.queriesRemaining,
+                queriesRemaining: i.queriesRemaining
+            }
+        }
+        ,
+        hJ: "PremiumModal_r1FXhv",
+        hK: "guides-related-post-list",
+        hL: fu,
+        hM: Eu,
+        hN: "tl",
+        hO: "guides-citation-highlight-zone",
+        hP: "guides-citation-close-btn",
+        hQ: "guides-citation-template",
+        hR: "guides-split-screen-view-header",
+        hS: "guides-recommended-posts-template",
+        hT: "h-[calc(100dvh-var(--shreddit-header-height))]",
+        hU: 800,
+        hV: ({postIds: e, isSources: t, translationLanguage: i=""}) => {
+            const n = i ? `&tl=${i}` : "";
+            return t ? `${_u}/${e}?isSources=true${n}` : `${_u}/${e}?aside=true${n}`
+        }
+        ,
+        hW: 3,
+        hX: "GuidesConfirmationModal_6mWYhL",
+        hY: "guides-confirmation-modal",
+        get hZ() {
+            return yu
+        },
+        h_: "invisible",
+        ha: Sp,
+        hb: bp,
+        hc: Tp,
+        hd: vp,
+        he: {
+            CAPTIONS_ENABLED: "captions-enabled",
+            CURRENT_TIME: "current-time",
+            DURATION: "duration",
+            ENDED: "ended",
+            ERROR: "error",
+            FULLSCREEN: "fullscreen",
+            LOADING: "loading",
+            MUTED: "muted",
+            PLAYING: "playing",
+            PAUSED: "paused",
+            SHOW_POSTER: "show-poster",
+            SHOW_RECOMMENDATION_OVERLAY: "show-rec-overlay",
+            USER_IDLE: "user-idle"
+        },
+        hf: 3e4,
+        get hg() {
+            return fl
+        },
+        get hh() {
+            return _l
+        },
+        get hi() {
+            return kd
+        },
+        hj: e => e.match(Ru),
+        hk: $c,
+        hl: {
+            Approved: "APPROVED",
+            Archived: "ARCHIVED",
+            Banned: "BANNED",
+            Disapproved: "DISAPPROVED",
+            Filtered: "FILTERED",
+            Highlighted: "HIGHLIGHTED",
+            Muted: "MUTED",
+            ReportedToAdmins: "REPORTED_TO_ADMINS",
+            Unarchived: "UNARCHIVED",
+            Unbanned: "UNBANNED",
+            Unfiltered: "UNFILTERED",
+            Unhighlighted: "UNHIGHLIGHTED",
+            Unmuted: "UNMUTED"
+        },
+        hm: {
+            Admin: "ADMIN",
+            All: "ALL",
+            Appeals: "APPEALS",
+            Archived: "ARCHIVED",
+            Filtered: "FILTERED",
+            Highlighted: "HIGHLIGHTED",
+            Inbox: "INBOX",
+            InProgress: "IN_PROGRESS",
+            JoinRequests: "JOIN_REQUESTS",
+            ModDiscussions: "MOD_DISCUSSIONS",
+            New: "NEW",
+            Notifications: "NOTIFICATIONS",
+            Recruiting: "RECRUITING"
+        },
+        hn: Vo,
+        ho: "ModmailSavedResponsesDropdown_krYJk1",
+        hp: {
+            Eligible: "ELIGIBLE",
+            ExistingAppeal: "EXISTING_APPEAL",
+            NoMatchingDecision: "NO_MATCHING_DECISION",
+            PrescriptivePeriodExpired: "PRESCRIPTIVE_PERIOD_EXPIRED"
+        },
+        hq: "ModLogTakedownPreview_sL20RW",
+        hr: "ModActionsSummary_clnskQ",
+        hs: {
+            InboxOnly: "INBOX_ONLY",
+            None: "NONE",
+            PushAndInbox: "PUSH_AND_INBOX"
+        },
+        ht: {
+            ModPnsStatus: "MOD_PNS_STATUS",
+            ModPnContentFoundationStatus: "MOD_PN_CONTENT_FOUNDATION_STATUS",
+            ModPnMilestoneStatus: "MOD_PN_MILESTONE_STATUS",
+            ModPnNewCrosspostStatus: "MOD_PN_NEW_CROSSPOST_STATUS",
+            ModPnNewModmailStatus: "MOD_PN_NEW_MODMAIL_STATUS",
+            ModPnNewPostStatus: "MOD_PN_NEW_POST_STATUS",
+            ModPnNewSrMentionStatus: "MOD_PN_NEW_SR_MENTION_STATUS",
+            ModPnPostInPopularFeedStatus: "MOD_PN_POST_IN_POPULAR_FEED_STATUS",
+            ModPnReportedCommentStatus: "MOD_PN_REPORTED_COMMENT_STATUS",
+            ModPnReportedPostStatus: "MOD_PN_REPORTED_POST_STATUS",
+            ModPnViralCommentPostStatus: "MOD_PN_VIRAL_COMMENT_POST_STATUS",
+            ModPnViralUpvotePostStatus: "MOD_PN_VIRAL_UPVOTE_POST_STATUS"
+        },
+        hu: {
+            ModPnPostInPopularFeedThreshold: "MOD_PN_POST_IN_POPULAR_FEED_THRESHOLD",
+            ModPnReportedCommentThreshold: "MOD_PN_REPORTED_COMMENT_THRESHOLD",
+            ModPnReportedPostThreshold: "MOD_PN_REPORTED_POST_THRESHOLD",
+            ModPnViralCommentPostThreshold: "MOD_PN_VIRAL_COMMENT_POST_THRESHOLD",
+            ModPnViralUpvotePostThreshold: "MOD_PN_VIRAL_UPVOTE_POST_THRESHOLD"
+        },
+        hv: Qd,
+        hw: Jd,
+        get hx() {
+            return jd
+        },
+        hy: Xd,
+        hz: async function(e=navigator.serviceWorker) {
+            const t = await e.getRegistration()
+              , i = await (t?.pushManager.getSubscription())
+              , n = i?.unsubscribe();
+            return n && qd(Kd("disable")),
+            n
+        },
+        i: Es,
+        i$: {
+            All: "ALL",
+            Mods: "MODS",
+            ModsAndContributors: "MODS_AND_CONTRIBUTORS",
+            Off: "OFF",
+            Unknown: "UNKNOWN"
+        },
+        i0: {
+            minHeight: "5rem",
+            display: "none"
+        },
+        i1: "guides-rtjson-quote",
+        i2: "isQuote",
+        i3: "true",
+        i4: {
+            AccountAge_30Days: "ACCOUNT_AGE_30_DAYS",
+            Anybody: "ANYBODY",
+            Nobody: "NOBODY"
+        },
+        i5: {
+            Everyone: "EVERYONE",
+            Whitelisted: "WHITELISTED"
+        },
+        i6: {
+            Allowlisted: "ALLOWLISTED",
+            None: "NONE"
+        },
+        i7: {
+            CustomUploadedMedia: "CUSTOM_UPLOADED_MEDIA",
+            SubredditBanner: "SUBREDDIT_BANNER"
+        },
+        i8: _u,
+        i9: "sources-container-loading-template",
+        iA: dn,
+        iB: ln,
+        iC: {
+            Awarded: "AWARDED",
+            Best: "BEST",
+            Controversial: "CONTROVERSIAL",
+            Hot: "HOT",
+            New: "NEW",
+            Rising: "RISING",
+            Top: "TOP"
+        },
+        iD: {
+            All: "ALL",
+            Day: "DAY",
+            Hour: "HOUR",
+            Month: "MONTH",
+            Week: "WEEK",
+            Year: "YEAR"
+        },
+        iE: {
+            Locked: "LOCKED",
+            None: "NONE"
+        },
+        iF: "UpdatePostFlairModal_0lB6xr",
+        iG: {
+            Distinguished: "DISTINGUISHED",
+            DistinguishedAndStickied: "DISTINGUISHED_AND_STICKIED",
+            None: "NONE"
+        },
+        iH: {
+            BlankOnly: "BLANK_ONLY",
+            CommentsPage: "COMMENTS_PAGE",
+            CommentTrees: "COMMENT_TREES",
+            Feed: "FEED",
+            FullBleedVideoFeed: "FULL_BLEED_VIDEO_FEED",
+            LightboxSidebar: "LIGHTBOX_SIDEBAR",
+            ListingBelow: "LISTING_BELOW",
+            MainSidebar: "MAIN_SIDEBAR",
+            PromotedPost: "PROMOTED_POST",
+            Sidebars: "SIDEBARS",
+            TrendingDiscovery: "TRENDING_DISCOVERY",
+            TrendingSearchResult: "TRENDING_SEARCH_RESULT"
+        },
+        iI: "AddAmaCollaboratorsModal_BvmjY3",
+        iJ: "PostDeletionModal_dTjGQh",
+        iK: {
+            RecencyPastFewMonths: "RECENCY_PAST_FEW_MONTHS",
+            RecencyPastFewWeeks: "RECENCY_PAST_FEW_WEEKS",
+            RecencyUnspecified: "RECENCY_UNSPECIFIED",
+            RecencyWithinThisYear: "RECENCY_WITHIN_THIS_YEAR"
+        },
+        iL: {
+            False: "FALSE",
+            True: "TRUE"
+        },
+        iM: {
+            Lenient: "LENIENT",
+            Off: "OFF",
+            Strict: "STRICT",
+            Unspecified: "UNSPECIFIED"
+        },
+        iN: {
+            MediaOnly: "MEDIA_ONLY",
+            Unspecified: "UNSPECIFIED"
+        },
+        iO: {
+            Onboarding: "ONBOARDING",
+            Unknown: "UNKNOWN"
+        },
+        iP: {
+            Active: "ACTIVE",
+            Canceled: "CANCELED",
+            Completed: "COMPLETED",
+            EndFailed: "END_FAILED",
+            Scheduled: "SCHEDULED",
+            StartFailed: "START_FAILED"
+        },
+        iQ: {
+            CommunityChat: "COMMUNITY_CHAT",
+            Edited: "EDITED",
+            HiddenReported: "HIDDEN_REPORTED",
+            Mod: "MOD",
+            Removed: "REMOVED",
+            Reported: "REPORTED",
+            Unmoderated: "UNMODERATED"
+        },
+        iR: {
+            SortDate: "SORT_DATE",
+            SortDateReverse: "SORT_DATE_REVERSE",
+            SortReports: "SORT_REPORTS",
+            SortReportsReverse: "SORT_REPORTS_REVERSE"
+        },
+        iS: "ModQueueActivityPanel_wWhGwy",
+        iT: "ModQueuePdp_JyX3BC",
+        get iU() {
+            return st
+        },
+        iV: An,
+        iW: {
+            Beacons: "BEACONS",
+            BuyMeACoffee: "BUY_ME_A_COFFEE",
+            Cameo: "CAMEO",
+            CashApp: "CASH_APP",
+            Custom: "CUSTOM",
+            Discord: "DISCORD",
+            Facebook: "FACEBOOK",
+            Indiegogo: "INDIEGOGO",
+            Instagram: "INSTAGRAM",
+            Kickstarter: "KICKSTARTER",
+            Kofi: "KOFI",
+            Linktree: "LINKTREE",
+            Onlyfans: "ONLYFANS",
+            Patreon: "PATREON",
+            Paypal: "PAYPAL",
+            Reddit: "REDDIT",
+            Shopify: "SHOPIFY",
+            Soundcloud: "SOUNDCLOUD",
+            Spotify: "SPOTIFY",
+            Substack: "SUBSTACK",
+            Tiktok: "TIKTOK",
+            Tumblr: "TUMBLR",
+            Twitch: "TWITCH",
+            Twitter: "TWITTER",
+            Venmo: "VENMO",
+            Youtube: "YOUTUBE"
+        },
+        iX: {
+            DisplayText: "DISPLAY_TEXT",
+            Url: "URL",
+            Username: "USERNAME"
+        },
+        iY: {
+            None: "NONE",
+            NotAllowed: "NOT_ALLOWED",
+            Required: "REQUIRED"
+        },
+        iZ: {
+            Animated: "ANIMATED",
+            Expression: "EXPRESSION",
+            Giphy: "GIPHY",
+            Static: "STATIC",
+            Video: "VIDEO"
+        },
+        i_: {
+            Any: "ANY",
+            Link: "LINK",
+            Self: "SELF"
+        },
+        ia: "guides-sources-container",
+        ib: "isSourcesContainer",
+        ic: 100,
+        id: "guides_reaction_panel_id",
+        ie: "guides-upvote-btn",
+        ig: "guides-downvote-btn",
+        ih: "fade-in-text",
+        ii: "answers-translation-icon-template",
+        ij: "guides-rtjson-query-answer",
+        ik: "GCCA",
+        il: "true",
+        im: "https://support.reddithelp.com/hc/articles/32026729424916-Reddit-Answers-Currently-in-Beta",
+        io: Iu,
+        ip: "done",
+        iq: {
+            queriesRemaining: -1,
+            timeUntilResetSeconds: -1
+        },
+        ir: "answers-product",
+        is: "ra:quote",
+        it: "ra:carousel",
+        get iu() {
+            return Cu
+        },
+        iv: "guides-response-container-ssr",
+        iw: "guides-response-container-online-template",
+        ix: "guides-response-container-streaming",
+        iy: function(e) {
+            switch (e) {
+            case Su.GqlRt:
+                return bu.GqlRt;
+            case Su.GqlRtStaging:
+                return bu.GqlRtStaging;
+            default:
+                return bu.Default
+            }
+        },
+        iz: "interestRegistered",
+        j: gl,
+        j$: "prefers_reduced_motion_sync",
+        j0: {
+            Blacklist: "BLACKLIST",
+            None: "NONE",
+            Whitelist: "WHITELIST"
+        },
+        j1: {
+            Button: "BUTTON",
+            Calendar: "CALENDAR",
+            CommunityList: "COMMUNITY_LIST",
+            Custom: "CUSTOM",
+            IdCard: "ID_CARD",
+            Image: "IMAGE",
+            Menu: "MENU",
+            PostFlair: "POST_FLAIR",
+            SubredditRules: "SUBREDDIT_RULES",
+            TextArea: "TEXT_AREA"
+        },
+        j2: {
+            Compact: "COMPACT",
+            Full: "FULL"
+        },
+        j3: {
+            Image: "IMAGE",
+            Text: "TEXT"
+        },
+        j4: Tt,
+        j5: Rt,
+        j6: {
+            Cloud: "CLOUD",
+            List: "LIST"
+        },
+        j7: "DevvitAppPermissionsConsentDialog_8jqQGV",
+        j8: "PurchaseDialog_Ytnr5G",
+        j9: Ui,
+        jA: "WhereToPost_rYDLdr",
+        get jB() {
+            return js
+        },
+        jC: Ue,
+        jD: {
+            Common: "COMMON",
+            Epic: "EPIC",
+            Legendary: "LEGENDARY",
+            Rare: "RARE",
+            Unknown: "UNKNOWN"
+        },
+        jE: "report",
+        jF: "DevvitPrivacyModal_n98hrb",
+        jG: "original",
+        jH: "show",
+        jI: {
+            And: "AND"
+        },
+        jJ: "forceAutoplay",
+        jK: "X-Auth-Token",
+        jL: "x-auth-token",
+        get jM() {
+            return mp
+        },
+        get jN() {
+            return pp
+        },
+        jO: {
+            PROGRESS_FILL_RATE: "--progress-fill-rate",
+            PREVIEW_VIDEO_LEFT_PX: "--preview-video-left-px",
+            SLIDER_BALL_LEFT_PX: "--slider-ball-left-px",
+            VOLUME_FILL_RATE: "--volume-fill-rate"
+        },
+        jP: "RecommendedMediaOverlay_tt3d9y",
+        jQ: function(e) {
+            e.preventDefault(),
+            e.stopPropagation()
+        },
+        jR: function(e, t) {
+            return ln(e, t) || cn(e)
+        },
+        jS: _n,
+        jT: ls,
+        jU: "shreddit_recaptcha_comment_create",
+        jV: "CommentDeletionModal_NHxzSQ",
+        jW: {
+            Followed: "FOLLOWED",
+            Unfollowed: "UNFOLLOWED"
+        },
+        jX: {
+            DoNotSend: "DO_NOT_SEND",
+            Send: "SEND"
+        },
+        jY: {
+            None: "NONE",
+            Saved: "SAVED"
+        },
+        jZ: "prefers_reduced_motion",
+        j_: "is_video_autoplay_disabled",
+        ja: q,
+        jb: Ri,
+        jc: gu,
+        jd: pu,
+        je: {
+            Community: "COMMUNITY",
+            Premium: "PREMIUM",
+            Unspecified: "UNSPECIFIED"
+        },
+        jf: {
+            Aborted: "ABORTED",
+            Activating: "ACTIVATING",
+            Active: "ACTIVE",
+            Canceled: "CANCELED",
+            Failed: "FAILED",
+            Pending: "PENDING",
+            Terminated: "TERMINATED",
+            Unspecified: "UNSPECIFIED"
+        },
+        jg: "https://accounts.google.com",
+        jh: "https://appleid.apple.com",
+        get ji() {
+            return Pl
+        },
+        jj: {
+            Granted: "GRANTED",
+            Revoked: "REVOKED"
+        },
+        jk: {
+            Apple: "APPLE",
+            Google: "GOOGLE"
+        },
+        jl: "post-submit-form",
+        jm: "save-draft-button",
+        jn: "date-picker-button",
+        jo: "submit-post-button",
+        jp: {
+            Crosspost: "CROSSPOST",
+            Gallery: "GALLERY",
+            Image: "IMAGE",
+            Link: "LINK",
+            Poll: "POLL",
+            Prediction: "PREDICTION",
+            Spoiler: "SPOILER",
+            Streaming: "STREAMING",
+            Talk: "TALK",
+            Text: "TEXT",
+            Video: "VIDEO",
+            Videogif: "VIDEOGIF"
+        },
+        get jq() {
+            return G
+        },
+        jr: "submit-operation-errors",
+        js: "save-draft-failed-modal",
+        jt: e => {
+            const t = "Texto do post"
+              , i = "Texto do post (opcional)";
+            return e ? t : i
+        }
+        ,
+        ju: {
+            Link: "LINK",
+            Markdown: "MARKDOWN",
+            Richtext: "RICHTEXT"
+        },
+        jv: "media-loss-draft-save-modal",
+        jw: "post-check-modal",
+        jx: "PostCheckModal_qSR1XB",
+        jy: "SubredditPostingEligibilityModalActivatable_v3LpNz",
+        jz: "draft-load-failure-modal",
+        get k() {
+            return ye
+        },
+        k0: "shreddit_rpl_action_bar_update",
+        k1: function(e, t=Kt) {
+            const i = [];
+            if (!e.length)
+                return i;
+            e.sort(( (e, t) => (void 0 === e.level ? ve.none : e.level) - (void 0 === t.level ? ve.none : t.level)));
+            let n = {}
+              , o = e[0].level
+              , r = 0;
+            function a() {
+                for (const e in n) {
+                    const r = n[e];
+                    if (1 === r.length)
+                        i.push(r[0]);
+                    else {
+                        const n = [];
+                        let a = 0;
+                        for (const e of r)
+                            e.meta && n.push(e.meta),
+                            a += void 0 === e.count ? 1 : e.count;
+                        i.push(t(o, e, n, a))
+                    }
+                }
+            }
+            for (const t of e) {
+                t.level !== o && (a(),
+                n = {},
+                o = t.level,
+                r = 0);
+                const e = t.message || "";
+                Object.prototype.hasOwnProperty.call(n, e) ? n[e].push(t) : n[e] = [t],
+                r += t.count || 1
+            }
+            return r > 0 && a(),
+            i
+        },
+        k2: zt,
+        k3: Gt,
+        k4: {
+            Gif: "GIF",
+            Jpeg: "JPEG",
+            Mp4: "MP4",
+            Png: "PNG",
+            Quicktime: "QUICKTIME",
+            Webp: "WEBP"
+        },
+        l: Yi,
+        get m() {
+            return nu
+        },
+        n: d,
+        get o() {
+            return wt
+        },
+        p: ll,
+        q: ka,
+        r: Ro,
+        s: function(e, t) {
+            return c({
+                descriptor: i => {
+                    const n = {
+                        get() {
+                            var t, i;
+                            return null !== (i = null === (t = this.renderRoot) || void 0 === t ? void 0 : t.querySelector(e)) && void 0 !== i ? i : null
+                        },
+                        enumerable: !0,
+                        configurable: !0
+                    };
+                    if (t) {
+                        const t = "symbol" == typeof i ? Symbol() : "__" + i;
+                        n.get = function() {
+                            var i, n;
+                            return void 0 === this[t] && (this[t] = null !== (n = null === (i = this.renderRoot) || void 0 === i ? void 0 : i.querySelector(e)) && void 0 !== n ? n : null),
+                            this[t]
+                        }
+                    }
+                    return n
+                }
+            })
+        },
+        t: ee,
+        u: X,
+        v: R,
+        w: He,
+        x: We,
+        get y() {
+            return Se
+        },
+        z: Ne
+    };
+}
+));
+
+                                                                                                                                                                                                            <ellipse>
+                                                                                                                                                                                                              …
+                                                                                                                                                                                                                <radialGradient>
+                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                    <mountain>
+                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                        <a>
+                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                            <consentiment>
+                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                <as>
+                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                    <party>
+                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                        <element ::-webkit-meter-even-less-good-value>
+                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                            <element :-moz-loading>
+                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                <dos>
+                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                    <a>
+                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                        <element ::-webkit-textfield-decoration-container>
+                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                            <serveres>
+                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                <as>
+                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                    <statistics>
+                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                        <is>
+                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                            <noscript>
+                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                <or>
+                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                    <omplementary>
+                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                        <lunar>
+                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                            <efects>
+                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                <address>
+                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                    <article>
+                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                        <default>
+                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                            <board>
+                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                <element ::view-transition-group>
+                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                    <and>
+                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                        <element ::-webkit-validation-bubble-arrow-clipper>
+                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                            <for>
+                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                <a>
+                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                    <viwer>
+                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                        <tralate>
+                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                            <a>
+                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                <documet>
+                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                    <on>
+                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                        <docie>
+                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                            <feComponentTransfer>
+                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                <here>
+                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                    <feDisplacementMap>
+                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                        <feDiffuseLighting>
+                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                            <rupture>
+                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                <a>
+                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                    <structure>
+                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                        <on>
+                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                            <map>
+                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                <element ::-moz-progress-bar>
+                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                    <noiz>
+                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                        <function>
+                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                            <not>
+                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                <controll>
+                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                    <a>
+                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                        <device>
+                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                            <and>
+                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                <set>
+                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                    <a>
+                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                        <controll>
+                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                            <id :protocoll class="dat">
+                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                <das>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                    <first>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                        <element :corner-present>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                            <or>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                <a>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <paraments>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <online>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <element :increment_in>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <radialGradient>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <element ::-webkit-search-results-decoration>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <feSpecularLighting>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <feDiffuseLighting>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <not>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <element :user-invalid>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <noz_x>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <element :user-invalid>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <and>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <nox>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <id>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <element :user-invalid>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <at>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <use>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <desableat>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <trust>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <event_>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <all>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <organologs>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <events>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <not>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <consult>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <log>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <element ::spelling-error>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              "Opacity":0.8,"SizeScale":1
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              "Background":"#FF000000"
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              "BorderBackground":"#FF000000"
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              "ShowAppLabel":true
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              "UseDarkMenus":false}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              import unittest
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              from generate_unit_tests import validate_price
+
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              class TestValidateProduct(unittest.TestCase):
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                def test_price_zero(self):
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  with self.assertRaises(ValueError) as context:
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    validate_price(0)
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  self.assertEqual(str(context.exception), "Price must be greater than 0")
+
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                def test_price_negative(self):
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  with self.assertRaises(ValueError) as context:
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    validate_price(-10)
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  self.assertEqual(str(context.exception), "Price must be greater than 0")
+
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                def test_price_above_limit(self):
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  with self.assertRaises(ValueError) as context:
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    validate_price(1500)
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  self.assertEqual(str(context.exception), "Price must be less than or equal to 1000")
+
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                def test_price_edge_case_zero(self):
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  with self.assertRaises(ValueError) as context:
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    validate_price(0)
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  self.assertEqual(str(context.exception), "Price must be greater than 0")
+
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                def test_price_edge_case_max(self):
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  try:
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    validate_price(1000)
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  except ValueError:
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    self.fail("validate_price() raised ValueError unexpectedly!")
+
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              if __name__ == '__main__':
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                unittest.main
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                (def validate_price(price: float):
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                if price <= 0:
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  raise ValueError("Price must be greater than 0")
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                if price > 1000:
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  raise ValueError("Price must be less than or equal to 1000"))
+
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  <style>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      .loader-main-page {
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          display: none;
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          background-color: #fff;
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          position: fixed;
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          top: 0;
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          bottom: 0;
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          left: 0;
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          right: 0;
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          z-index: 9998;
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      }
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <id>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <error_protocoll>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        :playing :in-range{"ScreenID":0,"ScreenSizePercent":25,"WindowOrientation":0,"Apps":null
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        "AppDataSource":[{"AppPath":"C:\\Users\\nix0f\\Desktop\\Tor Browser.lnk","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\nix0f\\Desktop\\Stremio.lnk","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\nix0f\\Desktop\\CrystalMark Retro Shizuku Edition.lnk","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\Public\\Desktop\\Microsoft Edge.lnk","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\Public\\Desktop\\Steam.lnk","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\nix0f\\Desktop\\Supermarket Together.url","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\nix0f\\Desktop\\Discord.lnk","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\Public\\Desktop\\TLauncher.lnk","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\nix0f\\Desktop\\Tor Browser","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\nix0f\\Desktop\\com.apple.recovery.boot","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\nix0f\\Desktop\\Nova pasta (2)","AppIcon":null}
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        {"AppPath":"C:\\Users\\nix0f\\Desktop\\Nova pasta","AppIcon":null}]
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <error>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <shut>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <element :future>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <comparations>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        <and>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                            <creat>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                <a>
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  …
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    <function>
+Selector Specificity: (0, 9, 143) 
